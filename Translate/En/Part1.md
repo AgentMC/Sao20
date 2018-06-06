@@ -66,6 +66,87 @@ She got up and returned the sword and care equipment to the chest of drawers, sh
 _Why do people sneeze? Let's ask Kirito along with reasons for dreaming next time..._ Ronye hurried to the cupboard where the knight clothes were hung out.
 
 ***
+
+23<sup>rd</sup> February, 380 by Human World calendar.
+
+The cold rain that began before dawn was pouring over large glass windows of the Cathedral’s fiftieth floor called the "Great Corridor of Spiritual Light".
+
+In this hall, which was named the large corridor, there was a handrailed passageway around the high wall. Ronye and Tiese went up there and watched the state of the conference proceeding before their eyes.
+
+Why in the corridor, not by the round table, — it was because Berchie whom Fanatio entrusted to them was in a relatively high spirit if he was taken to some high location. Certainly, the fiftieth floor itself was more than two hundred mels away from the ground, but it was separated by thick walls and solid glass, so it seemed that a one year old child could not feel the height.
+
+"Hey Ronye, you saw Scheta-san's baby at Obsidia, right?"
+
+Tiese whispered while slowly rocking sleeping Berchie.
+
+"Yeah, I also gave her **milk**."
+
+"Wish I was there. She should be about three months old, I guess, she’s so cute?"
+
+"Much more than that. She already had hair and it was quite fluffy, her eyes were bright are on top of that..."
+
+Hearing words of Ronye, Tiese got entranced and gazed straight without focusing on anything.
+
+"This… Beru-boy is also cute when sleeping, but boys and girls are different, are they not? I wonder if Scheta-san brings her next time she comes home..."
+
+_Probably_, — Ronye was ready to answer but swallowed the word.
+
+Ronye had not told her best friend yet that Lisetta, the daughter of Scheta and Isukan, was kidnapped for about half a day. It was so because Kirito reminded her not to tell anyone until reporting at today's meeting, but the question or discomfort associated with that secret between two of them only increased rather than dissolving even after several days.
+
+_I can understand why kidnappers targeted Lisetta. If one aims to intimidate Kirito, there will not be any hostage more effective than Lisa. A Vice-Prime Swordsman Asuna, perhaps, but I do not believe there’s a villain capable of kidnapping her exists at present in Underworld._
+
+On the other hand, the method was quite mysterious.
+
+They invaded near the top floor of the Obsidia Castle, which is severely guarded and is located at a height of as much as five hundred mels, although it does not exceed the Cathedral; moreover, after kidnapping Lisetta, it was the fiftieth floor that could not be unlocked — where they opened a window by the throne and hid in there. After being uncovered by Kirito's actions, even after Ronye slashed his left arm off and he had to jump out of the window, a corpse could not be found.
+
+Ronye certainly saw the gem hanging on the chest of the kidnappers glowing red when the window on the fiftieth floor opened. The general commander Isukan who heard it said that a similar stone had been fitted to the crown of Dark Territory Emperor Vector who died in the Foreign World War.
+
+Isukan also speculated that the kidnapper belonged to assassin guild, but the guild seemed to have already been dismissed. Moreover, the artificial organism "minion" which the kidnapper used to confuse the guards of the castle is said to be produced only by the Dark Arts guild which is also remarkably weakened.
+
+_What is going on in Dark Territory... and in Human World?  
+Who are they and what are they trying to achieve...?_
+
+"── all in all, that’s an outline of what happened at Obsidia Castle."
+
+Suddenly, Kirito's voice echoing in the conference hall reached Ronye and brought her back from her thoughts.
+
+Next to her, Tiese let our surprised voice:
+
+"Eh...... you, were you involved in such a thing over there?"
+
+Apparently, it seemed that Kirito had explained the same thing Ronye was tracing in her mind. She furtively glanced at the face of her best friend and nodded, shrugging:
+
+"Well, yeah ... but, but it wasn’t especially dangerous there."
+
+"It's quite dangerous, I guess, as you had to attack a guy who would kidnap a baby with the sword! That sounds as dangerous... it's almost as dangerous as instructor..."
+
+"Should you had said such a thing back then at Academy, that would......"
+
+As Ronye shook her head, the meeting in the hall went ahead.
+
+"I do not want to complain about what happened, but Prime Swordsman-dono, I remember saying the same the other day! Every job has someone who makes a call!"
+
+The owner of the thick voice reminiscent of a steel bow sound was Integrity Knight Dusolbert Synthesis Seven. Although, due to early morning time, instead of the usual red copper armor he wore Kimono of the eastern style, the severity of reprimand did not change.
+
+"Obsidia Castle also has a number of guards, leave the gamble to them! Prime Swordsman now is the key to not just the Human World, yet all Underworld, if there is something happening to you, how much confusion will occur in both worlds should be understood!"
+
+When Dusolbert closes his mouth, Fanatio Synthesis Two, the second generation knight leader who used to play the role of the one limiting him, said in a serious voice:
+
+"I also agree with Dusolbert this time. Boy, I want you to understand that the era when the Prime took the sword himself and fought the enemy himself, is now over."
+
+To these words, Renri Synthesis Twenty-Seven, who was also present, and all the heads of Cathedral departments, all nodded together.
+
+Wearing black clothes Prime swordsman, who became a main point of the discussion instead of the meeting agenda, made a delicate face and attempted a counterattack from the northern side of the large circular table, with a tone that lacked profoundness.
+
+"Well, I understand what everyone wants to say... but, you see, the previous knights leader Bercouli was flying voluntarily to the Mountain Range at the Edge and fighting dark knights, did he not? Even if I am given a managerial position of a Prime, I guess that one cannot earn trust only by sitting in a safe place after all..."
+
+_── What he is saying is fine, but it sounds like a child's excuse when I hear something like this from Kirito-senpai._
+
+Thought Ronye standing on the gallery ──
+
+"The position of His Excellence Bercouli and your position of Prime Swordsman differ!"
+
+
 (TBC)
 
 <!--## Footnotes:
