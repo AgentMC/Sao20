@@ -71,7 +71,7 @@ _Why do people sneeze? Let's ask Kirito along with reasons for dreaming next tim
 
 The cold rain that began before dawn was pouring over large glass windows of the Cathedral’s fiftieth floor called the "Great Corridor of Spiritual Light".
 
-In this hall, which was named the large corridor, there was a handrailed passageway around the high wall. Ronye and Tiese went up there and watched the state of the conference proceeding before their eyes.
+In this hall, which was named the large corridor, there was a handrailed gallery around the high wall. Ronye and Tiese went up there and watched the state of the conference proceeding before their eyes.
 
 Why in the corridor, not by the round table, — it was because Berchie whom Fanatio entrusted to them was in a relatively high spirit if he was taken to some high location. Certainly, the fiftieth floor itself was more than two hundred mels away from the ground, but it was separated by thick walls and solid glass, so it seemed that a one year old child could not feel the height.
 
@@ -146,9 +146,69 @@ Thought Ronye standing on the gallery ──
 
 "The position of His Excellence Bercouli and your position of Prime Swordsman differ!"
 
+A voice akin to the sharpened blade hit the hall, filling it entirely.
+
+The speaker was a slender knight who did not participate in the meeting the other day.
+
+His armor of an elegant design was pale green. Unusual dark green hair was long enough to touch the floor and hung on a chair, but that was a man. A long spear with the head covered with a pointed leather shell stood behind his back on the floor without any support.
+
+A long-haired knight continued to shout looking at Kirito.
+
+"His Excellency Bercouli continued his long fighting to protect Human World and Axiom Church by the order of her Holiness Highest Priest Administrator! But no one is granted the right to give orders to Prime Swordsman-dono...... hence I conclude that a duty for him is strictly to govern!"
+
+Kirito attempted to refute lingering a little due to his language.
+
+"Bu…but, if that's the reason, then I can command myself......"
+
+The same moment the knight cracking his armor half-raised above the table.
+
+But before even heavier scolding sounded, the current knight leader Fanatio suddenly interrupted.
+
+"Please calm down a bit, Negi-boy."
+
+"I am not green onion<sup><a href="#Prim1">1</a></sup>, it is Nergius!"
+
+Although he had retorted indignantly, the knight named Nergius Synthesis Sixteen sat down suddenly calmed down. It was senior Integrity Knight who continued to protect the Axiom Church for over a hundred years.
+
+According to the Human World naming principles, the name of Nergius was to welcome intelligence, resoluteness and virtuousness. However, hearing the owner of the Divine Object "Storm Sprout Spear", Ronye inclined to a more straightforward meaning of the name.
+
+In a certain remote rural area of the Wesdarath West Empire, vegetables called Riko onions are said to be special products since long ago. Double as long as ordinary, with onions of triple thickness, and four times more sweet and delicious ─ at least this way they are advertised, but anyhow, once upon a time one farmer noticed that there are exceptionally tall Riko green onions growing in a corner of the field.
+
+The delighted farmer carefully looked after it every day, to raise it even higher. The green onion grew steadily and quickly exceeded the length of 1 mel, reaching 2 mel.
+
+Eventually rumors of haunted onion spread and many visitors gathered from nearby villages and towns. The farmer grew greedy, ceased harvesting the vegetable, but instead he understood that there was a way to get benefit and began to take coins from the onlookers wandering about the onion. Meanwhile the green onion grew to 3 mel, then to 4 mel and it’s thickness reached 50 cm. Originally supposed to be white, it got a silver metallic luster, and the green color of its leaves also increased vividness daily.
+
+A few months passed, and the farmer noticed an abnormality in his own field. The young buds of newly seeded Rico onion did not grow up. Growth inferiority also affected the field of other people next door, eventually farmers in the village began to rumor that the cause of the anomaly is the haunted onion of which the farmer took care.
+
+At last the gathering of the villagers ruled that the farmer had to dispose of onion. At that time, the farmer tried to pull out the onion which had reached seven mel in height. First, he tried to pull it out with a cow, but the onion did not bow at all, then he tried to cut it down with an ax, but the blade did not pass through. At the time he tried himself to dig out the root, the sky suddenly became cloudy and the fierce storm hit the village.
+
+The wind and rain raged for quite a while, and when they finally fell, the farmer’s Riko onion field turned into a vast pool of mud, with the haunted onion growing lively in the middle ─
+
+Nergius' Storm Sprout Spear is said to be converted by Highest Priest Administrator from haunted onion. Priority laid in the area of sacred treasures, but on top of that it had quite unusual special effect: it could stand untouched on the floor and the ground even if there was no support and it seemed that it never fell even if it was tilted.
+
+It’s owner is similarly simple and single-minded person; it is without any doubt a noble knight who has been doing years of service for the Axiom Church, but Ronye did not have a very good impression of him. Because when the highest priest Administrator was defeated it was Nergius who insisted the most that Kirito must be executed as a rebel.
+
+Although the immediate execution was avoided because the previous knight leader Bercouli persuaded the hardliners, they said that the knight Alice had to leave Centoria with Kirito. Moreover, the faction led by Nergius did not participate in a Foreign World War and remained in the defense of Cathedral and of the Mountain Range at the Edge, so even in that sense mental barrier between them was not thinner.
+
+To calm himself, Nergius lifted a cup of tea provided to the round table and drank it with a breath. A new ─ but rather relaxed — voice flowed this time to a slightly relaxed atmosphere.
+
+"Well, come to think of it, if Kirito-sensei does everything by himself, I feel a kind of loneliness as if I am not being trusted. Same here, Negio?"
+
+Nergius who heard it stared at the right beside himself while holding an empty cup.
+
+"I did not say anything about feeling lonely!"
+
+Although he snapped back, there was no complain about the strange nickname of "Negio". It seemed though that he gave up, rather than accepted it.
+
+The one who said that was a young knight of same age as Nergius — of course, judging by appearance. He was slightly taller than Nergius, and somewhat sturdier. His hair was cut short to two or three cen, color of his armor was purplish blue. He owned a classic long sword as a weapon and, of course, it was not standing on the floor by itself, but rather hung on the left hip.
+
+His name was Entokia Synthesis Eighteen. He was also a senior knight, and he also has not participated in a Foreign World War. Like Nergius’, his face hasn’t been seen around for several months because they were in an expedition to the South Empire. It seemed to be about investigating whether one can pass the last tunnel that penetrates the mountain range that was buried long ago.
+
+In response to Entokia's remark, Kirito, who seemed to be the second youngest in the hall after Renri, replied while stirring his black hair.
+
 
 (TBC)
 
-<!--## Footnotes:
+## Footnotes:
 
-1. <a name="Prim1"></a>TEXT-->
+1. <a name="Prim1"></a>As expected, "negi" (ねぎ) means "leek".
