@@ -246,7 +246,7 @@ Kirito who was listening to it shrugged his shoulders uncomfortably as was expec
 
 "No, it was the heads of departments of the Axiom Church who supported the practice of administrative reform, and there are also people like Solteri... general Selrut and instructor Levantain and other senior aristocrats who cooperated. Even if I did not order, they freed their territory. ……In addition,……"
 
-Keep remained silent for some time and then continued in a quiet voice.
+Kirito remained silent for some time and then continued in a quiet voice.
 
 "......People of the central capital, of the Human World, they do not know that it is me who killed the Highest Priest and the former Chief Elder. In the end, the support for the Human World Union Council is the same as the worship of the Axiom Church....... Citizens still believe that the Highest Priest is on the top floor of the Cathedral for in a period of sleep. If it happens that it becomes publicly known that I killed her, my popularity will be erased in a blink of an eye."
 
