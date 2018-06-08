@@ -6,7 +6,7 @@
 
 ![Image](/Translate/Img/k002.jpg)
 
-_**Entokia Synthesis Eighteen:** I'm known as Enki, Negio's known as Negio, and together we are called...<sup><a href="#Prim1">1</a></sup>  
+_**Entokia Synthesis Eighteen:** If you call me ‘Enki’ and call Negio ‘Negio’, then together it will be.......<sup><a href="#Prim1">1</a></sup>  
 **Nergius Synthesis Sixteen:** Don't involve me into this!  
 **Kirito:** Ehm, right..._ 
 

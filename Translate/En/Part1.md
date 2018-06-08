@@ -206,6 +206,64 @@ His name was Entokia Synthesis Eighteen. He was also a senior knight, and he als
 
 In response to Entokia's remark, Kirito, who seemed to be the second youngest in the hall after Renri, replied while stirring his black hair.
 
+"Hmm...... I also understand what Nergius-san and Entokia-san say, but after all it is not my nature to command from within the tower. Besides, I am not doing everything alone, in fact the two of you actually did the hard work in the Southern Empire......."
+
+"Oh, there!”
+
+It was Entokia who suddenly shouted in a loud voice, and Kirito reflexively winced.
+
+"What there?"
+
+"When you refer to myself and him, you can leave that ‘-san’ aside. If you call me ‘Enki’ and call Negio ‘Negio’, then together it will be......."
+
+"Enough! Thou can nominate yourself at will, but don’t involve me into this!"
+
+Nergius shouted as if seriously irritated, and Tiese quietly laughed next to Ronye. If seen, she wouldn’t be looking good, but the aforementioned Integrity Knight and others did not hear whispering voices from the far gallery.
+
+"...... He’s not so bad, this one…maybe? "
+
+Ronye also nodded a little to Tiese's murmuring.
+
+"Fanatio-sama was mentioning before. _We all trust Kirito so much because we fought hard together once._ Perhaps, Dusolbert-sama... and I think that it was the same with Alice-sama. As for Nergius-sama and Entokia-sama, when Kirito-senpai and Yujio-senpai broke into the Cathedral, they would have been in the security guard mission at the Mountain Range at the Edge..."
+
+"I see……. Anyway, why Entokia-san called senpai ‘Kirito-sensei’?"
+
+"Who knows……"
+
+Dusolbert who was sitting with his head down for some time, vigorously slapped his hands on the table and put the story back to the main topic.
+
+"Please deepen the friendship between you and the Prime Swordsman-dono as much as you like after the meeting and now I want you to talk about urgent matters."
+
+Nergius who heard it, straightened his posture and nodded, and Entokia lifted both hands showing consent.
+
+"Well...... from listening to the story of the Prime Swordsman-dono, it seems like there is a power that is trying to clash the Human World and the Dark Territory again. If the plan of the man in the black robe succeeded and the Prime Swordsman-dono was to be executed in public at Obsidia, the exchange project would surely stop, and our worlds would have parted ways...... I wouldn’t be surprised if we ended up in the state of war."
+
+It was the youngest knight, Renri Synthesis Twenty-Seven who followed the words of Dusolbert.
+
+"Especially since Kirito-san's popularity in the central capital has been so high since we reformed the aristocratic system and released all the territory.... Even if he’s just a hero who has defeated the Emperor Vector it would be enough, so it is natural after he also showed his skill at the state management."
+
+Kirito who was listening to it shrugged his shoulders uncomfortably as was expected by Ronye.
+
+"No, it was the heads of departments of the Axiom Church who supported the practice of administrative reform, and there are also people like Solteri... general Selrut and instructor Levantain and other senior aristocrats who cooperated. Even if I did not order, they freed their territory. ……In addition,……"
+
+Keep remained silent for some time and then continued in a quiet voice.
+
+"......People of the central capital, of the Human World, they do not know that it is me who killed the Highest Priest and the former Chief Elder. In the end, the support for the Human World Union Council is the same as the worship of the Axiom Church....... Citizens still believe that the Highest Priest is on the top floor of the Cathedral for in a period of sleep. If it happens that it becomes publicly known that I killed her, my popularity will be erased in a blink of an eye."
+
+With these Kirito’s words, Nergius' facial expression became grim again.
+
+Of course, as it was mentioned above, as soon as the Highest Priest Administrator passed away, the knight chief Bercouli gathered all the Integrity Knights that were in the Central Cathedral in this Great Corridor of Spiritual Light, and the knight Alice revealed the majority of the secrets of the Axiom Church.
+
+The highest priest was trying to make huge monsters combining countless swords like a skeleton in preparation for the upcoming war with Dark Territory. And for material, she planned to turn bodies of half of the people living in Human World into those swords.
+
+Furthermore, the Elders Council, the highest-ranking organization giving orders to Integrity Knights was essentially a fiction consisting of the former Chief Elder Chudelkin alone. Knights who suddenly disappeared without any reason turned out to be put into a long sleep by the sacred art "Deep Freeze" which Chudelkin cast.
+
+It seems that the hardliners led by Nergius agreed to refrain from executing Kirito because they saw seven Integrity Knights frozen in the chamber of Elders Council. Even now the analysis of the Deep Freeze technique has not been completed and they remain asleep at the top of the Cathedral.
+
+And one more thing. The last Integrity Knight, Eldrie Synthesis Thirty-One who similarly considered Kirito a rebel, participated in the Foreign World War until losing his life in the defense of Great Eastern Gate, which might have influenced the attitude of stubborn Nergius who were...... given that Dusolbert was telling this during the course of the study.
+
+Ronye and Tiese hadn’t really had a chance to exchange words with knight Eldrie as they had sometimes passed by each other at the Great Eastern Gate. However, the image of knight’s somewhat sad expression and light-purple curly hair fluttering jauntily as he walked along was strong in their memory.
+
 
 (TBC)
 
