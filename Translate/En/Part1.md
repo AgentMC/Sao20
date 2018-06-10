@@ -337,7 +337,7 @@ After waving her hand a little towards Ronye on the gallery, Asuna kept explaini
 
 The words of Fanatio were supplemented by Kirito.
 
-"Also, due to the investigation the number of days is **increm**...... will be added<sup><a href="#Prim2">2</a></sup>. Not only mush we wait for Scheta's report, but we should check what can be investigated here..."
+"Also, due to the investigation the number of days is **increm**...... will be added<sup><a href="#Prim2">2</a></sup>. Not only must we wait for Scheta's report, but we should check what can be investigated here..."
 
 "Even you say so, the dagger that killed old Yazen has disappeared, right? There are no witnesses of the incident, there is no motive for victim to be killed, so it indeed stalled like this."
 
