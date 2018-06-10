@@ -14,7 +14,7 @@ Ronye did not normally have problems with sleep — it was probably because she 
 
 After the end of a Foreign World War, they returned to the central capital in mid-November 380th of the Human World calendar. In December the Human World Union Council was launched and it was only a February of 381th when the Rebellion of Four Empires broke out so it was just a year ago when Ronye and Tiese had crossed swords with the Northern Empire’s, Krueger Norlangarth.
 
-_Maybe it is because of that dream, and why do people need to have dreams in the first place……_ but even though she was waiting for sleeping fairies to come again, her eyelids did not get heavy. She laid still for about three minutes, then the bells outside of the window delivered a subdued 5 AM tone, so she gave up and set on the bed.
+_Maybe it is because of that dream, and why do people need to have dreams in the first place……_ but even though she was waiting for sleeping fairies to come again, her eyelids did not get heavy. She lay still for about three minutes, then the bells outside of the window delivered a subdued 5 AM tone, so she gave up and set on the bed.
 
 She got feet down to the floor, threw over a thick woolen shawl and reached for the table lamp. Turning a large screw in the middle of the barrel, she let water filling the glass-made burner to flow down to the lower container, and the egg-sized piece of ore contained in the burner ignited by itself and release the soft yellow light.
 
@@ -26,7 +26,7 @@ Since it begins to burn without permission unless it is submerged in a certain a
 
 Nonetheless, the situation in the Dark Territory could not be improved with just ore. Although Kirito was trying to solve the fundamental problem that the fertility and sunlight amount is insufficient to harvest agricultural crops enough for it’s population, it seems that he has not yet reached any result.
 
-Under such circumstances, Kirito is committing the greatest hope to the other side of the "end wall of the world" that surrounds all Underworld, but there are many problems here as well. _Will a machine dragon be able to really exceed an infinite cliff that could never be overcame by a living thing.... and even if it does, I there a new ground spreading beyond that wall, or only pure "emptiness" lays beyond?_
+Under such circumstances, Kirito is committing the greatest hope to the other side of the "end wall of the world" that surrounds all Underworld, but there are many problems here as well. _Will a machine dragon be able to really exceed an infinite cliff that could never be overcame by a living thing.... and even if it does, I there a new ground spreading beyond that wall, or only pure "emptiness" lies beyond?_
 
 "............ Still......."
 
@@ -184,7 +184,7 @@ At last the gathering of the villagers ruled that the farmer had to dispose of o
 
 The wind and rain raged for quite a while, and when they finally fell, the farmer’s Riko onion field turned into a vast pool of mud, with the haunted onion growing lively in the middle ─
 
-Nergius' Storm Sprout Spear is said to be converted by Highest Priest Administrator from haunted onion. Priority laid in the area of sacred treasures, but on top of that it had quite unusual special effect: it could stand untouched on the floor and the ground even if there was no support and it seemed that it never fell even if it was tilted.
+Nergius' Storm Sprout Spear is said to be converted by Highest Priest Administrator from haunted onion. Priority lay in the area of sacred treasures, but on top of that it had quite unusual special effect: it could stand untouched on the floor and the ground even if there was no support and it seemed that it never fell even if it was tilted.
 
 It’s owner is similarly simple and single-minded person; it is without any doubt a noble knight who has been doing years of service for the Axiom Church, but Ronye did not have a very good impression of him. Because when the highest priest Administrator was defeated it was Nergius who insisted the most that Kirito must be executed as a rebel.
 
@@ -264,9 +264,89 @@ And one more thing. The last Integrity Knight, Eldrie Synthesis Thirty-One who s
 
 Ronye and Tiese hadn’t really had a chance to exchange words with knight Eldrie as they had sometimes passed by each other at the Great Eastern Gate. However, the image of knight’s somewhat sad expression and light-purple curly hair fluttering jauntily as he walked along was strong in their memory.
 
+The knight chief Bercouli revealed the majority of the Highest Priest's secrets to the knights, but one thing he never said — or he could not say it. Particularly, the largest secret of Integrity Knights’, "Synthesis Ritual".
+
+Integrity Knight with tremendous power is summoned to the Human World from the gods’ world by the prayer of the Highest Priest, and should he die at the mission and lose his life then he returns to the gods’ world again... or that’s the way it was supposed to be. However, only Integrity Knights themselves believed in it.
+
+In fact, they brought to the Cathedral those who showed sword power enough to win the Four Empires Unified Martial Arts Contest or possessed a spiritual power enough to conflict with a Taboo Index, sealed their memories, and synthesized into an Integrity Knight called from the gods’ world by giving false memories.
+
+Such a dangerous fiction worked well for hundreds of years, basically, because Integrity Knights did not communicate with the public. Only when punishing those who broke the law had they a chance to exchange a word with people. And that happened only once in decades.
+
+So, the family of Integrity Knight believed that their son or daughter got the highest honor in the Human World, while the tragedy of the knight himself robbed off the memories of their family at all was repeated over and over again.
+
+However, the situation was gradually changing. Since the Foreign World War and the Rebellion of Four Empires, some knights were approached by soldiers of the Human World Defense Army, and as soon as they got chance to talk about the past, the origin of the knight would become a topic. _The time will have to reveal to the all knights that not so long ago, Integrity Knights were originally human beings and the gods’ world does not exist..._ that was what Kirito declared once with a difficult face.
+
+_That's right — Kirito carries too many challenges at present.  
+If I were not an apprentice, but a regular knight with the right to sit by the round table, even then I wouldn’t selfishly call out that my opponent is hundred years old synthesized knight..._ while thinking so, Ronye kept listening to the meeting room.
+
+It seemed that Fanatio and Dusolbert could not react soon to Kirito’s dangerous remark about him killing the Highest Priest. It was the knight Nergius who first broke the silence with heavy, but unexpectedly calm voice.
+
+"...I do not intend to return to the discussion of Prime Swordsman-dono's past here, and I believe that if it is possible to build a permanent peace with Dark Territory, that is the best way to go."
+
+Entokia also followed the remarks of his partner.
+
+"There is no objection there. In the first place, even if you look in the Taboo Index, it doesn’t prohibit to fight the Highest Priest-sama... because it is not written there."
+
+As he said those words, the two oldest knights sighed in amazement.
+
+_There may not be such a clause indeed, but it is clearly written that in the first place, chapter 1, article 1, paragraph 1 of the Taboo Index, no one should rebel against the Axiom Church. Breaking out from a Cathedral dungeon and defeating a number of Integrity Knights, and finally fighting the former Chief Elder and the Highest Priests is obviously a rebellion against the church..._ thought Ronye. Even though she has become a knight trainee and was released from the Taboo Index and obligation to comply with the Imperial Fundamental Law, she still could not think that she could do the same thing herself.
+
+On the other hand, Kirito and Yujio at that time were cooperating with another Highest Priest, Cardinal, who was once the same as the Highest Priest Administrator. Cardinal healed Fanatio who was seriously injured in the fight against Kirito, and they say she had lost her life in the fight against the Administrator.
+
+Then, it also develops into a problem of legal interpretation of what the "Axiom Church" described in the Taboo Index specifically stands for....... In the past, when doubts appeared in the text of the Taboo Index, it would have been better to ask the Highest Priest or the Chief Elder, but the two of them did not exist anymore. And Integrity Knights were not given the right to make their own interpretation of Taboo Index.
+
+In other words, as Kirito himself mentioned, the title of Human World Union Council Prime Swordsman, even in Human World — and within the Axiom Church, has never gained the meaningful weight.
+
+"── Investigation on black robe man we’ll only have to leave to Scheta and Commander Isukan."
+
+While combining the fingers of both hands on the table, Fanatio said.
+
+"It is impossible for us to get that person, whether they are from the Dark Territory’s Assassin Guild of from the Dark Arts Masters’ Guild. By no other means there is a way than to send a spy to Obsidia, I suppose."
+
+"I think that it is better to quit it, I am afraid they can be caught by the enemy and used against us. If you send someone......."
+
+It looked like all the people who arrived at the round table were to say “I would go myself”, exchanging looks and nodding at the same time.
+
+"...Well, OK, let's quit, yeah. So — what, waiting for a report from Dark Territory on the case of Yazen-san's murder? Which means ── we cannot release the mountain goblin Oroi kept in the Cathedral for now..."
+
+As Kirito said this with a thoughtful face, Vice-Prime Swordsman Asuna sitting next to him began talking. Perhaps it was because she saw him being patiently trying not to tell the hardest thing to Nergius.
+
+"I am doing my best to provide maximum hospitality to Oroi, and I have taken him to sightseeing of Cathedral every day, so he’s not complaining about the limited freedom state at the moment. But, he’s a little bit **homesick**... that would be... um......"
+
+She glimpsed to Kirito, but he seemed not to be coming up with the proper Human World translation of the sacred word that Asuna has said.
+
+"…well, how would you call a situation where you are feeling nostalgic and missing your family and friends?"
+
+Knights and the heads of departments asked by Asuna, began turning heads to each other all together.
+
+"Um...... I can understand that feeling, but we do not have families and our home is this Cathedral... when it comes to expressing in a word..."
+
+Ronye and Tiese exchanged looks while listening to the groaning voice of Dusolbert. Although they didn’t take long journeys, sometimes suddenly they felt such a feeling in the dormitory of Sword Mastery Academy so they also knew how to call it. Tiese poked her, so she reluctantly leaned out from the gallery and screamed.
+
+"Well, I think it is a "hometown missing illness"!
+
+Everyone in the conference hall looked up at Ronye and began nodding. When she hurriedly retracted her face, little Berchie surprised by Ronye's loud voice began moving in Tiese's arms. However, when Tiese shook him a little, started mumbling something and eventually fell asleep for the second time.
+
+"Thanks, Ronye-san, hometown missing illness it is."
+
+After waving her hand a little towards Ronye on the gallery, Asuna kept explaining.
+
+"So, as Oroi-san is falling under that hometown missing illness, I will say I would want to get him out of here in two-three days. I hope the case will be resolved by then..."
+
+"Within three days, it will be difficult, don’t you think? It will take two weeks one way, no matter how rushed, to get response from Obsidia."
+
+The words of Fanatio were supplemented by Kirito.
+
+"Also, due to the investigation the number of days is **increm**...... will be added<sup><a href="#Prim2">2</a></sup>. Not only mush we wait for Scheta's report, but we should check what can be investigated here..."
+
+"Even you say so, the dagger that killed old Yazen has disappeared, right? There are no witnesses of the incident, there is no motive for victim to be killed, so it indeed stalled like this."
+
+Entokia's tone was light, but the meaning of his phrase had grim weight, everyone has been silent again.
+
 
 (TBC)
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>As expected, "negi" (ねぎ) means "leek".
+2. <a name="Prim2"></a>Original uses word “plus” (プラス).

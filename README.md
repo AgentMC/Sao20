@@ -5,13 +5,13 @@
 Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
 Overall progress: translating...  
-`####>--------------------------------------------- 9.44%`
+`#####>-------------------------------------------- 11.05%`
 
 Contents:
 
 - [Initial illustrations](Translate/En/Ills_start.md)
 - [Intro](Translate/En/Intro.md)
-- [Part 1](Translate/En/Part1.md) (50%)
+- [Part 1](Translate/En/Part1.md) (66.67%)
 <!-- - [Part 2](Translate/En/Part2.md)
 - [Part 3](Translate/En/Part3.md) 
 - [Part 4](Translate/En/Part4.md)
