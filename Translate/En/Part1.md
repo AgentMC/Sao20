@@ -487,6 +487,8 @@ As soon as the two of them shouted aloud, little Berchie in Tiese's arms opened 
 
 Although they immediately lowered their head to hide from the conference hall and subsequently nursed Berchie, they could not stop exchanging happy looks over and over again.
 
+![Image](/Translate/Img/p053.jpg)
+
 Both of them had a wide smile on their faces. _I'd like to talk to Tiese now, but I have to endure it until the meeting ends._
 
 The head of the Sacred Arts Department Ayuha, who was interrupted by the screams of those two, gently coughed and resumed reading.
@@ -498,8 +500,6 @@ The head of the Sacred Arts Department Ayuha, who was interrupted by the screams
 It was not Ronye or Tiese who screamed.
 
 It was someone who was sitting at the round table and until that moment listening to a report with a face bearing a trace of drowsiness, someone entitled Prime Swordsman.
-
-![Image](/Translate/Img/p053.jpg)
 
 ## Footnotes:
 
