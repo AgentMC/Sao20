@@ -403,10 +403,108 @@ A 40-year-old man with square eyeglasses serving as the Director of the Cathedra
 
 "No, it is because I had meals with them in the field on numerous occasions...... It will take time to learn the same from scratch."
 
+The director who probably have never left Human World had no choice but to withdraw his suggestion.
 
-(TBC)
+Mountain Goblin ration had little dry wheat which was barely growing at the foot of the mountains, and mainly consisted of tree nuts and wild grasses collected in the wilderness; sneaky iwanezumi or yoroimas that can be fished at Tanigawa are already considered the feast<sup><a href="#Prim3">3</a></sup>. It must be difficult to reproduce such a dish in Centoria, but there was no choice but to believe in the chef's mastery.
+
+With the last words of Kirito, the topic seemed to be concluded, and Ayuha raised again.
+
+"Next, let me report about the replenishment of the Sacred Art division's staff."
+
+"So, you have finally finished the selection, took quite some effort...... please go ahead."
+
+When Fanatio encouraged her, the head of the division bowed and took a bunch of white hemp paper.
+
+"── Currently, the Sacred Art Division is the total of 352 people including apprentices, is still short of staff if we compare to 500 people before the Foreign World War. In order to realize an early stage of ongoing "clerical expansion plan", we need to urgently to raise the number people. For now, we have recruited thirty apprentice clerics in February..."
+
+"Wait a minute."
+
+The one who interrupted was Entokia who was eating cake with a cup of tea from the table. Ronye and Tiese knew that that day's sweets were exotic treats called "macaron"<sup><a href="#Prim4">4</a></sup> because they helped Vice-Prime Asuna who made them in the kitchen with her own hands, and Entokia seems to like it very much.
+
+The short-haired knight put the halfway bitten pale-pink macaroon baked with the juice of hayamomo<sup><a href="#Prim5">5</a></sup> and then continued.
+
+"There are no complaints about increasing the number of apprentices, but will it not take years to get them into a fledged state? Then, perhaps you can consider recalling those who left Cathedral? Those guys will soon have their head cooled down."
+
+Entokia's proposal caused not only people around the table to gaze around, but also Ronye and Tiese exchanged looks.
+
+Certainly, after four senior priests were expelled, nearly one hundred clerics have left Cathedral following them. Most of those were ones who refused to participate in the Human World Defense Army, so Ronye secretly thought "It’s for the best" in her mind, but regardless of their personality, they were no doubt the finest professionals of Human World. If one hundred people would come back, the shortage of personnel of Sacred Art Division would be eliminated at once.
+
+"Umm…."
+
+After producing this long groaning, Kirito turned his face to the person sitting in the corner of the round table. No, since the round table is perfectly circular, there should be no corners and edges, but only the place where that person sat was always dull and it felt like it is by all means a corner.
+
+"Xiao-san, do we know what do those Arts masters who left the Axiom Church do afterwards?"
+
+It was a small woman in simple brown and gray clothes whom Prime Swordsman asked for an opinion. Her name was Xiao Shukas, Director of the Cathedral Information Department.
+
+The Information Department was a bureau newly established after the proclamation of the Human World Union Council, and its main role was to gather information that the Elders Council used to hold once. However, even though there were still few people, Ronye couldn’t still grasp exactly what kind of person director Xiao was.
+
+Xiao whose dark brown hair was cut short to the limit women could afford seemed to whisper, but...... a sound of the strange voice she answered in reached Ronye standing on the gallery.
+
+"Although I could not trace all the clerics, most of them asked for work in various Church branches throughout Human World. Another case would be to become a teacher in a big city school; as a rare example, if one finds a wealthy supporter, the option to open their own prayer room becomes... feasible."
+
+Her weak intonation did not radiate the power of the knights, but girl knights Linel and Fizel seemed to fly around with instructions given by Xiao. Ronye has no idea how it could have possibly come to such a command structure.
+
+"Hmm...... it gives an impression of surprisingly legitimate and appropriate way of reemployment......."
+
+Xiao slightly nodded to Kirito’s words.
+
+"But we could grasp just about 70% of the clerics who left Cathedral; at the same time to discover where the remaining 30% are now and what they are doing using the current investigation procedures appears... impossible."
+
+"Okay...... Thank you, I will consider the increase of information agencies as well. Regarding Entokia-san's **idea**, I think it is too early to approach them right now. It would still be perceived wrong... but, in line with the "clerical expansion plan" we may consider cooperation with those arts masters who are working at church branches or at schools. ── Director Furia, I am sorry we had to interrupt you. Please continue. "
+
+"Well then ..."
+
+Hurriedly finishing a macaron which she began to chew while Xiao was speaking with a gulp of tea, Ayuha dropped her eyes again.
+
+"Er, there are 30 apprentices who are planning to enter the Tower by the end of this month, including 29 people from Centoria city and 1 from outside. Here’s the list......"
+
+After lightly coughing, Ayuha began enumerating the names of young people newly allowed through the gates of Cathedral with glossy beautiful voice.
+
+In the days when the Highest Priest ruled, for those who wanted to become a Chalk Tower resident, regardless of whether they were aristocrats or the general people, there was no other choice but to win the Four Empires Unified Martial Arts Contest. And even that well-deserved honor was erased by the "Synthesis ritual".
+
+Then, where the monks, nuns and priests other than the knights came from? The majority were those born and raised in the Church. Except for, when parents love each other, they are blessed with a baby...... but the Highest Priest Administrator screened outstanding talents and personalities of the monks and ordered the men and women who held them to have kids.
+
+In other words, most of the monks were born and grew up in Cathedral, and Ronye had a strange admiration of those who chose to work outside the tower, but unlike Integrity Knight, monks have long had opportunities to learn about the life of the general population by going out to the town to visit branches and buy supplies.
+
+But after the death of the Highest Priest, of course, no child was ordered to be born, so even if all the children up to the age of 12 who are currently raised in the Cathedral become cleric apprentices, the number of Sacred Arts Division personnel will not continue to increase. Moreover, it is not certain whether the children given the unlimited freedom of choice will decide to go that way.
+
+Therefore, it is essential to replenish the number of Sacred Art Masters, inviting those who left the Tower, especially due to their outstanding talent grown during the Administrator era — even if it has been a forced development ─ and it seemed that Ayuha Furia who became the head of the Sacred Art Division considered that kind of circumstances as well.
+
+While thinking so, Ronye vaguely continued to listen to the names read aloud.
+
+"...... in total, six people from Western Centoria. Next are five people who are accepted from Northern Centoria. Of the Northern Centoria episcopate, **brother** apprentice, Ihar Dhalik, 13 years old... also **brother** apprentice, Maxiom Toulzer, 14 years old...... **sister** apprentice, Lenon Shimki, 13 years old, **sister** apprentice......."
+
+"After all they are mostly children of the Church."
+
+To Tiese's whispers, Ronye answered "That's true". However, the moment she heard the read-out name of the fifth person from North Centoria, she forgot what she was going to say.
+
+"....... and Elite Swordsman-in-Training of Northern Centoria Sword Mastery Academy, Frenica Szeski, 17 years old."
+
+"E...... Eeeeee ────────!?"x2
+
+As soon as the two of them shouted aloud, little Berchie in Tiese's arms opened both eyes. Large tear-drops accumulated in the corners of blue eyes and as if water has broken through a dam, the boy erupted with an outrageous cry.
+
+Although they immediately lowered their head to hide from the conference hall and subsequently nursed Berchie, they could not stop exchanging happy looks over and over again.
+
+Both of them had a wide smile on their faces. _I'd like to talk to Tiese now, but I have to endure it until the meeting ends._
+
+The head of the Sacred Arts Department Ayuha, who was interrupted by the screams of those two, gently coughed and resumed reading.
+
+"Er, in total, 5 people from Northern Centoria. And finally, one from outside of the city...... from Norlangarth Northern Empire Northern Marginal Area, **sister** apprentice from Rulid village branch, Selka Zuberg, 15 years old."
+
+"E...... Eeeeee ────────!?"
+
+It was not Ronye or Tiese who screamed.
+
+It was someone who was sitting at the round table and until that moment listening to a report with a face bearing a trace of drowsiness, someone entitled Prime Swordsman.
+
+![Image](/Translate/Img/p053.jpg)
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>As expected, "negi" (ねぎ) means "leek".
 2. <a name="Prim2"></a>Original uses word “plus” (プラス).
+3. <a name="Prim3"></a>_Iwanezumi_: ”rock rat” or “ivy rat”, likely comes from ラオスイワネズミ, google “Laotian Rock Rats”; _Yoroimas_ – several translators seem to be confused with it, a Chinese colleague [suggests](https://tieba.baidu.com/p/5050282361?pn=3) that it is a sort of a carp.
+4. <a name="Prim4"></a>French quite hard-to-make cake, do not confuse with a sort of pasta (macaroni) or an easy-to-make coconut cake (macaroon).
+5. <a name="Prim5"></a>Some sort of peach – remember _yukimomo_ cake from previous volume? 
