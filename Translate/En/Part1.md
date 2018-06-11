@@ -343,6 +343,66 @@ The words of Fanatio were supplemented by Kirito.
 
 Entokia's tone was light, but the meaning of his phrase had grim weight, everyone has been silent again.
 
+A few seconds later, the one who raised her hand, was a person keeping silent until now, just like Asuna.
+
+A woman was wearing a neat white robe; her brown hair had been made into a single tight braid. Her name was Ayuha Furia, a girl who at such a young age has already been selected as the head of the Axiom Church Sacred Art department.
+
+The Sacred Art department, formerly known as the Monks Order, supervised the Church organization of the entire Human World. There always were its branch offices in the center of all the cities and villages, with Sacred Arts practitioners called "**Brother**" or "**Sister**" in the sacred language, which had voices greater than or equal to those of village heads and town mayors in the area, and higher ranked priests used their sacred power to supervise lower ones.
+
+In particular, when the four senior priests who supervised the monks, which in certain circumstances were said to exercise the power of senior nobility or even higher, were asked by knight chief Bercouli to go participate in the defense battle by the Great Eastern Gate, all four of them declined. Most of the approximately 300 monks who participated in the Human World Defense Army were low- or middle-grade Arts Masters, with only one hundred higher level Arts Masters who were good at attacking techniques, and it seemed that almost all of the priest-class monks tried as much as they can to not to leave the Cathedral.
+
+Immediately after the Foreign World War was over and the Human World Union Council was established, it was discovered that all four senior priests had accumulated a vast property in private rooms, and they were expelled from Central Cathedral. The monk system itself was also reorganized into a Sacred Art Division and Ayuha Furia, 5th class aristocrat was chosen as its first president.
+
+Ayuha joined not only the battle by the Great Eastern Gate but also Human World Defense Force division troops and fought to the last as a leader of the clerics. Ronye, who was in the same unit, remembered her appearance keeping chanting healing techniques as her white robe gradually becoming dyed red with the blood of the injured. Even though her skill did not reach the senior Integrity Knights level, her knowledge of the Art and the medium usage was outstanding and she was more serious and friendly than anyone around.
+
+If Ronye learns Sacred Art, it is better from Ayuha...... she have always thought, but unfortunately, the second teacher was Ayuha's younger sister, Sacred Art teacher Sones Furia who was also the librarian of the newly created large library, and was truly strict person. Vice-Prime Swordsman also received lectures by Sones, and even though she didn’t shake like the majority of others, Asuna sometimes grumbled regarding the matter.
+
+Sones was also eligible to participate in this conference, but she did not come out of the big library unless there was a good reason. *I do not know what will happen unless I realize the technique that the librarian of the previous generation incorporated into the room as soon as possible......* she used to say, but at that moment the understanding was not yet achieved.
+
+Fanatio welcomed Ayuha who was raising her hand, and she said in a calm voice.
+
+"For that matter, the Sacred Art Department may be able to cooperate a bit."
+
+"Oh... what do you mean?"
+
+"For some time, I have been conducting the analysis of the technique that was used by the "Automated Elders Council" that was created to detect Taboo Index violators...... Apparently, that merciful old men seemed to be able to not only quickly find those who violated the Taboo Index but also to go back to the past to some extent."
+
+"To the past……?"
+
+It wasn’t only Fanatio who muttered that, other knights and departments heads also looked surprised.
+
+Meanwhile, Kirito leaned ahead making rattling noise and asked quickly.
+
+"Wa…wait a minute...... That means that the server's log... that you can reproduce the events that happened in the past, like reflection? No way... No, but is it impossible? ...Even if the system detects a Taboo Index violation and opens the window at that point, the violation itself is already complete. If they couldn’t see the past, could they actually check what was done? ── How many days will the operation be traced back to the past?"
+
+"In the present situation it is difficult to go back even for one day, Prime Swordsman-sama. I tried the operation incantation, but the load was too big, the limit was to go back 30 minutes. I wish I could use the technique of viewing the past just after the incident occurred, but it was yesterday that the documentation was discovered..."
+
+When Ayuha replied with a miserable tone, Kirito folded his arms with a complicated expression.
+
+Vice-Prime Swordsman began talking instead of him, looking somewhat interested.
+
+"Ayuha-san, you mentioned earlier that "the load of the operation is too big", but what exactly is it like?"
+
+"See, it is difficult to explain precisely with words...... It is a feeling that a rich amount of sound and light flows in your head, it becomes difficult to keep concentrating on only the target scene from among everything else. In addition, once one uses past reflection technique they get exhausted to the limit...... I think it is possible to reassemble it into a more efficient art, but it will take some time."
+
+"I see... Thank you, Ayuha-san"
+
+When Asuna thanked her, the head of the Sacred Art department nodded with an embarrassed expression.
+
+Unlike Integrity Knights, Sacred Art teacher did not have her life frozen. Therefore, Ayuha looked exactly like her age suggested — presumably, she was probably about 22 or 23 years old, but in rare cases when such expression appeared, she began to appear younger than her sister librarian Sones.
+
+*Or it might be because Sones’ expression is too rigid......* thought Ronye, but at that moment Prime Swordsman's voice was heard again.
+
+"── Director Furia, I would like to continue the analysis of the past reflection art, and I will also ask you to extend it within reasonable bounds. As for **care** of Oroi, I would like to communicate with his companions who are staying in a south Centoria inn, by inviting them to the Cathedral. I will consult with the chef, so that meals can be brought close to the taste of their homeland as much as possible."
+
+The attendees at the conference as well as Ronye and Tiese were gradually becoming more comfortable with the unfamiliar sacred words that sometimes mix with the speech of Kirito and Asuna. "**Care**" was something about being concerned of someone else, in the sense of looking after and providing for the needs of; it was certainly quicker to be able to express it with only two letters.
+
+"Such a task, can be delegated to us......."
+
+A 40-year-old man with square eyeglasses serving as the Director of the Cathedral Materials Management Department sprang up, but Kirito quickly shook his head.
+
+"No, it is because I had meals with them in the field on numerous occasions...... It will take time to learn the same from scratch."
+
 
 (TBC)
 
