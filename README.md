@@ -4,7 +4,7 @@
 
 Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
-Overall progress: translating...  Estimated finish: August 1st - 14th.
+Overall progress: translating...  Estimated finish: August 1st - 14th.  
 `######>------------------------------------------- 12.15%`
 
 Contents:
