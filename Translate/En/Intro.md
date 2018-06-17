@@ -4,7 +4,7 @@ Norlangarth Northern Empire’s coat of arms hanging on a jet-black wall was wra
 
 A thick carpet covering the floor around the throne of Northern Centoria Imperial Castle was burnt here and there, and one could hear distant sword striking and cheerful voices echoing.
 
-In about 20 Mel in front of Ronye and Tiese holding their swords, leaning on the back of gold and black leather throne which had soared surprisingly high, there was a single man sitting sedately. It seemed as if he was not worried at all about the way flames were spreading around the hall; his legs were joined together and his back was straight as a stick.
+In about 20 Mel in front of Ronye and Tiese holding their swords, leaning on the leather back of gold and black  throne which had soared surprisingly high, there was a single man sitting sedately. It seemed as if he was not worried at all about the way flames were spreading around the hall; his legs were joined together and his back was straight as a stick.
 
 "...... I thought that it would be an Integrity Knight who stands before the ruler."
 
@@ -34,9 +34,9 @@ There was a strong enemy, but those who fought the captain were somewhat more im
 
 Therefore, Ronye became strongly angry with dirty words of a man against his faithful servant who fought to defend him. 
 
-Although she did not receive deep scratches, her arms that continued to parry captain's powerful sword strikes were dull and painful, there were countless cuts and puffing bruises. But forgetting the pain and fear for a moment, Ronye cried:
+Although she did not receive deep vounds, her arms that continued to parry captain's powerful sword strikes were dull and painful, there were countless cuts and puffing bruises. But forgetting the pain and fear for a moment, Ronye cried:
 
-"This war is over! Now surrendered immediately and withdraw the edict to Konoe army!"
+"This war is over! Now surrender immediately and withdraw the edict to Konoe army!"
 
 Tiese standing to the left also raised the voice.
 
@@ -48,7 +48,7 @@ But Dusolbert heard that the troops who were attacking the west gate of the cast
 
 It seemed that the course of events was rushing too fast but there was a reason for that.
 
-This warfare later called the "Rebellion of Four Empires " began as the four emperors governing the four empires of the Human World, issued an imperial edict against the Human World Union Council just set up one month ago declaring that they are rebels who raided the Axiom Church and let their directly reporting Konoe army to invade Central Cathedral.
+This warfare later called the "Rebellion of Four Empires " began as the four emperors governing the four empires of the Human World, issued imperial edicts against the Human World Union Council just set up one month ago declaring that they are rebels who raided the Axiom Church and let their directly reporting Konoe army to invade Central Cathedral.
 
 Knights and soldiers of the Konoe Army were not absolute enemies like Red Knights who have attacked in the time of a Foreign World War, but people living in the same Centoria city. Therefore, their sacrifice must be kept to a minimum ── that was the intention of Kirito, the appointed Prime Swordsman of Human World Union Council.
 
@@ -56,13 +56,13 @@ If all Integrity Knights and clerics stayed inside the Central Cathedral and dev
 
 However, Kirito did not take that strategy, almost all Integrity Knights left the Cathedral, joined the Defense Army and were ordered to enter the Imperial Castles of the four empires. In order to conclude this battle with minimal causalities, there was no choice but to capture the four emperors and withdraw the edict. Therefore, members of their unit entrusted a big role of breaking into the throne hall into Ronye and Tiese, as they themselves became a decoy and attracted the large number of troops of the Konoe army.
 
-Today Kirito and Vice-Prime Swordsman Asuna left continuing to defend the Cathedral with a small number of subordinate knights, guards and clerics. Even for the most powerful swordsmen in Human World, it was not an easy task to hold the East, West, North and South gates where the four Konoe armies rushed.
+That day Kirito and Vice-Prime Swordsman Asuna left continuing to defend the Cathedral with a small number of subordinate knights, guards and clerics. Even for the most powerful swordsmen in Human World, it was not an easy task to hold the East, West, North and South gates where the four Konoe armies rushed.
 
 _Discard the decree as soon as possible and put an end to the battle of Northern Centoria._
 
 Although the words of two people were filled with a determination, the cold and noble face of the man on the throne — the Norlangarth Empire Emperor Krueger Norlangarth VI — did not express any tremor.
 
-"....... A daughter of a lower-class nobleman, whose name I haven’t even herd before, turns her sword against the ruler of hers. Even taking this one thing, isn’t is obvious that the Union Conference and those loose rebels are destroying the order and well-being of our Human World?"
+"....... A daughter of a lower-class nobleman, whose name I haven’t even herd before, turns her sword against the ruler of hers. Even taking this one thing, isn’t is obvious that the Union Council and those loose rebels are destroying the order and well-being of our Human World?"
 
 Having said that with placid face, the emperor lifted the crystal bowl from a small round table placed beside the throne containing deep purple liquid and brought it to his mouth.
 
@@ -74,7 +74,7 @@ _The reign forgiving such a luxury can not be tolerated._
 
 Ronye shouted, pointing the tip of the sword to the emperor’s face.
 
-"In the recent Foreign World War, Human World...... only warriors of regular citizens and lower-class aristocrats fought to protect people living here!"
+"In the recent Foreign World War, of all the Human World...... only warriors of regular citizens and lower-class aristocrats fought to protect people living here!"
 
 "Oh yeah! All the great aristocrats shut themselves down in castles within their dominions and could only sit there frightened!"
 
