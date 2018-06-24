@@ -18,21 +18,21 @@ _Maybe it is because of that dream, and why do people need to have dreams in the
 
 She got feet down to the floor, threw over a thick woolen shawl and reached for the table lamp. Turning a large screw in the middle of the barrel, she let water filling the glass-made burner to flow down to the lower container, and the egg-sized piece of ore contained in the burner ignited by itself and release the soft yellow light.
 
-Before they returned home from Dark Territory two days ago, Kirito had packed ten more ore lamps, exclusive Obsidia produce, into the luggage compartment of the dragon, to give them as a souvenir to everyone. Ronye and Tiese also got one each, and got used to them immediately, since to ignite it was enough just to drop the water level, and extinguishing was also very easy —just to turn the lamp upside down to return water to the burner; besides, it was much cheaper compared to conventional oil lamps, and even to light element lamps used in Cathedral, as it was unnecessary to generate an element.
+Before they returned home from Dark Territory two days ago, Kirito had packed ten more ore lamps, exclusive Obsidia produce, into the luggage compartment of the dragon, to give them as a souvenir to everyone. Ronye and Tiese also got one each, and they got used to them immediately, since to ignite it was enough just to drop the water level, and extinguishing was also very easy —just to turn the lamp upside down to return water to the burner; besides, it was much cheaper compared to conventional oil lamps, and even to light element lamps used in Cathedral, as it was unnecessary to generate an element.
 
 Of course, ore — it seems locals called the stone Luminolite — would not continue to burn indefinitely, if one keeps the fire constantly on, it burns out in about four days. In other words, although Ronye and others could use this lamp at will, one would think it will become a waste if in one-month time, but Kirito seemed to want to import large quantities of luminous stone from the Dark Territory.
 
-Since it begins to burn without permission unless it is submerged in a certain amount of water, a certain skill is necessary to carry it a long distance, so if this becomes stable, the night of Centoria will become even brighter, likewise Obsidia's situation with continued refugees' influx and work being hard to find is also somewhat aided.
+Since it begins to burn without permission unless it is submerged in a certain amount of water, a certain skill is necessary to carry it a long distance, but if this becomes stable, the night of Centoria will become even brighter, likewise Obsidia's situation with continued refugees' influx and work being hard to find is also somewhat aided.
 
 Nonetheless, the situation in the Dark Territory could not be improved with just ore. Although Kirito was trying to solve the fundamental problem that the fertility and sunlight amount is insufficient to harvest agricultural crops enough for it’s population, it seems that he has not yet reached any result.
 
-Under such circumstances, Kirito is committing the greatest hope to the other side of the "end wall of the world" that surrounds all Underworld, but there are many problems here as well. _Will a machine dragon be able to really exceed an infinite cliff that could never be overcame by a living thing.... and even if it does, I there a new ground spreading beyond that wall, or only pure "emptiness" lies beyond?_
+Under such circumstances, Kirito is committing the greatest hope to the other side of the "end wall of the world" that surrounds all Underworld, but there are many problems here as well. _Will a machine dragon be able to really exceed an infinite cliff that could never be overcame by a living thing.... and even if it does, is there a new ground spreading beyond that wall, or only pure "emptiness" lies beyond?_
 
 "............ Still......."
 
 After thinking this way for a moment, Ronye shut this burden in her heart and moved again.
 
-She lifted a long sword, placed in a sheath of black leather from the stand beside the chest of drawers. Then she took out a small wooden box from a drawer and returned to the table.
+She took the long sword out of black leather sheath placed at the stand beside the chest of drawers. Then she took out a small wooden box from a drawer and returned to the table.
 
 This sword, having silvery shining guard reminiscent of the crescent moon and the handle wrapped with the same black leather as the sheath, was given to her five days ago by the Vice-Prime Swordsman Asuna. It had Priority 39, which is too much for knight trainee, even though it does not qualify to the Divine Object class.
 
@@ -40,7 +40,7 @@ The blade she gently pulled out of the sheath gleamed faintly in the light of th
 
 The sword's life itself was already recovered because it was contained in the sheath for two days, but dirt and scratches would not disappear without care.
 
-She put the sword on the table and opened the wooden box. First, she removed the dirt by wiping the blades, guard and handle with white cotton cloth. Then poured some polishing oil on the leather of the Silver-Fur Deer of Southern Empire and polished the blade carefully.
+She put the sword on the table and opened the wooden box. First, she removed the dirt by wiping the blade, guard and handle with white cotton cloth. Then poured some polishing oil on the leather of the Silver-Fur Deer of Southern Empire and began to polish the blade carefully.
 
 Kirito and Yujio during the time of Sword Mastery Academy frequently talked about taking care of swords while handling the Sword of the Night Sky and the Sword of the Blue Rose. Ronye was fond of watching them closely at that times. She still felt that one and a half months Tiese and herself were doing a valet duty was the most enjoyable and most brilliant days of her 17 years life.
 
@@ -55,7 +55,7 @@ It could be due to unlike Tiese's love, Ronye’s own feelings will never be rew
 
 She accidentally slid her hand and the blade brushed the belly of her thumb. When she put the sword away and looked at her fingertips, there was little pain, but a blood bead emerged from the shallow cut.
 
-Ronye lowered her left hand which lifted reflexively to produce a light element. She put the thumb against her lips and traced the cut with the tongue. Blood ceased immediately, but it will take some time for the wound to disappear. _But this shall be an admonition to myself who thought too much while handling the sword._
+Ronye lowered her left hand which lifted reflexively to produce a light element. She put the thumb against her lips and traced the cut with the tongue. _Blood ceased already, but it will take some time for the wound to disappear. But this shall be an admonition to myself who thought too much while handling the sword._
 
 She ended wiping the blade with oily leather, finished with a soft cloth to remove any tarnish and returned the sword to the sheath.
 
@@ -73,7 +73,7 @@ The cold rain that began before dawn was pouring over large glass windows of the
 
 In this hall, which was named the large corridor, there was a handrailed gallery around the high wall. Ronye and Tiese went up there and watched the state of the conference proceeding before their eyes.
 
-Why in the corridor, not by the round table, — it was because Berchie whom Fanatio entrusted to them was in a relatively high spirit if he was taken to some high location. Certainly, the fiftieth floor itself was more than two hundred mels away from the ground, but it was separated by thick walls and solid glass, so it seemed that a one year old child could not feel the height.
+Why in the gallery, not by the round table, — it was because Berchie whom Fanatio entrusted to them was in a relatively high spirit if he was taken to some high location. Certainly, the fiftieth floor itself was more than two hundred mels away from the ground, but it was separated by thick walls and solid glass, so it seemed that a one year old child could not feel the height.
 
 "Hey Ronye, you saw Scheta-san's baby at Obsidia, right?"
 
@@ -81,17 +81,17 @@ Tiese whispered while slowly rocking sleeping Berchie.
 
 "Yeah, I also gave her **milk**."
 
-"Wish I was there. She should be about three months old, I guess, she’s so cute?"
+"Wish I was there. She should be about three months old, I guess, is she cute?"
 
-"Much more than that. She already had hair and it was quite fluffy, her eyes were bright are on top of that..."
+"Much more than that. She already had hair and it was quite curly, her eyes were bright are on top of that..."
 
 Hearing words of Ronye, Tiese got entranced and gazed straight without focusing on anything.
 
-"This… Beru-boy is also cute when sleeping, but boys and girls are different, are they not? I wonder if Scheta-san brings her next time she comes home..."
+"This… Berchie-boy is also cute when sleeping, but boys and girls are different, are they not? I wonder if Scheta-san brings her next time she comes home..."
 
 _Probably_, — Ronye was ready to answer but swallowed the word.
 
-Ronye had not told her best friend yet that Lisetta, the daughter of Scheta and Isukan, was kidnapped for about half a day. It was so because Kirito reminded her not to tell anyone until reporting at today's meeting, but the question or discomfort associated with that secret between two of them only increased rather than dissolving even after several days.
+Ronye had not told her best friend yet that Lisetta, the daughter of Scheta and Isukan, was kidnapped for about half a day. It was so because Kirito reminded her not to tell anyone until reporting at today's meeting, but the feeling of discomfort associated with that secret between two of them only increased rather than dissolving even after several days.
 
 _I can understand why kidnappers targeted Lisetta. If one aims to intimidate Kirito, there will not be any hostage more effective than Lisa. A Vice-Prime Swordsman Asuna, perhaps, but I do not believe there’s a villain capable of kidnapping her exists at present in Underworld._
 
@@ -99,7 +99,7 @@ On the other hand, the method was quite mysterious.
 
 They invaded near the top floor of the Obsidia Castle, which is severely guarded and is located at a height of as much as five hundred mels, although it does not exceed the Cathedral; moreover, after kidnapping Lisetta, it was the fiftieth floor that could not be unlocked — where they opened a window by the throne and hid in there. After being uncovered by Kirito's actions, even after Ronye slashed his left arm off and he had to jump out of the window, a corpse could not be found.
 
-Ronye certainly saw the gem hanging on the chest of the kidnappers glowing red when the window on the fiftieth floor opened. The general commander Isukan who heard it said that a similar stone had been fitted to the crown of Dark Territory Emperor Vector who died in the Foreign World War.
+Ronye certainly saw the gem hanging on the kidnapper's chest glowing red when the window on the fiftieth floor opened. The general commander Isukan who heard it said that a similar stone had been fitted to the crown of Dark Territory Emperor Vector who died in the Foreign World War.
 
 Isukan also speculated that the kidnapper belonged to assassin guild, but the guild seemed to have already been dismissed. Moreover, the artificial organism "minion" which the kidnapper used to confuse the guards of the castle is said to be produced only by the Dark Arts guild which is also remarkably weakened.
 
@@ -118,7 +118,7 @@ Apparently, it seemed that Kirito had explained the same thing Ronye was tracing
 
 "Well, yeah ... but, but it wasn’t especially dangerous there."
 
-"It's quite dangerous, I guess, as you had to attack a guy who would kidnap a baby with the sword! That sounds as dangerous... it's almost as dangerous as instructor..."
+"It's quite dangerous, I guess, as you had to attack a guy who would kidnap a baby with the sword! That sounds as dangerous... it's almost as dangerous as to make an instructor angry..."
 
 "Should you had said such a thing back then at Academy, that would......"
 
