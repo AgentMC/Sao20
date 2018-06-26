@@ -172,11 +172,11 @@ Although he had retorted indignantly, the knight named Nergius Synthesis Sixteen
 
 According to the Human World naming principles, the name of Nergius was to welcome intelligence, resoluteness and virtuousness. However, hearing the owner of the Divine Object "Storm Sprout Spear", Ronye inclined to a more straightforward meaning of the name.
 
-In a certain remote rural area of the Wesdarath West Empire, vegetables called Riko onions are said to be special products since long ago. Double as long as ordinary, with onions of triple thickness, and four times more sweet and delicious ─ at least this way they are advertised, but anyhow, once upon a time one farmer noticed that there are exceptionally tall Riko green onions growing in a corner of the field.
+In a certain remote rural area of the Wesdarath West Empire, vegetables called Riko onions are said to be special products since long ago. Double as long as ordinary, with onions of triple thickness, and four times more sweet and delicious ─ at least this way they are advertised, but anyhow, once upon a time one farmer noticed that there are exceptionally tall Riko green onion growing in a corner of the field.
 
 The delighted farmer carefully looked after it every day, to raise it even higher. The green onion grew steadily and quickly exceeded the length of 1 mel, reaching 2 mel.
 
-Eventually rumors of haunted onion spread and many visitors gathered from nearby villages and towns. The farmer grew greedy, ceased harvesting the vegetable, but instead he understood that there was a way to get benefit and began to take coins from the onlookers wandering about the onion. Meanwhile the green onion grew to 3 mel, then to 4 mel and it’s thickness reached 50 cm. Originally supposed to be white, it got a silver metallic luster, and the green color of its leaves also increased vividness daily.
+Eventually rumors of haunted onion spread and many visitors gathered from nearby villages and towns. The farmer grew greedy, ceased harvesting the vegetable, but instead he understood that there was a way to get benefit and began to take coins from the onlookers wandering about the onion. Meanwhile the green onion grew to 3 mel, then to 4 mel and it’s thickness reached 50 cen. Originally supposed to be white, it got a silver metallic luster, and the green color of its leaves also increased vividness daily.
 
 A few months passed, and the farmer noticed an abnormality in his own field. The young buds of newly seeded Rico onion did not grow up. Growth inferiority also affected the field of other people next door, eventually farmers in the village began to rumor that the cause of the anomaly is the haunted onion of which the farmer took care.
 

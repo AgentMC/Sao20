@@ -37,7 +37,7 @@ Contents:
 
 - [Начальные иллюстрации](Translate/Ru/Ills_start.md)
 - [Вступление](Translate/Ru/Intro.md)
-- [Часть 1](Translate/Ru/Part1.md) (25%)
+- [Часть 1](Translate/Ru/Part1.md) (33%)
 <!-- - [Часть 2](Translate/Ru/Part2.md)
 - [Часть 3](Translate/Ru/Part3.md)
 - [Часть 4](Translate/Ru/Part4.md)

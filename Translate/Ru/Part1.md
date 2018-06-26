@@ -128,66 +128,66 @@ _Что же происходит в Тёмной Территории... и в 
 
 Обладателем глубокого голоса, напоминавшего гудение натянутого стального лука, был Рыцарь Целостности Дюсольберт Синтезис Севен. Хотя, из-за раннего времени, вместо обычной красной медной брони, он был облачён в кимоно в восточном стиле, строгость отчитывания не уменьшилась.
 
+"В замке Обсидия тоже немало охраны, следовало оставить сию мороку им! Премьер-Мечник ныне не только ключевая фигура для Мира Людей, но и для всего Подмирья, случись что с вами, вестимо немало возникнет смуты по всему миру!"
+
+Когда Дюсольберт закончил, Фанатио Синтезис Ту, глава рыцарей второго поколения, обычно игравшая роль его ограничителя, сказала серьёзным голосом:
+
+"На этот раз и я согласна с Дюсольбертом. Мальчик, я хочу, чтобы ты понял: эпоха, когда Премьер сам брал меч и сам сражался с врагом, осталась в прошлом."
+
+В знак согласия с этими словами Ренри Синтезис Твенти-Севен, также присутствующий за столом, а также главы подразделений Собора — все вместе закивали.
+
+Облачённый в чёрное Премьер-Мечник, ставший центром обсуждения вместо тем программы встречи, с осторожным лицом попытался контратаковать с северного края большого круглого стола, но тону его голоса явно не доставало уверенности.
+
+"Да, я понимаю что вы хотите сказать... но смотрите, бывший глава рыцарей Беркули же летал добровольно к Горной Гряде-на-Грани и сражался с тёмными рыцарями, разве не так? Даже если мне дана управленческая должность Премьера, в конечном итоге сложно представить как кто-то сможет заслужить доверие, отсиживаясь в безопасном месте..."
+
+_── То, что он говорит — разумно, но в устах Кирито-сенпая это звучит словно детское оправдание._
+
+подумала стоящая на галерее Ронье ──
+
+"Должность Его Превосходительства Беркули и ваша должность Премьер-Мечника разнятся!"
+
+Подобный острому лезвию голос ворвался в зал, заполнил его.
+
+Говорящий был худым рыцарем, не принимавшем участия в недавнем собрании.
+
+Его элегантная броня была бледно-зелёной. Необычные тёмно-зелёные волосы были столь длинны, что касались пола и потому висели на стуле, но это был мужчина. Длинное копьё с наконечником, скрытым в остроконечном кожаном чехле, стояло за его спиной на полу без какой-либо поддержки.
+
+Длинноволосый рыцарь продолжал восклицать, глядя прямо на Кирито.
+
+"Его Превосходительство Беркули продолжал свой долгий бой чтобы защитить Мир Людей и Церковь Аксиом по приказу Её Святейшества Первосвященника Администратор! Но никто не может приказывать Премьеру-доно...... из чего следует, что его обязанность исключительно править!"
+
+Кирито попытался было ответить, помедлив немного из-за необычной речи.
+
+"Н…но, если дело в этом, так я и сам могу себе приказать......"
+
+В этот момент рыцарь, хрустя своими доспехами, наполовину поднялся из-за стола.
+
+Но прежде, чем чтение морали продолжилось в ещё более жёсткой форме, нынешний лидер рыцарей Фанатио внезапно его прервала.
+
+"Пожалуйста полегче, Неги-бой."
+
+"Я не зелёный лук<sup><a href="#Prim1">1</a></sup>, моё имя — Нергиус!"
+
+Хотя он и возмутился в ответ, рыцарь по имени Нергиус Синтезис Сикстин сел обратно, внезапно успокоившись. Он был старшим Рыцарем Целостности, продолжавшим защищать Церковь Аксиом уже более ста лет.
+
+Согласно принципам именования Подмирья, имя Нергиус предполагало разумность, решительность и добродетельность. Однако, слыша владельца Божественного Инструмента "Копьё Грозового Побега", Ронье склонялась к более прямолинейному значению имени.
+
+Где-то далеко, в деревенской местности Западной Империи Весдарат, с давних времён произростали бывшие местной особенностью овощи, известные под названием "лук Рико". Длиной в два раза больше обычных, с луковицами втрое толще, и вчетверо более сладкие и вкусные ─ ну или по крайней мере так их рекламировали,— но, так или иначе, как-то раз один фермер заметил, что в уголке его поля растёт особенно высокий лук Рико.
+
+Довольный фермер тщательно ухаживал за ним каждый день, чтобы тот вырос ещё больше. Лук же не прекращал расти и быстро превысил длину 1 мела, достигнув 2 мелов.
+
+Наконец, слухи о проклятом луке поползли вокруг, и из ближних городов и деревень потянулись зеваки. Фермер пожадничал, поняв что нашёл золотую жилу, и вместо того, чтобы собрать урожай, начал собирать со зрителей плату за возможность посмотреть на лук. Тем временем, пореина выросла сперва до трёх мелов, потом до четырёх, а его диаметр достиг пятидесяти ценов. Белый от природы, он обрёл серебристый отлив, а зелень его побегов с каждым днём становилась всё ярче.
+
+Прошло несколько месяцев, и фермер заметил аномалию. на своём поле. Молодые бутоны свежезасеянного лука Рико не вырастали. Проблемы с ростом обнаружились и на полях по соседству, и наконец между фермерами в этом селе пошёл слух, что причиной аномалии был проклятый лук, о котором заботился фермер.
+
+Наконец, деревенский совет постановил, что фермер должен избавиться от лука. И тогда фермер попытался вытянуть лук, достигший уже семи мелов в высоту. Сперва, он попытался вытянуть его с помощью коровы, ног лук даже не наклонился, потом он попытался срубить его топором, но лезвие не смогло его разрезать. И когда он попытался выкопать его корни, небо внезапно потемнело и над деревней разразилась ужасная гроза.
+
+Какое-то время ветер и ливень бесновались без передышки, а когда они наконец-то утихли, поле лука Рико этого фермера превратилось в грязевое болото, в середине которого преспокойно зеленел проклятый лук ─
+
+Копьё Грозового Побега Нергиуса было, как считается, сотворено Первосвященником Администратор из проклятого лука. Его приоритет находился в области Божественных Орудий, но кроме того, у него было весьма необычное свойство: оно могло само по себе стоять на полу и на земле, ни на что не опираясь, и даже если его наклонить, не падало.
+
 ***
-Продолжение следует.
-
-"Obsidia Castle also has a number of guards, leave the gamble to them! Prime Swordsman now is the key to not just the Human World, yet all Underworld, if there is something happening to you, how much confusion will occur in both worlds should be understood!"
-
-When Dusolbert closes his mouth, Fanatio Synthesis Two, the second generation knight leader who used to play the role of the one limiting him, said in a serious voice:
-
-"I also agree with Dusolbert this time. Boy, I want you to understand that the era when the Prime took the sword himself and fought the enemy himself, is now over."
-
-To these words, Renri Synthesis Twenty-Seven, who was also present, and all the heads of Собор departments, all nodded together.
-
-Wearing black clothes Prime swordsman, who became a main point of the discussion instead of the meeting agenda, made a delicate face and attempted a counterattack from the northern side of the large circular table, with a tone that lacked profoundness.
-
-"Well, I understand what everyone wants to say... but, you see, the previous knights leader Bercouli was flying voluntarily to the Mountain Range at the Edge and fighting dark knights, did he not? Even if I am given a managerial position of a Prime, I guess that one cannot earn trust only by sitting in a safe place after all..."
-
-_── What he is saying is fine, but it sounds like a child's excuse when I hear something like this from Кирито-senpai._
-
-Thought Ronye standing on the gallery ──
-
-"The position of His Excellence Bercouli and your position of Prime Swordsman differ!"
-
-A voice akin to the sharpened blade hit the hall, filling it entirely.
-
-The speaker was a slender knight who did not participate in the meeting the other day.
-
-His armor of an elegant design was pale green. Unusual dark green hair was long enough to touch the floor and hung on a chair, but that was a man. A long spear with the head covered with a pointed leather shell stood behind his back on the floor without any support.
-
-A long-haired knight continued to shout looking at Кирито.
-
-"His Excellency Bercouli continued his long fighting to protect Human World and Axiom Church by the order of her Holiness Highest Priest Administrator! But no one is granted the right to give orders to Prime Swordsman-dono...... hence I conclude that a duty for him is strictly to govern!"
-
-Кирито attempted to refute lingering a little due to his language.
-
-"Bu…but, if that's the reason, then I can command myself......"
-
-The same moment the knight cracking his armor half-raised above the table.
-
-But before even heavier scolding sounded, the current knight leader Fanatio suddenly interrupted.
-
-"Please calm down a bit, Negi-boy."
-
-"I am not green onion<sup><a href="#Prim1">1</a></sup>, it is Nergius!"
-
-Although he had retorted indignantly, the knight named Nergius Synthesis Sixteen sat down suddenly calmed down. It was senior Integrity Knight who continued to protect the Axiom Church for over a hundred years.
-
-According to the Human World naming principles, the name of Nergius was to welcome intelligence, resoluteness and virtuousness. However, hearing the owner of the Divine Object "Storm Sprout Spear", Ronye inclined to a more straightforward meaning of the name.
-
-In a certain remote rural area of the Wesdarath West Empire, vegetables called Riko onions are said to be special products since long ago. Double as long as ordinary, with onions of triple thickness, and four times more sweet and delicious ─ at least this way they are advertised, but anyhow, once upon a time one farmer noticed that there are exceptionally tall Riko green onions growing in a corner of the field.
-
-The delighted farmer carefully looked after it every day, to raise it even higher. The green onion grew steadily and quickly exceeded the length of 1 mel, reaching 2 mel.
-
-Eventually rumors of haunted onion spread and many visitors gathered from nearby villages and towns. The farmer grew greedy, ceased harvesting the vegetable, but instead he understood that there was a way to get benefit and began to take coins from the onlookers wandering about the onion. Meanwhile the green onion grew to 3 mel, then to 4 mel and it’s thickness reached 50 cm. Originally supposed to be white, it got a silver metallic luster, and the green color of its leaves also increased vividness daily.
-
-A few months passed, and the farmer noticed an abnormality in his own field. The young buds of newly seeded Rico onion did not grow up. Growth inferiority also affected the field of other people next door, eventually farmers in the village began to rumor that the cause of the anomaly is the haunted onion of which the farmer took care.
-
-At last the gathering of the villagers ruled that the farmer had to dispose of onion. At that time, the farmer tried to pull out the onion which had reached seven mel in height. First, he tried to pull it out with a cow, but the onion did not bow at all, then he tried to cut it down with an ax, but the blade did not pass through. At the time he tried himself to dig out the root, the sky suddenly became cloudy and the fierce storm hit the village.
-
-The wind and rain raged for quite a while, and when they finally fell, the farmer’s Riko onion field turned into a vast pool of mud, with the haunted onion growing lively in the middle ─
-
-Nergius' Storm Sprout Spear is said to be converted by Highest Priest Administrator from haunted onion. Priority lay in the area of sacred treasures, but on top of that it had quite unusual special effect: it could stand untouched on the floor and the ground even if there was no support and it seemed that it never fell even if it was tilted.
+Продолжение следует
 
 It’s owner is similarly simple and single-minded person; it is without any doubt a noble knight who has been doing years of service for the Axiom Church, but Ronye did not have a very good impression of him. Because when the highest priest Administrator was defeated it was Nergius who insisted the most that Кирито must be executed as a rebel.
 
@@ -506,7 +506,7 @@ It was someone who was sitting at the round table and until that moment listenin
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>As expected, "negi" (ねぎ) means "leek".
+1. <a name="Prim1"></a>Как можно догадаться, "неги" (ねぎ) означает "лук-порей".
 2. <a name="Prim2"></a>Original uses word “plus” (プラス).
 3. <a name="Prim3"></a>_Iwanezumi_: ”rock rat” or “ivy rat”, likely comes from ラオスイワネズミ, google “Laotian Rock Rats”; _Yoroimas_ – several translators seem to be confused with it, a Chinese colleague [suggests](https://tieba.baidu.com/p/5050282361?pn=3) that it is a sort of a carp.
 4. <a name="Prim4"></a>French quite hard-to-make cake, do not confuse with a sort of pasta (macaroni) or an easy-to-make coconut cake (macaroon).
