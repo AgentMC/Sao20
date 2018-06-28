@@ -260,7 +260,7 @@ Furthermore, the Elders Council, the highest-ranking organization giving orders 
 
 It seems that the hardliners led by Nergius agreed to refrain from executing Kirito because they saw seven Integrity Knights frozen in the chamber of Elders Council. Even now the analysis of the Deep Freeze technique has not been completed and they remain asleep at the top of the Cathedral.
 
-And one more thing. The last Integrity Knight, Eldrie Synthesis Thirty-One who similarly considered Kirito a rebel, participated in the Foreign World War until losing his life in the defense of Great Eastern Gate, which might have influenced the attitude of stubborn Nergius who were...... given that Dusolbert was telling this during the course of the study.
+And one more thing. The last Integrity Knight, Eldrie Synthesis Thirty-One who similarly considered Kirito a rebel, participated in the Foreign World War until losing his life in the defense of Great Eastern Gate, which might have influenced the attitude of stubborn Nergius...... given that Dusolbert was telling this during the course of the study.
 
 Ronye and Tiese hadn’t really had a chance to exchange words with knight Eldrie as they had sometimes passed by each other at the Great Eastern Gate. However, the image of knight’s somewhat sad expression and light-purple curly hair fluttering jauntily as he walked along was strong in their memory.
 
