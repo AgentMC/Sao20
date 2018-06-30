@@ -258,256 +258,253 @@ _── То, что он говорит — разумно, но в устах 
 
 Более того, Совет Старейшин, организация с высочайшим рангом, отдающая распоряжения Рыцарям Целостности, была по сути своей фикцией, состоявшей из одного только бывшего Главного Старейшины Чуделкина. Рыцари, внезапно пропадавшие без какой-либо причины, оказывались погружёнными в глубокий сон с помощью священного искусства "Дип Фриз", наложенного Чуделкиным.
 
-Сторонники жёстких мер, ведомые Нергиусом, согласились воздержаться от казни Кирито, увидев семерых Рыцарей Целостности, замороженных в комнате Совета Старейшин. Анализ техники Дип Фриз всё ещё не был заверпшён, и они оставались усыплёнными на вершине Собора.
+Сторонники жёстких мер, ведомые Нергиусом, согласились воздержаться от казни Кирито, увидев семерых Рыцарей Целостности, замороженных в комнате Совета Старейшин. Анализ техники Дип Фриз всё ещё не был завершён, и они оставались усыплёнными на вершине Собора.
 
 И ещё одна вещь. Последний обращённый рыцарь, Элдри Синтезис Сёти-Уан, также считавший Кирито повстанцем, участвовал в Войне с Внешним Миром, пока не лишился жизни в оборонительной битве при Великих Восточных Вратах, что, возможно тоже повлияло на отношение строптивого Нергиуса...... учитывая, что Дюсольберт  упоминал это в рассказе.
 
 Ронье и Тейзе не выпало случая перекинуться с рыцарем Элдри словами когда они пересекались у Великих Восточных Врат. Однако, образ рыцаря, с его немного грустным лицом и светло-фиолетовыми кучерявыми волосами, игриво развивающимися, когда он проходил мимо, был всё ещё ярок в их памяти.
 
-***
-Продолжение следует.
+Глава рыцарей Беркули раскрыл рыцарям большинство секретов Первосвященника, но об одном он умолчал — ну или просто не смог сказать. А именно, о величайшей тайне Рыцарей Целостности, "Ритуале Синтеза".
 
-The knight chief Bercouli revealed the majority of the Highest Priest's secrets to the knights, but one thing he never said — or he could not say it. Particularly, the largest secret of Integrity Knights’, "Synthesis Ritual".
+Рыцарь Целостности, обладающий невероятной силой, призывается в Мир Людей из мира богов молитвой Первосвященника, и в случае, если он погибнет в бою, растратив всю Жизнь, он вернётся обратно в мир богов... ну или так оно должно было быть. Однако, только сами Рыцари Целостности и верили в это.
 
-Integrity Knight with tremendous power is summoned to the Human World from the gods’ world by the prayer of the Highest Priest, and should he die at the mission and lose his life then he returns to the gods’ world again... or that’s the way it was supposed to be. However, only Integrity Knights themselves believed in it.
+На самом же деле, они доставляли в Собор тех, кто обладал силой меча, достаточной чтобы победить в Объединённом Турнире Четырёх Империй по Боевым Искусствам, или духовной силой, способной преодолеть Индекс Табу, где их память запечатывалась, а сами они синтезировались в Рыцарей Целостности, веривших, что их призвали из мира богов благодаря внедрённым фальшивым воспоминаниям.
 
-In fact, they brought to the Собор those who showed sword power enough to win the Four Empires Unified Martial Arts Contest or possessed a spiritual power enough to conflict with a Taboo Index, sealed their memories, and synthesized into an Integrity Knight called from the gods’ world by giving false memories.
+Такой опасный вымысел работал без единой ошибки сотни лет, в общем-то, потому что Рыцари Целостности не общались с публикой. Им предоставлялась возможность обменяться словами с людьми только когда они наказывали тех, кто нарушил закон. А такое происходило раз в десятилетия.
 
-Such a dangerous fiction worked well for hundreds of years, basically, because Integrity Knights did not communicate with the public. Only when punishing those who broke the law had they a chance to exchange a word with people. And that happened only once in decades.
+Так что, в семьях Рыцарей Целостности верили, что их сыновьям и дочерям была дарована величайшая честь в Мире Людей, а тем временем трагедия лишения рыцарей всякой памяти об их семьях происходила одна за другой.
 
-So, the family of Integrity Knight believed that their son or daughter got the highest honor in the Human World, while the tragedy of the knight himself robbed off the memories of their family at all was repeated over and over again.
+Однако, ситуация постепенно менялась. С Войны с Внешним Миром и Восстания Четырёх Империй, некоторые рыцари общались с солдатами Армии Защиты Мира Людей, и как только речь заходила о прошлом, разговор неизменно касался происхождения рыцарей. _Время покажет всем рыцарям, что ещё не так давно Рыцари Целостности были обычными людьми, а мира богов не существует..._ так сказал однажды Кирито, скрепя сердце.
 
-However, the situation was gradually changing. Since the Войны с Внешним Миром and the Rebellion of Four Empires, some knights were approached by soldiers of the Human World Defense Army, and as soon as they got chance to talk about the past, the origin of the knight would become a topic. _The time will have to reveal to the all knights that not so long ago, Integrity Knights were originally human beings and the gods’ world does not exist..._ that was what Кирито declared once with a difficult face.
+_Всё так — прошлое самого Кирито скрывает много испытаний.  
+Но будь я даже не учеником, а полноценным рыцарем с правом сидеть за круглым столом, даже тогда я не стала бы бездумно оглашать, что мой оппонент — столетний искусственно синтезированный рыцарь..._ думая в таком ключе, Ронье продолжала слушать разговор за столом.
 
-_That's right — Кирито carries too many challenges at present.  
-If I were not an apprentice, but a regular knight with the right to sit by the round table, even then I wouldn’t selfishly call out that my opponent is hundred years old synthesized knight..._ while thinking so, Ronye kept listening to the meeting room.
+Выглядело всё так, что ни Фанатио, ни Дюсольберт не смогли сразу же отреагировать на опасную ремарку Кирито о том, что именно он лишил жизни Первосвященника. И первым, кто нарушил возникшую тишину тяжёлым, но неожиданно спокойным голосом, был рыцарь Нергиус.
 
-It seemed that Fanatio and Dusolbert could not react soon to Кирито’s dangerous remark about him killing the Highest Priest. It was the knight Nergius who first broke the silence with heavy, but unexpectedly calm voice.
+"...Моей целью не было вернуть дискуссию к обсуждению прошлого Премьер-Мечника-доно, и я верю, что если есть возможность поддержания постоянного мира с Тёмной Территорией, то лучше всего так и сделать."
 
-"...I do not intend to return to the discussion of Prime Swordsman-dono's past here, and I believe that if it is possible to build a permanent peace with Тёмной Территории, that is the best way to go."
+Энтокиа тоже поддержал слова своего напарника.
 
-Entokia also followed the remarks of his partner.
+"Нет возражений. Да и вообще, загляните в Индекс Табу, он не возбраняет биться с Первосвященником-сама... там такого не написано."
 
-"There is no objection there. In the first place, even if you look in the Taboo Index, it doesn’t prohibit to fight the Highest Priest-sama... because it is not written there."
+Когда он это сказал, двое старших рыцарей потрясённо вздохнули.
 
-As he said those words, the two oldest knights sighed in amazement.
+_Может там не нет напрямую такой статьи, но зато чёрным по белому записано в главе 1, статье 1, параграфе 1 Индекса Табу: запрещено неповиновение Церкви Аксиом. А побег из темницы Собора, поражение множества Рыцарей Целостности, и, наконец, бой с бывшим Главным Старейшиной и Первосвященником — это как бы очевидное неповиновение Церкви..._ подумала Ронье. Пускай она и стала учеником рыцаря и была освобождена от ограничений Индекса Табу и обязанности повиноваться Фундаментальному Закону Империи, она всё равно и подумать не могла совершить подобное самой.
 
-_There may not be such a clause indeed, but it is clearly written that in the first place, chapter 1, article 1, paragraph 1 of the Taboo Index, no one should rebel against the Axiom Church. Breaking out from a Собор dungeon and defeating a number of Integrity Knights, and finally fighting the former Chief Elder and the Highest Priests is obviously a rebellion against the church..._ thought Ronye. Even though she has become a knight trainee and was released from the Taboo Index and obligation to comply with the Imperial Fundamental Law, she still could not think that she could do the same thing herself.
+С другой стороны, Кирито и Юдзио в то время действовали совместно с другим Первосвященником, Кардинал, которая была когда-то тем же, что и Первосвященник Администратор. Кардинал излечила Фанатио, серьёзно раненную в бою против Кирито, и вроде бы как потеряла свою жизнь в бою против Первосвященника.
 
-On the other hand, Кирито and Yujio at that time were cooperating with another Highest Priest, Cardinal, who was once the same as the Highest Priest Administrator. Cardinal healed Fanatio who was seriously injured in the fight against Кирито, and they say she had lost her life in the fight against the Administrator.
+Так что эта ситуация неизменно оборачивалась проблемой юридического толкования того, чем же всё-таки является "Церковь Аксиом", описанная в Индексе Табу....... В прошлом, когда в Индексе Табу возникали коллизии, верным было бы спросить Первосвященника или Главного Старейшину, но их обоих больше не существовало. А Рыцари Целостности не обладали правом самостоятельного толкования Индекса Табу.
 
-Then, it also develops into a problem of legal interpretation of what the "Axiom Church" described in the Taboo Index specifically stands for....... In the past, when doubts appeared in the text of the Taboo Index, it would have been better to ask the Highest Priest or the Chief Elder, but the two of them did not exist anymore. And Integrity Knights were not given the right to make their own interpretation of Taboo Index.
+Иначе говоря, как Кирито сам и отметил, титул Премьер-Мечника Объединённого Совета Мира Людей, даже в самом Мире Людей — в стенах Церкви Аксиом, никогда бы не обрёл сколь-нибудь значимого веса.
 
-In other words, as Кирито himself mentioned, the title of Human World Union Council Prime Swordsman, even in Human World — and within the Axiom Church, has never gained the meaningful weight.
+"── Расследование по человеку в чёрном плаще нам придётся оставить на Шейту и Командующего Исукана."
 
-"── Investigation on black robe man we’ll only have to leave to Scheta and Commander Isukan."
+сказала Фанатио, переплетя пальцы рук.
 
-While combining the fingers of both hands on the table, Fanatio said.
+"Для нас не представляется возможным заполучить этого человека, и неважно из Гильдии Убийц Тёмной Территории ли он или из Гильдии Мастеров Тёмных Искусств. По крайней мере, если не заслать в Обсидию шпиона, я полагаю."
 
-"It is impossible for us to get that person, whether they are from the Тёмной Территории’s Assassin Guild of from the Dark Arts Masters’ Guild. By no other means there is a way than to send a spy to Obsidia, I suppose."
+"Думаю лучше оставить эту затею, боюсь что их смогут поймать и использовать против нас. Если уж и послать кого-то......."
 
-"I think that it is better to quit it, I am afraid they can be caught by the enemy and used against us. If you send someone......."
+Сидящие за столом обменялись взглядами и дружно кивнули, как-бы говоря “я и сам пойду”.
 
-It looked like all the people who arrived at the round table were to say “I would go myself”, exchanging looks and nodding at the same time.
+"...Ладно, хорошо, оставим, проехали. Так — что, ждём отчёта из Тёмной Территории по делу об убийстве Язен-сана? Получается ── пока что мы не можем отпустить удерживаемого в Соборе горного гоблина Орои..."
 
-"...Well, OK, let's quit, yeah. So — what, waiting for a report from Тёмной Территории on the case of Yazen-san's murder? Which means ── we cannot release the mountain goblin Oroi kept in the Собор for now..."
+Когда Кирито произнёс это с задумчивым лицом, заговорила Вице-Премьер-Мечник Асуна, сидящая рядом с ним. Наверное, она поняла, что он старался не сказать Нергиусу в лоб ту самую неприятную новость.
 
-As Кирито said this with a thoughtful face, Vice-Prime Swordsman Asuna sitting next to him began talking. Perhaps it was because she saw him being patiently trying not to tell the hardest thing to Nergius.
+"Я делаю что могу чтобы обеспечить максимум гостеприимности для Орои, и каждый день показывала ему Собор, так что он не жалуется на вынужденное ограничение свободы. Но в целом у него всё равно сплин<sup><a href="#Prim2">3</a></sup>... то есть это... эмм......"
 
-"I am doing my best to provide maximum hospitality to Oroi, and I have taken him to sightseeing of Собор every day, so he’s not complaining about the limited freedom state at the moment. But, he’s a little bit **homesick**... that would be... um......"
+Она взглянула на Кирито, но тот, казалось, тоже затруднялся подобрать подходящий перевод в терминах Мира Людей для священного слова, которое использовала Асуна.
 
-She glimpsed to Кирито, but he seemed not to be coming up with the proper Human World translation of the sacred word that Asuna has said.
+"…ну, как вы назовёте ситуацию, когда вы ощущаете ностальгию и скучаете по своей семье и друзьям?"
 
-"…well, how would you call a situation where you are feeling nostalgic and missing your family and friends?"
+Рыцари и главы подразделений, которым задала вопрос Асуна, начали друг с другом переглядываться.
 
-Knights and the heads of departments asked by Asuna, began turning heads to each other all together.
+"Эм...... я понимаю, о чём вы, но семей у нас нет, а наш дом — этот Собор... так что выразить подобное словами..."
 
-"Um...... I can understand that feeling, but we do not have families and our home is this Собор... when it comes to expressing in a word..."
+Ронье переглянулась с Тейзой, слушая стенания Дюсольберта. Хотя им и не приходилось путешествовать далеко от дома, но иногда они чувствовали подобное в общежитии Академии Искусства Меча так что они знали как это назвать. Тейза пихнула её локтем, и она неуверенно перегнулась через перила галереи и прокричала:
 
-Ronye and Tiese exchanged looks while listening to the groaning voice of Dusolbert. Although they didn’t take long journeys, sometimes suddenly they felt such a feeling in the dormitory of Sword Mastery Academy so they also knew how to call it. Tiese poked her, so she reluctantly leaned out from the gallery and screamed.
+"Мне кажется, это называют "тосковать по дому"!
 
-"Well, I think it is a "hometown missing illness"!
+Все в конференц-зале взглянули вверх на Ронье и начали кивать. Торопливо вернувшись обратно, Ронье заметила что маленький Берчи, удивлённый её громким голосом, начал копошиться на руках Тейзы. Однако, стоило Тейзе его немного покачать, он начал что-то бормотать и наконец, снова заснул.
 
-Everyone in the conference hall looked up at Ronye and began nodding. When she hurriedly retracted her face, little Berchie surprised by Ronye's loud voice began moving in Tiese's arms. However, when Tiese shook him a little, started mumbling something and eventually fell asleep for the second time.
+"Спасибо, Ронье-сан, значит это тоска по дому."
 
-"Thanks, Ronye-san, hometown missing illness it is."
+Махнув Ронье на галерее рукой, Асуна продолжила объяснять.
 
-After waving her hand a little towards Ronye on the gallery, Asuna kept explaining.
+"В общем, поскольку у Орои-сана начинается тоска по ому, замечу, что хотелось бы его отпустить в течение двух-трёх дней. Надеюсь, дело удастся разрешить к этому сроку..."
 
-"So, as Oroi-san is falling under that hometown missing illness, I will say I would want to get him out of here in two-three days. I hope the case will be resolved by then..."
+"За три дня, сложновато будет, вам не кажется? Неважно как мы будем спешить, понадобится две недели чтобы получить ответ и Обсидии."
 
-"Within three days, it will be difficult, don’t you think? It will take two weeks one way, no matter how rushed, to get response from Obsidia."
+Кирито добавил к словам Фанатио:
 
-The words of Fanatio were supplemented by Кирито.
+"Кроме того, из-за расследования количество дней можно приплюсо...... количество только увеличится. Нам не только нужно ждать отчёта Шейты, но и посмотреть, можно ли что-то узнать здесь..."
 
-"Also, due to the investigation the number of days is **increm**...... will be added<sup><a href="#Prim2">2</a></sup>. Not only must we wait for Scheta's report, but we should check what can be investigated here..."
+"Даже если и так, кинжал, которым был убит старик Язен, исчез, верно? Свидетелей происшествия нет, мотива к убийству жертвы нет, можно сказать, мы в тупике."
 
-"Even you say so, the dagger that killed old Yazen has disappeared, right? There are no witnesses of the incident, there is no motive for victim to be killed, so it indeed stalled like this."
+Энтокиа произнёс это легким тоном, но значение его слов своей мрачной тяжестью снова погрузило зал в тишину.
 
-Entokia's tone was light, but the meaning of his phrase had grim weight, everyone has been silent again.
+Человек, что через несколько секунд поднял руку, подобно Асуне хранил молчание вплоть до этого момента.
 
-A few seconds later, the one who raised her hand, was a person keeping silent until now, just like Asuna.
+Эта женщина была облачена в удобный белый плащ; её коричневые волосы — заплетены в одну тугую косу. Её имя было Аюха Фуриа, и эта девушка уже в столь юном возрасте была выбрана главой подразделения Священных Искусств Церкви Аксиом.
 
-A woman was wearing a neat white robe; her brown hair had been made into a single tight braid. Her name was Ayuha Furia, a girl who at such a young age has already been selected as the head of the Axiom Church Sacred Art department.
+Подразделение Священных Искусств, ранее известное как Орден Монахов, занималось управлением церковной организацией по всему Миру Людей. В центре всех городов и деревень обязательно было по одному их отделению, в которых находились практики Священных Искусств, называемых словами священного языка "бразэ" или "систэ", голоса которых имели вес равный или больше, чем у местных мэров и сельских старост, а Священники более высоких рангов использовали свою Священную Силу чтобы управлять подчинёнными.
 
-The Sacred Art department, formerly known as the Monks Order, supervised the Church organization of the entire Human World. There always were its branch offices in the center of all the cities and villages, with Sacred Arts practitioners called "**Brother**" or "**Sister**" in the sacred language, which had voices greater than or equal to those of village heads and town mayors in the area, and higher ranked priests used their sacred power to supervise lower ones.
+В особенности, четверо старших священников, координировавших управление монахами, при определённых обстоятельствах имели власть уровня старшей аристократии или даже выше. Когда глава рыцарей Беркули обратился к ним за помощью в оборонительной битве при Великих Восточных Вратах, все четверо отказались. Большинство из приблизительно 300 монахов, присоединившихся к Армии Защиты Мира Людей, были мастерами Искусств среднего или нижнего класса, и из них только около сотни мастеров были в ладах с атакующими заклинаниями, а практически все монахи священнического класса приложили все свои усилия чтобы не покидать Собор.
 
-In particular, when the four senior priests who supervised the monks, which in certain circumstances were said to exercise the power of senior nobility or even higher, were asked by knight chief Bercouli to go participate in the defense battle by the Great Eastern Gate, all four of them declined. Most of the approximately 300 monks who participated in the Human World Defense Army were low- or middle-grade Arts Masters, with only one hundred higher level Arts Masters who were good at attacking techniques, and it seemed that almost all of the priest-class monks tried as much as they can to not to leave the Собор.
+Сразу же после окончания Войны с Внешним Миром и создания Объединённого Совета Мира Людей, было обнаружено, что четверо старших священников сумели накопить в своих личных покоях значительные богатства, и они были изгнаны из Центрального Собора. Вся система монахов также была реорганизована в подразделение Священных Искусств, и Аюха Фуриа, аристократ 5-го класса, была выбрана в качестве его первого главы.
 
-Immediately after the Войны с Внешним Миром was over and the Human World Union Council was established, it was discovered that all four senior priests had accumulated a vast property in private rooms, and they were expelled from Центральный Собор. The monk system itself was also reorganized into a Sacred Art Division and Ayuha Furia, 5th class aristocrat was chosen as its first president.
+Аюха не только присоединилась к битве при Великих Восточных Вратах, но и а отряду Армии Защиты Мира Людей, и сражалась до последнего как глава клериков. Ронье, бывшая в том же отряде, помнила её образ, беспрестанно произносящей лечебные заклинания, в то время как её белый плащ потихоньку становился красным, окрашиваясь кровью раненых. Хоть её навыки и не достигали уровня старших Рыцарей Целостности, её знание Искусства и использования сопутствующих материалов было выдающимся и она как никто другой вокруг совмещала в себе серьёзность и дружелюбие.
 
-Ayuha joined not only the battle by the Great Eastern Gate but also Human World Defense Force division troops and fought to the last as a leader of the clerics. Ronye, who was in the same unit, remembered her appearance keeping chanting healing techniques as her white robe gradually becoming dyed red with the blood of the injured. Even though her skill did not reach the senior Integrity Knights level, her knowledge of the Art and the medium usage was outstanding and she was more serious and friendly than anyone around.
+*Если учиться Священному Искусству, то уж лучше у Аюхи*...... так Ронье думала, но, к сожалению, ей достался другой учитель, преподаватель Священного Искусства Сонес Фуриа, также выполнявшая роль библиотекаря в новосозданной Большой Библиотеке, бывшая младшей сестрой Аюхи и значительно более строгим человеком. Вице-Премьер-Мечник также слушала лекции Сонес, и пусть она не дрожала как многие другие, Асуна иногда также ворчала по этому поводу.
 
-If Ronye learns Sacred Art, it is better from Ayuha...... she have always thought, but unfortunately, the second teacher was Ayuha's younger sister, Sacred Art teacher Sones Furia who was also the librarian of the newly created large library, and was truly strict person. Vice-Prime Swordsman also received lectures by Sones, and even though she didn’t shake like the majority of others, Asuna sometimes grumbled regarding the matter.
+Сонес тоже обладала правом участия в этом совещании, но она не покидала большую библиотеку если на то не было хорошей причины. *Не знаю, что может случиться, если я как можно скорее не разберусь в искусстве, которое библиотекари предыдущих поколений применяли в этой комнате...* обычно говорила она, но к тому моменту понимания ещё не было достигнуто.
 
-Sones was also eligible to participate in this conference, but she did not come out of the big library unless there was a good reason. *I do not know what will happen unless I realize the technique that the librarian of the previous generation incorporated into the room as soon as possible......* she used to say, but at that moment the understanding was not yet achieved.
+Фанатио поприветствовала поднявшую руку Аюху, и та спокойным голосом сказала.
 
-Fanatio welcomed Ayuha who was raising her hand, and she said in a calm voice.
+"По этому поводу подразделение Священных Искусств может быть полезным."
 
-"For that matter, the Sacred Art Department may be able to cooperate a bit."
+"О... что вы имеете в виду?"
 
-"Oh... what do you mean?"
+"Уже какое-то время я провожу анализ техники, которая была использована для "Совета Автоматических Старейшин", созданного чтобы обнаруживать нарушителей Индекса Табу...... Судя по всему, эти милостивые старцы могли не только быстро обнаруживать нарушителей Индекса Табу, но и до какого-то предела видеть прошлое."
 
-"For some time, I have been conducting the analysis of the technique that was used by the "Automated Elders Council" that was created to detect Taboo Index violators...... Apparently, that merciful old men seemed to be able to not only quickly find those who violated the Taboo Index but also to go back to the past to some extent."
+"Прошлое……?"
 
-"To the past……?"
+Не только пробормотавшая это Фанатио, остальные рыцари и главы подразделений тоже выглядели удивлёнными.
 
-It wasn’t only Fanatio who muttered that, other knights and departments heads also looked surprised.
+Тем временем, Кирито с шумом наклонился вперёд и быстро спросил:
 
-Meanwhile, Кирито leaned ahead making rattling noise and asked quickly.
+"По…погодите минутку...... Получается что серверные логи... что вы можете отобразить события, случившиеся в прошлом, как отражение? Не может... нет, разве это невозможно? ...Даже если система задетектит нарушения Индекса Табу и откроет окно в этой точке, само нарушение уже закончилось. Если бы они не могли видеть прошлое, как бы они узнали что было в действительности сделано? ── На сколько дней операция позволяет заглянуть в прошлое?"
 
-"Wa…wait a minute...... That means that the server's log... that you can reproduce the events that happened in the past, like reflection? No way... No, but is it impossible? ...Even if the system detects a Taboo Index violation and opens the window at that point, the violation itself is already complete. If they couldn’t see the past, could they actually check what was done? ── How many days will the operation be traced back to the past?"
+"В нынешней ситуации сложно заглянуть даже на один день назад, Премьер-Мечник-сама. Я попыталась воспроизвести искусство операции, но нагрузка была слишком велика, пределом оказалось видеть прошлое не далее чем 30 минут. Хотелось бы, конечно, использовать эту технику сразу же как только произошёл инцидент, но документацию обнаружили только вчера..."
 
-"In the present situation it is difficult to go back even for one day, Prime Swordsman-sama. I tried the operation incantation, but the load was too big, the limit was to go back 30 minutes. I wish I could use the technique of viewing the past just after the incident occurred, but it was yesterday that the documentation was discovered..."
+Когда Аюха ответила несчастным голосом, Кирито сложил свои руки на груди со сложным выражением на лице.
 
-When Ayuha replied with a miserable tone, Кирито folded his arms with a complicated expression.
+Вместо него заговорила Вице-Премьер-Мечник, выглядевшая заинтересованной.
 
-Vice-Prime Swordsman began talking instead of him, looking somewhat interested.
+"Аюха-сан, вы ранее упомянули что "нагрузка от операции была слишком велика", но на что именно это похоже?"
 
-"Ayuha-san, you mentioned earlier that "the load of the operation is too big", but what exactly is it like?"
+"Видите ли, словами это сложно объяснить...... Какбудто огромный поток света и звука вплывает в голову, становится сложным концентрироваться на целевой сцене в этой суматохе. К тому же, те кто использовал технику отражения прошлого, были истощены до предела...... Я думаю, её можно пересобрать в более эффективное искусство но на это потребуется время."
 
-"See, it is difficult to explain precisely with words...... It is a feeling that a rich amount of sound and light flows in your head, it becomes difficult to keep concentrating on only the target scene from among everything else. In addition, once one uses past reflection technique they get exhausted to the limit...... I think it is possible to reassemble it into a more efficient art, but it will take some time."
+"Понятно... Спасибо, Аюха-сан."
 
-"I see... Thank you, Ayuha-san"
+Когда Асуна её поблагодарила, глава подразделения Священного Искусства смущённо кивнула.
 
-When Asuna thanked her, the head of the Sacred Art department nodded with an embarrassed expression.
+В отличие от Рыцарей Целостности, Жизнь преподавателя Священных Искусств не была заморожена. Поэтому Аюха выглядела точно на свой возраст — навскидку ей было около 22 или 23 лет, но в тех редких случаях, когда такое выражение появлялось, она начинала выглядеть моложе своей младшей сестры библиотекаря Сонес.
 
-Unlike Integrity Knights, Sacred Art teacher did not have her life frozen. Therefore, Ayuha looked exactly like her age suggested — presumably, she was probably about 22 or 23 years old, but in rare cases when such expression appeared, she began to appear younger than her sister librarian Sones.
+*Или может это из-за слишком уж строгого выражения лица Сонес......* подумала Ронье, но в этот момент снова раздался голос Премьер-Мечника.
 
-*Or it might be because Sones’ expression is too rigid......* thought Ronye, but at that moment Prime Swordsman's voice was heard again.
+"── Директор Фуриа, я бы хотел, чтобы вы продолжили анализ искусства отражения прошлого, и я прошу вас постараться расширить его насколько возможно. Что же до кэринга об Орои, я собираюсь связаться с его компаньонами, оставшимися в таверне в Южной Центории, и пригласить их в Собор. Я проконсультируюсь с шеф-поваром, чтобы еда как можно более соответствовала вкусам их родины."
 
-"── Director Furia, I would like to continue the analysis of the past reflection art, and I will also ask you to extend it within reasonable bounds. As for **care** of Oroi, I would like to communicate with his companions who are staying in a south Centoria inn, by inviting them to the Собор. I will consult with the chef, so that meals can be brought close to the taste of their homeland as much as possible."
+Присутствующие на совещании, равно как и Ронье с Тейзой, всё больше и больше привыкали к незнакомым священным словам, которые часто примешивались в речь Кирито и Асуны. "Кэринг" включал в себя беспокойство о других, в том смысле чтобы присматривать за ними или удовлетворять их потребности; определённы было быстрее объяснить всё это с помощью только двух слогов.
 
-The attendees at the conference as well as Ronye and Tiese were gradually becoming more comfortable with the unfamiliar sacred words that sometimes mix with the speech of Кирито and Asuna. "**Care**" was something about being concerned of someone else, in the sense of looking after and providing for the needs of; it was certainly quicker to be able to express it with only two letters.
+"Такую задачу вы вполне могли и нам делегировать......."
 
-"Such a task, can be delegated to us......."
+Сорокалетний мужчина в квадратных очках, служащий директором подразделения Материального Обеспечения Собора, поднялся, но Кирито быстро помахал головой.
 
-A 40-year-old man with square eyeglasses serving as the Director of the Собор Materials Management Department sprang up, but Кирито quickly shook his head.
+"Нет, это просто потому что я вместе с ними много раз делил трапезу в полевых условиях...... Займёт какое-то время чтобы понять их вкусы с ноля."
 
-"No, it is because I had meals with them in the field on numerous occasions...... It will take time to learn the same from scratch."
+У директора, вероятно, ни разу не покидавшего Мир Людей, не осталось выбора, кроме как отозвать своё предложение.
 
-The director who probably have never left Human World had no choice but to withdraw his suggestion.
+Рацион горных гоблинов включал мало высушенной пшеницы, едва пробивавшейся у подножья гор, и в основном состоял из древесных орехов и диких трав, собираемых в пустоши; юркий иванезуми или ёроймас, которого можно было выловить в горных речках, уже считались за праздник<sup><a href="#Prim3">3</a></sup>. В Центории должно было быть весьма непросто воспроизвести подобное блюдо, но не оставалось иного выбора, кроме как положиться на мастерство шеф-повара.
 
-Mountain Goblin ration had little dry wheat which was barely growing at the foot of the mountains, and mainly consisted of tree nuts and wild grasses collected in the wilderness; sneaky iwanezumi or yoroimas that can be fished at Tanigawa are already considered the feast<sup><a href="#Prim3">3</a></sup>. It must be difficult to reproduce such a dish in Centoria, but there was no choice but to believe in the chef's mastery.
+С последними словами Кирито тема казалась завершённой, и Аюха снова подняла руку.
 
-With the last words of Кирито, the topic seemed to be concluded, and Ayuha raised again.
+"Далее, позвольте отчитаться о восстановлении персонала подразделения Священных Искусств."
 
-"Next, let me report about the replenishment of the Sacred Art division's staff."
+"А, так вы наконец закончили с собеседованиями, это была та ещё задачка...... пожалуйста продолжайте."
 
-"So, you have finally finished the selection, took quite some effort...... please go ahead."
+Когда Фанатио её подбодрила, директор поклонилась и взяла пачку белой конопляной бумаги.
 
-When Fanatio encouraged her, the head of the division bowed and took a bunch of white hemp paper.
+"── На данный момент в подразделении Священных Искусств всего 352 человека, включая учеников, и нам всё ещё недостаёт людей по сравнению с 500, бывшими в подразделении до Войны с Внешним Миром. Для того чтобы реализовать ранний этап продолжающегося "плана по увеличению количества клериков", нам срочно нужно увеличить количество людей. Для начала, в феврале мы приняли на службу тридцать учеников клериков..."
 
-"── Currently, the Sacred Art Division is the total of 352 people including apprentices, is still short of staff if we compare to 500 people before the Войны с Внешним Миром. In order to realize an early stage of ongoing "clerical expansion plan", we need to urgently to raise the number people. For now, we have recruited thirty apprentice clerics in February..."
+"Одну минуту."
 
-"Wait a minute."
+Прервавшим её оказался Энтокиа, жующий пирожное с чаем, поставленные на столе. Ронье и Тейза знали что вкусняшки для этого дня были экзотическим угощением под названием "макарон"<sup><a href="#Prim4">4</a></sup> поскольку они помогали Вице-Премьеру Асуне, сделавшей их в кухне своими руками, и похоже, что Энтокии они пришлись по душе.
 
-The one who interrupted was Entokia who was eating cake with a cup of tea from the table. Ronye and Tiese knew that that day's sweets were exotic treats called "macaron"<sup><a href="#Prim4">4</a></sup> because they helped Vice-Prime Asuna who made them in the kitchen with her own hands, and Entokia seems to like it very much.
+Короткостриженый рыцарь положил надкусанный бледно-розовый макарон, выпеченный с соком хаямомо<sup><a href="#Prim5">5</a></sup> и затем продолжил:
 
-The short-haired knight put the halfway bitten pale-pink macaroon baked with the juice of hayamomo<sup><a href="#Prim5">5</a></sup> and then continued.
+"Никаких возражений по поводу увеличения числа учеников, но разве не уйдут годы на то чтобы они "оперились"? Так что, может, стоит подумать над возвращением тех, что покинули Собор? А то они скоро растеряют былой пыл."
 
-"There are no complaints about increasing the number of apprentices, but will it not take years to get them into a fledged state? Then, perhaps you can consider recalling those who left Собор? Those guys will soon have their head cooled down."
+Предложение Энтокиа заставило не только людей за столом, но даже Ронье и Тейзу переглянуться.
 
-Entokia's proposal caused not only people around the table to gaze around, but also Ronye and Tiese exchanged looks.
+Сразу же как только прогнали четырёх старших священников, Собор оставила примерно сотня клериков, последовавших за ними. Большинство из них были те, кто отказывался принимать участие в Армии Защиты Мира Людей, так что Ронье про себя тайком подумала "это к лучшему", однако, не взирая на их личностные качества, не было сомнений, что это были профессионалы высочайшего уровня в Мире Людей. Если сто человек вернутся, недостаток персонала подразделения Священных Искусств будет покрыт мгновенно.
 
-Certainly, after four senior priests were expelled, nearly one hundred clerics have left Собор following them. Most of those were ones who refused to participate in the Human World Defense Army, so Ronye secretly thought "It’s for the best" in her mind, but regardless of their personality, they were no doubt the finest professionals of Human World. If one hundred people would come back, the shortage of personnel of Sacred Art Division would be eliminated at once.
+"Умм…."
 
-"Umm…."
+Выдав долгое мычание, Кирито повернул голову к человеку, сидящему в углу круглого стола. Конечно, поскольку стол был идеально круглый, никаких углов и граней у него не было, но вот только то место, где сидел этот человек всегда было каким-то блёклым, и казалось, что как ни посмотри — а это самый что ни на есть угол.
 
-After producing this long groaning, Кирито turned his face to the person sitting in the corner of the round table. No, since the round table is perfectly circular, there should be no corners and edges, but only the place where that person sat was always dull and it felt like it is by all means a corner.
+"Сяо-сан, нам известно, чем занимаются те практики Священных Искусств, что оставили Собор?"
 
-"Xiao-san, do we know what do those Arts masters who left the Axiom Church do afterwards?"
+Премьер-Мечник спросил о мнении маленькую женщину в простой серо-коричневой одежде. Её звали Сяо Шукас, директор подразделения Информации Собора.
 
-It was a small woman in simple brown and gray clothes whom Prime Swordsman asked for an opinion. Her name was Xiao Shukas, Director of the Собор Information Department.
+Подразделение Информации было было, созданное недавно, после провозглашения Объединённого Совета Мира Людей, и его основной задачей был сбор информации, которой когда-то владели старейшины. Однако, хоть в его составе было всё ещё немного людей, Ронье никак не могла понять что за человек была директор Сяо.
 
-The Information Department was a bureau newly established after the proclamation of the Human World Union Council, and its main role was to gather information that the Elders Council used to hold once. However, even though there were still few people, Ronye couldn’t still grasp exactly what kind of person director Xiao was.
+Сяо, чьи тёмно-коричневые волосы были обстрижены до пределов, которые могла позволить себе женщина, произносила слова словно шепча, но...... звук её странного голоса легко достиг стоящей на галерее Ронье.
 
-Xiao whose dark brown hair was cut short to the limit women could afford seemed to whisper, but...... a sound of the strange voice she answered in reached Ronye standing on the gallery.
+"Хотя мне не удалось отследить всех клериков, большинство из них устроились на работу в отделения церкви по всему Миру Людей. В других случаях они становились преподавателями в больших городских школах; в редких случаях, те, кто нашёл богатого мецената, нашли возможность открыть собственную молельню... приемлемой."
 
-"Although I could not trace all the clerics, most of them asked for work in various Church branches throughout Human World. Another case would be to become a teacher in a big city school; as a rare example, if one finds a wealthy supporter, the option to open their own prayer room becomes... feasible."
+Её слабая интонация не лучилась рыцарской мощью, но судя по всему, девочки-рыцари Линель и Физель летали повсюду с разведывательными миссиями, следуя указаниям Сяо. Ронье понятия не имела, как дела могли дойти до подобной управленческой структуры.
 
-Her weak intonation did not radiate the power of the knights, but girl knights Linel and Fizel seemed to fly around with instructions given by Xiao. Ronye has no idea how it could have possibly come to such a command structure.
+"Хмм...... складывается ощущение на удивление законного и подобающего способа повторного трудоустройства......."
 
-"Hmm...... it gives an impression of surprisingly legitimate and appropriate way of reemployment......."
+Сяо слегка кивнула на слова Кирито.
 
-Xiao slightly nodded to Кирито’s words.
+"Но мы охватили только около 70% клериков, оставивших Собор; в тоже самое время, определение того, где находятся оставшиеся 30% и чем они занимаются, используя нынешние методы разведки выглядит... невозможным."
 
-"But we could grasp just about 70% of the clerics who left Собор; at the same time to discover where the remaining 30% are now and what they are doing using the current investigation procedures appears... impossible."
+"Окей...... спасибо, я также подумаю над расширением информационного подразделения. Касательно идеи Энтокиа-сана, мне кажется, сейчас ещё слишком рано подходить к ним с этим. Они могут неправильно воспринять... но в свете "плана по увеличению количества клериков" мы должны учитывать сотрудничество с теми мастерами искусств, которые работают в отделениях Церкви или в школах. ── Директор Фуриа, мы прервали вас, прошу прощения. Пожалуйста продолжайте. "
 
-"Okay...... Thank you, I will consider the increase of information agencies as well. Regarding Entokia-san's **idea**, I think it is too early to approach them right now. It would still be perceived wrong... but, in line with the "clerical expansion plan" we may consider cooperation with those arts masters who are working at church branches or at schools. ── Director Furia, I am sorry we had to interrupt you. Please continue. "
+"Тогда значит..."
 
-"Well then ..."
+Спешно запив глотком чая макарон, который она начала жевать, пока Сяо говорила, Аюха снова опустила взгляд.
 
-Hurriedly finishing a macaron which she began to chew while Xiao was speaking with a gulp of tea, Ayuha dropped her eyes again.
+"Э... у нас есть 30 учеников, планирующих войти в Башню до конца месяца, включая 29 человек из города Центория и 1 извне. Вот список......"
 
-"Er, there are 30 apprentices who are planning to enter the Tower by the end of this month, including 29 people from Centoria city and 1 from outside. Here’s the list......"
+Слегка прокашлявшись, Аюха начала красивым бархатным голосом перечислять имена молодых людей, которым вскоре позволят пройти сквозь врата Собора.
 
-After lightly coughing, Ayuha began enumerating the names of young people newly allowed through the gates of Собор with glossy beautiful voice.
+В дни, когда правила Первосвященник, для тех, кто хотел стать резидентом Меловой Башни, независимо от того, происходили они из аристократии или из обычного люда, не было иного выбора, кроме как победить в Объединённом Турнире Четырёх Империй по Боевым Искусствам. И даже эта полностью заслуженная честь стиралась безвозвратно "ритуалом Синтеза".
 
-In the days when the Highest Priest ruled, for those who wanted to become a Chalk Tower resident, regardless of whether they were aristocrats or the general people, there was no other choice but to win the Four Empires Unified Martial Arts Contest. And even that well-deserved honor was erased by the "Synthesis ritual".
+Тогда, откуда взялись все монахи и священники кроме рыцарей? Большинство из них были рождены и выращены в Церкви. Вот только обычно, когда взрослые любят друг друга, их благословляют ребёнком...... но Первосвященник Администратор выискивала выдающиеся таланты и личностные качества монахов и приказывала мужчинам и женщинам, обладавшим ими, заводить детей.
 
-Then, where the monks, nuns and priests other than the knights came from? The majority were those born and raised in the Church. Except for, when parents love each other, they are blessed with a baby...... but the Highest Priest Administrator screened outstanding talents and personalities of the monks and ordered the men and women who held them to have kids.
+Иначе говоря, большинство монахов было рождались и вырастали в Соборе, и Ронье чувствовала странное восхищение по отношению к тем, что выбрали уйти и работать вне стен Башни, но в отличие от Рыцарей Целостности, у монахов было много возможностей познакомиться с жизнью обычного населения поскольку они выходили в город чтобы посетить отделения и сделать закупки.
 
-In other words, most of the monks were born and grew up in Собор, and Ronye had a strange admiration of those who chose to work outside the tower, but unlike Integrity Knight, monks have long had opportunities to learn about the life of the general population by going out to the town to visit branches and buy supplies.
+Однако, после смерти Первосвященника, никаких приказов по рождению детей больше не поступало, так что даже если все дети возрастом до 12 лет, что сейчас растились в Соборе стали бы учениками клериков, количество персонала подразделения Священных Искусств не продолжило бы увеличиваться. Более того, не было никакой гарантии, что дети, получившие полную свободу выбора, согласились бы продолжить такое обучение.
 
-But after the death of the Highest Priest, of course, no child was ordered to be born, so even if all the children up to the age of 12 who are currently raised in the Собор become cleric apprentices, the number of Sacred Arts Division personnel will not continue to increase. Moreover, it is not certain whether the children given the unlimited freedom of choice will decide to go that way.
+Поэтому было важным восстановить число мастеров Священных Искусств, в том числе приглашая тех, что оставили Собор, особенно из-за их выдающихся талантов, взращённых в эпоху Администратор — пусть это и было вынужденное развитие ─ и похоже, Аюха Фуриа, став главой подразделения Священных Искусств, рассматривала и такой вариант течения событий.
 
-Therefore, it is essential to replenish the number of Sacred Art Masters, inviting those who left the Tower, especially due to their outstanding talent grown during the Administrator era — even if it has been a forced development ─ and it seemed that Ayuha Furia who became the head of the Sacred Art Division considered that kind of circumstances as well.
+Думая таким образом, Ронье краем уха слушала зачитываемые имена.
 
-While thinking so, Ronye vaguely continued to listen to the names read aloud.
+"...... итого, шестеро из западной Центории. Далее пятеро принятых из Северной Центории. Из епископата Северной Центории, бразэ-ученик, Ихар Далик, 13 лет отроду... также бразэ-ученик, Максиом Тулзер, 14 лет отроду...... систэ-ученик, Ленон Шимки, 13 лет отроду, систэ-ученик......."
 
-"...... in total, six people from Western Centoria. Next are five people who are accepted from Northern Centoria. Of the Northern Centoria episcopate, **brother** apprentice, Ihar Dhalik, 13 years old... also **brother** apprentice, Maxiom Toulzer, 14 years old...... **sister** apprentice, Lenon Shimki, 13 years old, **sister** apprentice......."
+"В итоге, большинство из них всё равно дети Церкви."
 
-"After all they are mostly children of the Church."
+На шёпот Тейзы Ронье ответила "Это так". Однако, в тот момент, когда она услышала зачитанное имя пятого человека из Северной Центории, она забыла, что она собиралась сказать дальше.
 
-To Tiese's whispers, Ronye answered "That's true". However, the moment she heard the read-out name of the fifth person from North Centoria, she forgot what she was going to say.
+"....... и элитный мечник-стажёр в Академии Искусства Меча Северной Центории, Френика Чески, 17 лет отроду."
 
-"....... and Elite Swordsman-in-Training of Northern Centoria Sword Mastery Academy, Frenica Szeski, 17 years old."
+"Э...... Эээээээ ────────!?" x2
 
-"E...... Eeeeee ────────!?"x2
+Стоило этим двоим завопить, как малыш Берчи на руках у Тейзы открыл глаза. Большие слезинки собрались в уголках его синих глаз и подобно воде, прорывающейся сквозь дамбу, ребёнок разразился отчаянным плачем.
 
-As soon as the two of them shouted aloud, little Berchie in Tiese's arms opened both eyes. Large tear-drops accumulated in the corners of blue eyes and as if water has broken through a dam, the boy erupted with an outrageous cry.
-
-Although they immediately lowered their head to hide from the conference hall and subsequently nursed Berchie, they could not stop exchanging happy looks over and over again.
+И хоть они немедленно склонили головы дабы скрыться из поля видимости конференц-зала, а затем и Берчи укачали, они никак не могли прекратить счастливо переглядываться.
 
 ![Image](/Translate/Img/p053.jpg)
 
-Both of them had a wide smile on their faces. _I'd like to talk to Tiese now, but I have to endure it until the meeting ends._
+На лицах обеих сияла широкая улыбка. _Так хочется сейчас поговорить с Тейзой, но надо потерпеть, когда закончится совещание._
 
-The head of the Sacred Arts Department Ayuha, who was interrupted by the screams of those two, gently coughed and resumed reading.
+Глава подразделения Священных Искусств Аюха, которую прервали возгласы этих двоих, мягко кашлянула и продолжила читать.
 
-"Er, in total, 5 people from Northern Centoria. And finally, one from outside of the city...... from Norlangarth Northern Empire Northern Marginal Area, **sister** apprentice from Rulid village branch, Selka Zuberg, 15 years old."
+"Эм, итого, 5 человек из Северной Центории. И наконец, один извне города...... из Северной Граничной Области Северной Империи Норлангарт, систэ-ученик из отделения в деревне Рулид, Селка Шуберг, 15 лет отроду."
 
-"E...... Eeeeee ────────!?"
+"Э...... Эээээээ ────────!?"
 
-It was not Ronye or Tiese who screamed.
+На этот раз возглас пришёл не от Ронье или Тейзы.
 
-It was someone who was sitting at the round table and until that moment listening to a report with a face bearing a trace of drowsiness, someone entitled Prime Swordsman.
+Это был некто, сидящий за круглым столом и вплоть до этого момента сонно слушавший чтение отчёта, некто, обладающий титулом Премьер-Мечника.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>Как можно догадаться, "неги" (ねぎ) означает "лук-порей".
-2. <a name="Prim2"></a>Original uses word “plus” (プラス).
-3. <a name="Prim3"></a>_Iwanezumi_: ”rock rat” or “ivy rat”, likely comes from ラオスイワネズミ, google “Laotian Rock Rats”; _Yoroimas_ – several translators seem to be confused with it, a Chinese colleague [suggests](https://tieba.baidu.com/p/5050282361?pn=3) that it is a sort of a carp.
-4. <a name="Prim4"></a>French quite hard-to-make cake, do not confuse with a sort of pasta (macaroni) or an easy-to-make coconut cake (macaroon).
-5. <a name="Prim5"></a>Some sort of peach – remember _yukimomo_ cake from previous volume? 
+2. <a name="Prim2"></a>В оригинале “homesick” (ホームシック). К сожалению, в русском языке слишком много родных слов для "тоске по дому", так что это лучшее что я смог придумать.
+3. <a name="Prim3"></a>_Иванезуми_: ”скальная крыса” или “ивовая крыса”, скорее всего происходит от ラオスイワネズミ, загуглите “Laotian Rock Rats”; _ёроймас_ – несколько переводчиков не уверены что это такое, коллега из Китая [предполагает](https://tieba.baidu.com/p/5050282361?pn=3), что это какая-то разновидность карпа.
+4. <a name="Prim4"></a>Французское пирожное, весьма непростое в приготовлении, не путать с разновидностью пасты (макарони/макароны) и с простым в приготовлении кокосовым пирожным (макарун).
+5. <a name="Prim5"></a>Какая-то разновидность персика – помните торт _юкимомо_ из предыдущего тома? 

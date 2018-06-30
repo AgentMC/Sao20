@@ -351,7 +351,7 @@ The Sacred Art department, formerly known as the Monks Order, supervised the Chu
 
 In particular, when the four senior priests who supervised the monks, which in certain circumstances were said to exercise the power of senior nobility or even higher, were asked by knight chief Bercouli to go participate in the defense battle by the Great Eastern Gate, all four of them declined. Most of the approximately 300 monks who participated in the Human World Defense Army were low- or middle-grade Arts Masters, with only one hundred higher level Arts Masters who were good at attacking techniques, and it seemed that almost all of the priest-class monks tried as much as they can to not to leave the Cathedral.
 
-Immediately after the Foreign World War was over and the Human World Union Council was established, it was discovered that all four senior priests had accumulated a vast property in private rooms, and they were expelled from Central Cathedral. The monk system itself was also reorganized into a Sacred Art Division and Ayuha Furia, 5th class aristocrat was chosen as its first president.
+Immediately after the Foreign World War was over and the Human World Union Council was established, it was discovered that all four senior priests had accumulated a vast property in private rooms, and they were expelled from Central Cathedral. The monk system itself was also reorganized into a Sacred Art Division and Ayuha Furia, 5th class aristocrat was chosen as its first director.
 
 Ayuha joined not only the battle by the Great Eastern Gate but also Human World Defense Force division troops and fought to the last as a leader of the clerics. Ronye, who was in the same unit, remembered her appearance keeping chanting healing techniques as her white robe gradually becoming dyed red with the blood of the injured. Even though her skill did not reach the senior Integrity Knights level, her knowledge of the Art and the medium usage was outstanding and she was more serious and friendly than anyone around.
 
@@ -393,9 +393,9 @@ Unlike Integrity Knights, Sacred Art teacher did not have her life frozen. There
 
 *Or it might be because Sones’ expression is too rigid......* thought Ronye, but at that moment Prime Swordsman's voice was heard again.
 
-"── Director Furia, I would like to continue the analysis of the past reflection art, and I will also ask you to extend it within reasonable bounds. As for **care** of Oroi, I would like to communicate with his companions who are staying in a south Centoria inn, by inviting them to the Cathedral. I will consult with the chef, so that meals can be brought close to the taste of their homeland as much as possible."
+"── Director Furia, I would like you to continue the analysis of the past reflection art, and I will also ask you to extend it within reasonable bounds. As for **care** of Oroi, I would like to communicate with his companions who are staying in a south Centoria inn, by inviting them to the Cathedral. I will consult with the chef, so that meals can be brought close to the taste of their homeland as much as possible."
 
-The attendees at the conference as well as Ronye and Tiese were gradually becoming more comfortable with the unfamiliar sacred words that sometimes mix with the speech of Kirito and Asuna. "**Care**" was something about being concerned of someone else, in the sense of looking after and providing for the needs of; it was certainly quicker to be able to express it with only two letters.
+The attendees at the conference as well as Ronye and Tiese were gradually becoming more comfortable with the unfamiliar sacred words that sometimes mix with the speech of Kirito and Asuna. "**Care**" was something about being concerned of someone else, in the sense of looking after and providing for the needs of; it was certainly quicker to be able to express it with only two syllables.
 
 "Such a task, can be delegated to us......."
 
@@ -405,9 +405,9 @@ A 40-year-old man with square eyeglasses serving as the Director of the Cathedra
 
 The director who probably have never left Human World had no choice but to withdraw his suggestion.
 
-Mountain Goblin ration had little dry wheat which was barely growing at the foot of the mountains, and mainly consisted of tree nuts and wild grasses collected in the wilderness; sneaky iwanezumi or yoroimas that can be fished at Tanigawa are already considered the feast<sup><a href="#Prim3">3</a></sup>. It must be difficult to reproduce such a dish in Centoria, but there was no choice but to believe in the chef's mastery.
+Mountain Goblin ration had little dry wheat which was barely growing at the foot of the mountains, and mainly consisted of tree nuts and wild grasses collected in the wilderness; sneaky iwanezumi or yoroimas that can be fished at mountain streams are already considered the feast<sup><a href="#Prim3">3</a></sup>. It must be difficult to reproduce such a dish in Centoria, but there was no choice but to believe in the chef's mastery.
 
-With the last words of Kirito, the topic seemed to be concluded, and Ayuha raised again.
+With the last words of Kirito, the topic seemed to be concluded, and Ayuha raised her hand again.
 
 "Next, let me report about the replenishment of the Sacred Art division's staff."
 
@@ -421,7 +421,7 @@ When Fanatio encouraged her, the head of the division bowed and took a bunch of 
 
 The one who interrupted was Entokia who was eating cake with a cup of tea from the table. Ronye and Tiese knew that that day's sweets were exotic treats called "macaron"<sup><a href="#Prim4">4</a></sup> because they helped Vice-Prime Asuna who made them in the kitchen with her own hands, and Entokia seems to like it very much.
 
-The short-haired knight put the halfway bitten pale-pink macaroon baked with the juice of hayamomo<sup><a href="#Prim5">5</a></sup> and then continued.
+The short-haired knight put the halfway bitten pale-pink macaron baked with the juice of hayamomo<sup><a href="#Prim5">5</a></sup> and then continued.
 
 "There are no complaints about increasing the number of apprentices, but will it not take years to get them into a fledged state? Then, perhaps you can consider recalling those who left Cathedral? Those guys will soon have their head cooled down."
 
@@ -451,7 +451,7 @@ Xiao slightly nodded to Kirito’s words.
 
 "But we could grasp just about 70% of the clerics who left Cathedral; at the same time to discover where the remaining 30% are now and what they are doing using the current investigation procedures appears... impossible."
 
-"Okay...... Thank you, I will consider the increase of information agencies as well. Regarding Entokia-san's **idea**, I think it is too early to approach them right now. It would still be perceived wrong... but, in line with the "clerical expansion plan" we may consider cooperation with those arts masters who are working at church branches or at schools. ── Director Furia, I am sorry we had to interrupt you. Please continue. "
+"Okay...... Thank you, I will consider the expansion of the information bureau as well. Regarding Entokia-san's **idea**, I think it is too early to approach them right now. It would still be perceived wrong... but, in line with the "clerical expansion plan" we may consider cooperation with those arts masters who are working at church branches or at schools. ── Director Furia, I am sorry we had to interrupt you. Please continue. "
 
 "Well then ..."
 
@@ -485,7 +485,7 @@ To Tiese's whispers, Ronye answered "That's true". However, the moment she heard
 
 As soon as the two of them shouted aloud, little Berchie in Tiese's arms opened both eyes. Large tear-drops accumulated in the corners of blue eyes and as if water has broken through a dam, the boy erupted with an outrageous cry.
 
-Although they immediately lowered their head to hide from the conference hall and subsequently nursed Berchie, they could not stop exchanging happy looks over and over again.
+Although they immediately lowered their heads to hide from the conference hall and subsequently nursed Berchie, they could not stop exchanging happy looks over and over again.
 
 ![Image](/Translate/Img/p053.jpg)
 

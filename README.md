@@ -2,11 +2,9 @@
 ## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 20 (Moon Cradle, part 2)
 ## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 20 (Мун Крейдл / Лунная Колыбель, часть 2) 
 
-Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
+Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation, it helps a lot, too). However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
-_Note to those who reads "ongoing" :) They have introduced several new terms (related to Church structure) which slightly breaks the terminology I have used in a previous volume, so get ready to a bit of mess. Sorry, I will fix it at the editing stage later._
-
-Overall progress: translating...  Estimated finish: August 1st - 14th.  
+Overall progress: translating...  Estimated finish: August 1st - 14th. Sorry for the delay between Part 1 and Part 2, was busy, from now on it should be more steady...  
 `#######>------------------------------------------ 14.36%`
 
 Contents:
@@ -28,16 +26,16 @@ Contents:
 
 ***
 
-Внимание: я японский только начал изучать, так что перевод выполняется в основном с помощью Гугл Переводчика, Jisho и Romajudesu. С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
+Внимание: я японский только начал изучать, так что перевод выполняется в основном с помощью Гугл Переводчика, Jisho и Romajudesu. (Ну и как оказалось в сложных местах помагает перевод ребят из Поднебесной). С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
 
-Прогресс: как и прежде, переводится английский, за ним (кроме редких исключений, например, пока я в дороге...) пойдёт русский  
-`#????--------------------------------------------- ?.??%`
+Прогресс: так уж получилось, что пока я кое-куда ездил, получилось перевести начало на русский. Но дальше, как и прежде, будет переводиться английский, за ним пойдёт русский  
+`#######>------------------------------------------ 14.36%`
 
 Содержание:
 
 - [Начальные иллюстрации](Translate/Ru/Ills_start.md)
 - [Вступление](Translate/Ru/Intro.md)
-- [Часть 1](Translate/Ru/Part1.md) (51,5%)
+- [Часть 1](Translate/Ru/Part1.md)
 <!-- - [Часть 2](Translate/Ru/Part2.md)
 - [Часть 3](Translate/Ru/Part3.md)
 - [Часть 4](Translate/Ru/Part4.md)
