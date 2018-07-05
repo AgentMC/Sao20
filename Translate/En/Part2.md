@@ -4,7 +4,7 @@
 
 Ronye, Tiese and Asuna smiled at the same time, looking at the Prime Swordsman who held his head with both hands and sighed deeply.
 
-When the long meeting had finally finished, Ronye who returned little Berchie to Fanatio tried to head to the big dining room at the tenth floor to have lunch but was stopped by Asuna on the verge of rushing down the stairs. *How about lunch together?* Certainly, there was no reason to refuse if invited, and the two people immediately accepted it, so Vice-Prime Swordsman took them to the Central Cathedral’s Ninety-fifth floor, the "Watchtower of the Morning Star".
+When the long meeting had finally finished, Ronye who returned little Berchie to Fanatio tried to head to the big dining room at the tenth floor to have lunch but was stopped by Asuna on the verge of rushing down the stairs. *How about lunch together?* Certainly, there was no reason to refuse if invited, and the two people immediately accepted it, so Vice-Prime Swordsman took them to the Central Cathedral’s Ninety-fifth floor, the "Lookout of the Morning Star".
 
 There were only pillars on the four sides of wind-blown platform, while most of the floor was a beautiful flower garden with a clean waterway, and at that time the floor was effectively the Cathedral’s top. The stairway rising to the ninety-sixth floor was sealed with an indestructible door created by Asuna with her divine power, and not only Integrity Knights but also Prime Swordsman Kirito could not pass through.
 
@@ -158,7 +158,7 @@ However, for Kirito and Asuna the mass production of white hemp was not the fina
 
 It was Tiese who took over Ronye's words.
 
-"Even for the textbook of the elementary Sacred Art, they say, it takes skillful craftsman a month to copy a single book. Of course, it is very expensive...... My father bought a textbook because Sacred Art was an entrance examination subject of Sword Mastery Academy, still it was only possible to buy an early copy where characters had lost their shapes, which seemed to be a terrible regret. It is still my treasure."
+"Even for the textbook of the elementary Sacred Art, they say, it takes skillful craftsman a month to copy a single book. Of course, it is very expensive...... My father bought a textbook because Sacred Art was an entrance exam subject of Sword Mastery Academy, still it was only possible to buy an early copy where characters had lost their shapes, which seemed to be a terrible regret. It is still my treasure."
 
 Actually, Ronye shared the same experience.
 
@@ -172,7 +172,135 @@ Kirito said that while smiling, then he paused and heavily sighed.
 
 "...That's right."
 
-Asuna nodded with a somewhat sad smile.
+Asuna nodded with a somewhat mischievous smile.
+
+"So, Kirito-kun, it was not only the sword skill but also the Sacred art test, when you took the entrance exams of Sword Mastery Academy."
+
+"Ah, that, I was among the top twelve...... I wish I could say. But I learned Sacred Art from Yujio fervently supervising that I learn only stuff I should."
+
+When hearing that, Tiese smiled and chuckled. However, her laughter seemed to include emotions other than joy, and Ronye could only slightly open her mouth, without saying a word.
+
+Asuna who has a consoling smiling smile, looked at the blue sky visible between the columns and an expression of vexation blinked across her face.
+
+"Anyway, both of you are probably hungry. Let’s have lunch, can you help me to carry it?"
+
+Of course, Kirito also got upright immediately as Ronye and Tiese who stood up at the same time. From the time she was his valet, Ronye always said "Let me do it" at such times, but even at that time Kirito would not sit down and wait for service. *Senpai really did not change*... as she was thinking so walking behind Asuna, Tiese took out the pen and the notebook again and said:
+
+"So, Asuna-sama, ‘notebook’ is some sort of book for records?"
+
+**Grrr** — it was Ronye who could not help clenching her fists.
+
+![Image](/Translate/Img/p067.jpg)
+
+***
+
+On the first floor beneath the "Lookout of the Morning Star", on the ninety-fourth floor of the Cathedral, there was a kitchen, not as wide as the large kitchen on the tenth floor, but convenient and a well-equipped one.
+
+As soon as Asuna opened the double door, the sweet scent of honey and the fragrant aroma of burned cheese stroke her, and the Ronye’s stomach shrunk tightly.
+
+The kitchen was built with marble floor and white ceiling, there were many tall cupboards on the walls on three sides, brightening its appearance with the variety of tightly packed ingredients and colorful vases and bottles. On the remaining wall there was a shelf with cooking utensils and a large furnace; a large white wooden workbench was placed in the center of the wide room.
+
+As four people entered the kitchen, a slender figure behind the workbench lifted the head.
+
+It was a young woman wearing a white cook’s coat with no stain on it and a cylindrical hat above the short hair. To be exact, she should be referred to as 'very young'.
+
+The woman who was sitting on a chair and grinding a large kitchen knife stood up looking at Ronye and others. Briefly bowed to Asuna, she said:
+
+"Asuna-sama, I left it wrapped in the oven to keep it warm. Salad and bread will be there as well."
+
+"Thank you, Hana, I am sorry to be late."
+
+Asuna, after saying the apology, walked up to a large hot oven set on the wall at the back of the kitchen. This cooking utensil, which burns the fire under the tightly sealed box made of stone and bricks and heats the contents equally, was called "**tenpi**" in Human World language, to distinguish it from "**tenpi**" meaning the light of Solus, it was more common to call it an **oven** in the Common Sacred Language.<sup><a href="#Prim2">2</a></sup>
+
+Of course, both **salad** and **bread** were common sacred words too, so this time Tiese did not took the notebook out.
+
+Asuna, who opened the door of the oven after fitting thick leather gloves, pulled out a large container with lid from inside. The container seemed to emit the smell of cheese.
+
+Speaking of what enclosed the cooking, it was a simple shallow pot used to cook various ingredients in a flour dough baked around them, but it was unheard that someone will be cooking by putting such a pot in the oven. In the first place the oven was used for baking bread. With the look of excitement, Asuna moved the elliptical container to the workbench, and carefully removed the lid.
+
+"Wow, wha… what is... this ...?"
+
+It was Tiese who said this loudly. Ronye also bent her neck.
+
+And then it appeared from the container, the edge burnt a little, white and thin, like a piece of paper....
+
+"Hu-hu, this is a ‘paper wrapped bake’."
+
+As Asuna proudly declared this, Ronye and Tiese opened their eyes wide with "Eeeh…".
+
+"What, paper, real paper? White hemp paper......?"
+
+Vice-Prime Swordsman nodded with a smile to this mistrustful question.
+
+"I got some paper that was burned during the drying process from the paper plants of Cathedral and tried it."
+
+"But, if you bake it in the oven, the paper will burn quickly, will it not?"
+
+"It would burn if it is ordinary paper. I have not tried parchment, it’s too precious to be used in cooking. But white hemp paper, which as expected gained high durability, has properly fulfilled its duty."
+
+As she said so, Asuna pulled the folded white hemp paper with her fingertips. It made a dry rustling sound but did not collapse. Despite being exposed to the high temperature of the heated oven, paper seemed to keep the Life intact.
+
+While removing the leather gloves, Asuna continued:
+
+"The cuisine of Human World...... of Underworld is simple, but it is ruled by strict laws. Whether you bake it or simmer, ‘food’ does not become ‘dish’ unless it is heated for a certain time or more. If there is not enough heating it gains the **status**...... it becomes ‘half-baked’ or ‘rare’ and the stomach will hurt if you eat it, and on the contrary if you heat too much, it becomes ‘burned’ and it will be hard and bitter."
+
+"Y-yes......."
+
+That was the first thing any girl learns has from her mother when she is taught cooking. *Rather than half-baked or burned, proper fire should be turned* ─ they listened to Asuna's words automatically remembering the saying from the past.
+
+"The only problem is that the dish becomes the most delicious at the moment when it changes from ‘heating’ to ‘cooked’, right? It the heating continues, the more it goes on, the more it moisture gets lost, the dish gets harder, and the taste of ingredients dissolves out of stewed dishes as well. In the case of stewing, there is also a way to saturate the taste of the soup by continuing heating with a low heat while adding ingredients, but it takes too much time and trouble."
+
+"Y-yes......."
+
+As Ronye nodded again, the unique taste of the mysterious ‘Obsidia boil’ she ate in the capital city of Obsidia was about to revive in her mouth, so move quickly said:
+
+"...... but, how is this related to paper used in cooking?"
+
+"Well, at first, I tried to figure out the moment when the ingredients burned up, but Hana stopped me..."
+
+When Asuna shifted her gaze, a white hat woman said without changing her expression:
+
+"It is a trap that beginners and experts both fall every now and then. It wasn’t possible even for skilled chefs to figure out the perfect moment in hundreds of years. A long time ago, a person with an outstanding skill of determining, a chef called a genius of a kind being born once in one hundred years was invited to the Imperial Palace and cooked for the Emperor Norlangarth. Both the appetizer and the soup were masterpieces but the main dish, a big red-horned cow steak was taken from the fire only a moment earlier than needed. The emperor who ate it got stomachache and exercised aristocratic judgement privilege to cut off the cook’s arms."
+
+While Ronye and Tiese stood speechless, Asuna shook away a shadow of sadness and said.
+
+"... So, I decided to give up looking for the moment of baking and let it pass through as it is. But, instead I asked Hana if there is a way to retain the moisture even if one cooks it over time, and she told me that if you put it in a bowl with a lid and bake it in the oven, it will be somewhat different."
+
+"Heeeh...... I also learned a variety of dishes, but I have never thought of such a recipe. You are truly an exclusive chef of the Highest Priest."
+
+As Tiese showed her admiration, a woman named Hana shrugged her shoulders.
+
+"It is in the past already. ── Anyway, you need hardware with high priority that cannot be broken even if heated in an oven, and even in this Cathedral oven baking is not perfect... instead of getting out freely, the water accumulates in the bowl and the dish gets half-braised and the taste of ingredients is diluted."
+
+"So, at first, I tried traditional wrap, I wrapped the ingredients in dough, then put it in the bowl and baked it. But after all, the taste and moisture were gone out of the ingredient...... It was still OK if you eat it with the baked dough, but after all, the taste of the ingredient alone was bad. So, to preserve the moisture of the wrapped food from being lost, I was considering whether there is something that can resist heat, and eventually I came up with this white paper."
+
+"Heeeh....... So, that’s what you mean by a ‘paper wrapped bake’?"
+
+Ronye muttered that while staring at the contents of the vessel.
+
+"So, is it now that you are going to unwrap it...?"
+
+It was Prime Swordsman who had been silent till now who said that with a faint miserable voice. Apparently, he endured the hunger but the limit seems to have come.
+
+Asuna giggled and picked the slightly scorched edge of paper with slender fingers.
+
+"Actually, today is the first time to try. So if it fails you can only have salad and bread for lunch, sorry for that."
+
+"E-eeeh?!"
+
+That exclamation came not only from Kirito but also Tiese. Of course, Ronye felt the same as well. While watching Asuna's hand, she prayed to the goddess of earth Terraria who also controlled the food.
+
+The paper unfolded from all sides one by one, and as soon as it was opened on the left and right, Ronye felt an incredibly saturated mellow aroma spreading all around.
+
+The main ingredients were white fish fillets, mushrooms, vegetables and plenty of herbs, with cheese melting on top. It is understood at first sight that the heating was proper, but unlike baking in a pot, it did not burn or shrink at all. It seemed that most of the moisture was preserved.
+
+"Looks good, is it not?"
+
+Asuna also nodded to Hana's voice.
+
+"Well, let's enjoy it while it's hot. Kirito-kun, please help me to get five plates."
+
+***
 
 
 
@@ -181,8 +309,7 @@ Asuna nodded with a somewhat sad smile.
 ## Footnotes:
 
 1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
-
-<!--2. <a name="Prim2"></a>Original uses word “plus” (プラス).
-3. <a name="Prim3"></a>_Iwanezumi_: ”rock rat” or “ivy rat”, likely comes from ラオスイワネズミ, google “Laotian Rock Rats”; _Yoroimas_ – several translators seem to be confused with it, a Chinese colleague [suggests](https://tieba.baidu.com/p/5050282361?pn=3) that it is a sort of a carp.
-4. <a name="Prim4"></a>French quite hard-to-make cake, do not confuse with a sort of pasta (macaroni) or an easy-to-make coconut cake (macaroon).
-5. <a name="Prim5"></a>Some sort of peach – remember _yukimomo_ cake from previous volume?--> 
+2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here and below. As for the next passage, it’s also 2 words of a similar kind.)
+<!--3. <a name="Prim3"></a>
+4. <a name="Prim4"></a>
+5. <a name="Prim5"></a>--> 

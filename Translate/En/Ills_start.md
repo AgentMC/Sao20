@@ -15,8 +15,8 @@ _**Entokia Synthesis Eighteen:** If you call me ‘Enki’ and call Negio ‘Neg
 ![Image](/Translate/Img/k003.jpg)
 
 _**Asuna:** Let's enjoy it while it's hot.  
-**Hana:** It's best if you taste it slowly.  
-**Ronye Arabel:** ——!!.  
+**Hana:** Here, looks good, is it not? <!--Boy I was off with the first version _facepalm_ I hope one day the time will come when I can read Japanese out-of context... maybe in ten years :( -->  
+**Ronye Arabel:** ——!!  
 **Tiese Shtolienen:** It looks sooo tasty!_ 
 
 ***
