@@ -2,17 +2,17 @@
 ## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 20 (Moon Cradle, part 2)
 ## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 20 (Мун Крейдл / Лунная Колыбель, часть 2) 
 
-Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation, it helps a lot, too). However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
+Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation of web version, it helps a lot, too). However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
 Overall progress: translating...  Estimated finish: somewhere in August. Sorry for the delay between Part 1 and Part 2, was busy, from now on it should be more steady...  
-`##########---------------------------------------- ~20%`
+`###########>-------------------------------------- 23.2%`
 
 Contents:
 
 - [Initial illustrations](Translate/En/Ills_start.md)
 - [Intro](Translate/En/Intro.md)
 - [Part 1](Translate/En/Part1.md)
-- [Part 2](Translate/En/Part2.md) (62.5%)
+- [Part 2](Translate/En/Part2.md)
 <!-- - [Part 3](Translate/En/Part3.md) 
 - [Part 4](Translate/En/Part4.md)
 - [Part 5](Translate/En/Part5.md)
@@ -26,7 +26,7 @@ Contents:
 
 ***
 
-Внимание: я японский только начал изучать, так что перевод выполняется в основном с помощью Гугл Переводчика, Jisho и Romajudesu. (Ну и как оказалось в сложных местах помагает перевод ребят из Поднебесной). С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
+Внимание: я японский только начал изучать, так что перевод выполняется в основном с помощью Гугл Переводчика, Jisho и Romajudesu. (Ну и как оказалось в сложных местах помагает перевод вебки ребят из Поднебесной). С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
 
 Прогресс: так уж получилось, что пока я кое-куда ездил, получилось перевести начало на русский. Но дальше, как и прежде, будет переводиться английский, за ним пойдёт русский  
 `#######>------------------------------------------ 14.36%`
