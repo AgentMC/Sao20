@@ -110,6 +110,61 @@ Tiese, who was scared, seemed to regain the control in less than ten seconds, an
 
 Ronye grabbed the hand of his best friend even firmer, and the four people continued to rise increasing speed little by little. The ground was already far down, but the white wall blocking the overview still didn’t finish. Looking up, the top of the wall drawing a straight line in the light blue winter sky was still terribly far away.
 
+*If Kirito-senpai's ability to concentrate or the spatial divine powers turns out to be not enough, I wonder what will happen*... she forcibly interrupted the imagination and continued to glare at the top. The rise lasted for about 20 seconds, at the end they flew somewhat diagonally and finally crossed the edge of the wall.
+
+Immediately afterwards, the wind pressure momentarily disappeared, and four people fell from about 2 mel. Girls could never imagine that practicing "Standing straight on the top of a pillar" would do any good, but this time there was not enough power to support her legs, and together with Tiese who stumbled upon landing, Ronye almost fell on her back.
+
+But before she did, Kirito's right hand slightly supported her, and as soon as he saw the surroundings, Ronye let out a sound of astonishment.
+
+"Wow............"
+
+Speaking of the height, it was about the tenth floor of Cathedral — at most 50 mel. However, from the position they were the cityscape of Centoria, spreading to where the eye can reach, till it looked distant and hazy. There was more. From the junction of the southern wall and the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
+
+"...... Here we are on the top of the ‘timeless wall’...."
+
+Tiese whispered that, and Kirito silently nodded.
+
+Timeless wall. It was a large white marble wall that divided all the territory of Centoria in the eastern, western, northern and southern parts — and further into the vast four imperial territories. It was built not by piling cut out the stone, but rather The Highest Priest Administrator made it to appear during just one night.
+
+It is said that this wall, which lasts as much as 750 kilometers from the outer wall of Central Cathedral up to the "Mountain Range at the Edge" that encloses the Human World far away, is impossible to destroy, hence the name of "timeless". It was forbidden to climb it or damage it by the Taboo Index, and although there would be no one who tried to break it, Ronye understood that she just violated the second mentioned prohibition. Even if she was released from the Taboo Index binding when she became an Integrity Knight trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ronye looked at her feet she understood she instinctively began tiptoeing.
+
+The marble that was assembled without any gaps in one millis, which should have been exposed to the weather for several hundred years, shined smoothly just as it was newly polished. Behind them, the corner of the wall nearby was sharp like a blade, preventing anyone from climbing.
+
+At that time, a light noise was heard. Two light-blue birds flew down on the top of the wall from the sky. They jumped a little over the marble and watched Ronye with black eyes.
+
+"...... Hu-hu, the Taboo Index truly has no effect on small birds."
+
+With these words, Asuna gently touched their shoulders, and Ronye smiled at once looking at Tiese. She enjoyed the view once more and then understood it.
+
+"Oh, is it that... Senpai is going to move on this wall until reaching the Inn in Southern Centoria’s 4th district?"
+
+As she asked, Kirito turned around and finally laughed.
+
+"Correct. As you walk here, they will not be able to see you from down there, and if you choose a good location, you will not be noticed by unexpected people when you get off."
+
+"It’s not the first time, is it?"
+
+With the slight delay after Asuna's pressing, he cleared his throat and said with an excusing expression.
+
+"Ah, well, you see, the validation of the escape route is fundamental to the strategy...... Come on, let's hurry."
+
+And Kirito began energetically walking ahead, followed by girls along with contritely looking Asuna.
+
+There was an informal nickname given to each of the four of timeless walls dividing the Human World into four parts.
+
+The northeast wall separating the Norlangarth North Empire and the Eastabarieth East Empire was the "Spring Wall". The southeast wall separating the East Empire and Southacroith South Empire was the "Summer Wall". The southwest wall separating the Southern Empire and the Wesdarath West Empire was the "Autumn Wall". And the northwest wall separating the Empire and the North Empire was the "Winter Wall".
+
+It seemed that even the oldest knights Fanatio and Dusolbert did not know the reason why the four walls were called with names of seasons. Until the Human World Union Council was proclaimed, the timeless wall was an absolutely inviolable border, the Centoria citizens from the east, west, north and south did not have freedom of exchange in principle, and it was not possible to pass through the gate in each wall with the exception for merchants or wealthy tourists given bills of exchange.
+
+Although the passage requirements of the gates have been eased considerably by that time, complete free passage had yet to be allowed. That was because the aftermath of the Rebellion of Four Empires was not quite completed. There was a possibility that the remnants of the Konoe Knight Order who raised the weapons at the Axiom Church might be hiding somewhere in the Human World and still obey the order of the emperor. They may also be involved in killing the old Yazen and kidnapping Lisetta.
+
+While thinking this way, Ronye walked on the "Autumn Wall".
+
+Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, and nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ronye's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
+
+## To be continued
+
+
 <!--## Footnotes:
 
 1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
