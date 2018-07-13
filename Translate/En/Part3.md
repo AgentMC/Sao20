@@ -162,13 +162,104 @@ While thinking this way, Ronye walked on the "Autumn Wall".
 
 Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, and nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ronye's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
 
+On the left side of the wall there was a South Centoria mainly made of reddish sandstone, and to the right was West Centoria built with blackish slate. The two towns separated by a single wall differed not only in color but also in the design of the build-up. Spacious Southern Centoria's houses built from cut square red sandstone blocks produced a liberating opening feeling, while built from thinly sliced precisely and carefully matched pieces of slate building of West Centoria with their roofs covered with neatly arranged tiles shaped alike to dragon scales, stood without much clearance, but the effort invested in those houses welcomed the awe of craftsmanship.
+
+Kirito said that in addition to the appearance of buildings the four Centoria cities have completely different tastes of food. Ronye and Tiese were free to enter any of the four cities should they wish, but somehow when they got bored and decided to go out to the city they usually went to their native Northern Centoria.
+
+*But Integrity Knights expected to guard the peace all over four empires could not do even such a thing*, Ronye again felt the need to talk to Tiese walking along, but Kirito leading them stopped ahead before she could.
+
+"Now, this is the fourth district... somewhere here should be the inn......."
+
+As he muttered this he looked around the streets of South Centoria. Ronye also turned around and watched the red-brown cityscape.
+
+*Inn, inn.......* after viewing the city for a while repeating that in her mind, Ronye understood she has never been to the inn that was the scene of the incident. Four days ago, when a message arrived at Cathedral, the mountain goblin Oroi who was already considered the criminal was imprisoned in the Guards office, so Kirito went straight there.
+
+"...... Um, senpai, did you come here without knowing the location of the inn?"
+
+Ronye whispered that, and Kirito nodded to her turning his face to the right.
+
+"Err, um, well. You see, there should be a signboard ‘**INN**’ by the inn, but it’s not that easy to notice looking from the top..."
+
+"Look senpai, these buildings are so big like mountains, it’s unlikely they will have a signboard conveniently visible!"
+
+To Tiese's fair remark, Kirito nodded "right......" turning to the left. Asuna sighed watching it and took out a folded piece of paper from her cloak.
+
+It was of course not a paper wrapping but a large map, which she quickly opened.
+
+Moreover, it was much finer than ones sold at town's bookstores. It seemed that every building, not just a road, is being drawn there one by one.
+
+"Wow...... such a thing, where from?"
+
+Asuna replied to Kirito’s question without changing the facial expression.
+
+"During my study I little by little copied the map book that Sones-san found by chance during the arrangement of the large library. She said that the original map book was not hand-drawn, it was made by a previous librarian using an unknown technique."
+
+"............ Oh, the one of previous generation......."
+
+Kirito murmured and a look appeared on his face as if he remembered something, but immediately he rushed it away and put his face close to the map that Asuna unwrapped.
+
+"Let’s see, this is the 4th district... this one is that street? So, what is it that the inn is here...?"
+
+He raised his head and looked at the eastern side of the wall again.
+
+"Oh, probably it's on the north side of that junction. **Thank you**, Asuna."
+
+To his gratitude in Sacred Language, she answered "You are welcome" in Human World language. After that Vice-Prime Swordsman folded the map back into the cloak.
+
+They have clarified the location of the destination, but there was still a problem. From the wall 50 mel high they were standing on, they had to go down to the ground without being noticed by residents. If the same aerial elements technique as before when they ascended would be used, it will definitely be spotted by someone.
+
+Looking at Kirito, they were wondering *what on Earth are you planning to do?* Prime Swordsman casually approached the edge of the wall and glanced down.
+
+"Okay, now there is no one there. I jump first, then everyone else jumps when I give a signal."
+
+"Eeeeeee!?"
+
+As Tiese exclaimed in a strange voice, Kirito thrusted out his right hand with thumb up and casually stepped away from the wall. The brown outsole of his cloak disappeared in a moment, and only the dry wind passed by the three people remaining at the top.
+
+Even after waiting a few seconds there was no sound similar to collision so Ronye with Asuna and Tiese approached the edge of the wall and looked straight down. There was Kirito light-heartedly waving at them from the road 50 mel below.
+
+"Good grief......."
+
+Asuna murmured that and straightened both hands towards Ronye and Tiese.
+
+"...... He definitely used flying sacred art."
+
+Tiese squeezed lips and took Asuna’s hand with the same determination as Ronye did a bit ago, so Ronye followed and grabbed Asuna's left hand. Surprisingly delicate, the silky smooth slightly warm hand clenched Ronye's right hand tightly, and the next moment Asuna kicked off the marble wall as easy as Kirito did.
+
+Their bodies were gently raised — for a moment, and them three people immediately began to fall straight down. The wind groaned violently in their ears. The wish to cry out loudly was overflowing, but somebody might notice that, so she clenched teeth and kept silent.
+
+No matter if one is an Integrity Knight apprentice, they won’t be alive after falling from a height of 50 mel to a hard cobblestone. *I believe in you, senpai!* In her mind Ronye cried without saying a sound aloud.
+
+Kirito standing near the falling point lifted both hands into a bowl-like shape.
+
+The feeling of something soft and transparent wrapped around their bodies. The falling speed gradually slowed down, the sound of wind weakened. Kirito accepted the three people with an "arm of mind".
+
+Even the senior Integrity Knights are limited to as much as moving a single dagger with this technique, it must be a terrible power of mind to allow to slow down the falling of three at the same time. When the ground approached just under ten centimeters, Kirito opened his hands and three people landed steadily. After letting out several nervous and long breathes, Ronye asked their leader.
+
+"....... Um, senpai, if you can do such thing, wouldn’t it be simpler to use just incarnation instead of aerial elements when we climbed the wall…?"
+
+"Well, getting down and climbing jump straight up has different difficulty level of the **imagi**... of the concentration of consciousness. Even when it’s just one person I need to transform clothes into wings when flying with incarnation......"
+
+Tiese stopped by Kirito who shrugged his shoulders.
+
+"Kirito-senpai, next time I want to take off myself, please teach me the aerial element flight technique next time!"
+
+"Eee?! T-that is not as easy as it seems...... b-but it's a nice thing to have a curiosity... Well then, let's hurry to the scene."
+
+Asuna pulled the back of collar of Kirito, who began to walk to the North after saying some unnaturally sounding words.
+
+"It is the opposite direction, Kirito-kun."
+
+***
+
+
 ## To be continued
 
 
 <!--## Footnotes:
 
-1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
-2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here and below. As for the next passage, it’s also 2 words of a similar kind.)
-3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons I took say "shiral", but hey maybe your canon differs?
-4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ronye”, but that’s not true as Tiese only has heard about the kidnapping an hour ago or so, and we’ve been following them almost without interruptions since then.
-5. <a name="Prim5"></a>Not sure if it matters, Ronye says the name here in Sacred Language.-->
+1. <a name="Prim1"></a>.
+2. <a name="Prim2"></a>.
+3. <a name="Prim3"></a>.
+4. <a name="Prim4"></a>.
+5. <a name="Prim5"></a>.-->
