@@ -252,14 +252,133 @@ Asuna pulled the back of collar of Kirito, who began to walk to the North after 
 
 ***
 
+As they turned to the left to the wide road from a dark side road bordered by the Timeless Wall, they found that it was somewhat crowded. It was February, so one could think it would not be unnatural to wear long cloak, but the citizens of South Centoria walking along the road were unexpectedly light-dressed. The temperature should not drastically differ from the North Centoria because it was less than kilolu away, but the sunshine pouring from the skies to sandstone was somewhat warmer than when they were in the Cathedral.
+
+Fortunately, four people crossed the South Centoria 4th district without running into the guards and arrived to the inn in question.
+
+The three-floor building was quite large but as they only accepted tourists from the Dark Territory the accommodation fee stated on the entrance signboard was not even relatively high. Kirito, who removed the cloak hood, glanced at the red sandstone inn and opened the door without hesitation. Overlapping with the sonant sound of a bell,
+
+"Welcome!"
+
+— the cheerful voice echoed.
+
+In front of the spacious hall there was a wide reception desk, and behind it stood the one whom the voice belonged to, a girl receptionist who seemed a little older than Ronye. She wrapped her reddish hair with a dark-green scarf and wore an apron dress of the same color.
+
+As Kirito approached the reception, the woman asked with a smile:
+
+"Are you staying? Four people?"
+
+"Er......."
+
+After a short hesitation, he approvingly nodded.
+
+"Yup, four people. Is it okay if we stay for just one night?"
+
+"Of course, I do not mind. Would you like to share the same room?"
+
+"Yup, same room. If you can, we would like to take one on the second floor."
+
+Ronye who thought that he would clearly identify himself and ask for cooperation with the investigation, repeatedly blinked watching Kirito talking to the receptionist. As soon as the room was decided, Kirito paid a total of six hundred sheers lodging fee, and the four of them were guided to the second floor.
+
+The room that was prepared for them was in the southeastern corner, and plenty of Solus light was coming through the large window. There was a large round table with fruits in the front, and four beds that are neatly lined up by the wall.
+
+As soon as the receptionist who finished the short tour deeply bowed and left, Tiese cheerfully exclaimed:
+
+"It’s the first time I stay in an inn other than of the North Empire! The feeling of the room, the shape of the furniture, everything is quite different compared to the north!"
+
+"Hey Tiese, you did not come here as a tourist!"
+
+After hurriedly shutting up her best friend, she turned to Kirito.
+
+"...... Um, senpai, what are you planning to do from now on? This room is not the crime scene, is it...?"
+
+"Yup, it’s the different one. But there are ways to find out which room it was. So far, let's have some rest."
+
+This Kirito’s answer largely summarized the situation. Asuna, who took off her cloak and swung a long hair, said:
+
+"I am going to make tea, you join?"
+
+— and headed to the cupboard in the corner of the room, Ronye chased after her with "I will help you."
+
+According to the explanation given by the receptionist, when one wanted hot water, they were to bring a pot to the dining room at the first floor<sup><a href="#Prim1">1</a></sup>, but Asuna just poured some cold water from the jug into the pot and produced a thermal element with a smooth incantation.
+
+It was the basic technique of Sacred Art to heat water, but there still was a catch. When the generated thermal element is simply dropped into water, it reacts immediately with the water surface, creating a lot of steam, but the temperature of the water does not rise much. It is necessary to convey all the heat of the thermal element to water, which requires a bit of fiddling.
+
+Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Southern Empire and put it in water so that it gradually gave the power of heat element. Simply lifting the container and holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Vice-Prime Swordsman doing with a show-me-what-you-have-there anticipation, Asuna continued with producing of two metal elements.
+
+It was a nice way to make steel ball with metal element as a substitute for a fire sponge stone, but unlike fire sponge stones which could absorb thermal energy instantaneously, metal ball would not get hot so easily. And, of course, the metal ball does not float in the air like pure elements, so one needs something to support it during heating.
+
+It would be sufficient to have someone nearby using tongs or spoon for that, but it was said that it is not nice to use tools other than sacred art medium in such cases. Sacred Art practitioners believed that everything from generation to completion must be completed by the incantation only. There is a fancy way loved by clerics for its impressiveness, to create a tiny whirlwind with aerial element, and mix the thermal element into the air flow while letting the metal ball to float on top, but such three-attributes technique is difficult to control preserving the ball on top of the whirlwind, so if one’s concentration is disrupted even a bit, one will soon find sparks scattering all around the room.
+
+As Ronye, who quickly got ready to generate ice element to neutralize potential flame, carefully watched over what she was doing, Asuna manipulated the two metal elements with the left hand and kept them close to the thermal element she controlled with the right hand. In this state, two kinds of elements reacted and the hot metal drops were ready to scatter...... and that very moment:
+
+"**Form element, hollow sphere shape**."
+
+Asuna chanted an expression Ronye did not know, and the two steel elements fused together into a sphere of about 3 centimeters in diameter. As soon as it became a metal ball, it gained weight, and pulled by gravity it dropped into a pot.
+
+"Oh, that...... Asuna-sama, where did the thermal element go...?"
+
+Ronye hurriedly looked around but could not find the thermal element that was supposed to be floating in the air. Then Asuna glanced at Ronye's arms and pointed in the pot.
+
+When she looked in, the metal sphere glowed red beneath the water. Small bubbles floated one after another around it, and eventually steam started to rise from the surface of the water.
+
+"Maybe the heat element is in that ball...?"
+
+"Yes, I confined the heat element within the metal sphere."
+
+"...... such an art......."
+
+While Ronye was getting surprised, water in the pot bubbled, and it was heated to the boiling state.
+
+Normally, to make a hollow sphere with metal element, first they make a ball filled with contents using a "**sphere shape**" phrase and then inflate it with an "**enlarge**" while heating it at the same time. But this too is difficult to control and it tears easily, and even if it goes well you cannot put anything inside.
+
+However, if you can make a hollow sphere from the very beginning, you can confine the thermal element in it by overlapping it at the moment of creation. It is safer than heating an iron ball with a whirlwind of thermal and aerial elements and it is efficient.
+
+"It was ‘**Ho...**’... ‘**Hollow**’? Did Asuna-sama discover such an expression......?"
+
+To this admiration and question, Vice-Prime Swordsman gently shook her head.
+
+"No, Alice-san was good at the creation of hollow spheres, she said that she only told Ayuha-san that, and I was taught by Ayuha-san."
+
+"Alice-sama............"
+
+Ronye lost her words.
+
+At the time of Foreign World War Ronye got an opportunity to exchange words with Alice Synthesis Thirty several times. The most impressive thing was that night in the tent with unconscious Kirito when they were exchanging memorable stories with Asuna and Human World Defense Army general Selrut,0 but Alice's terrible large-scale light attack that had annihilated the great army of Dark Territory in a blink of an eye at the defense battle by the Great Eastern Gate was also burnt in her memory.
+
+Ronye and others low-grade clerics tried to guess what kind of technique would produce such a power. Of course, it is not where the knowledge of an apprentice knight reaches, but it can still be imagined that it would require to accumulate a huge number of light elements in some way and release them at the same time later. If that secret technique is based on a hollow sphere, it is no wonder Alice conveyed it to Ayuha alone.
+
+"... So, is it really for good that I heard it...?"
+
+Asuna nodded with a smile to this fearful question.
+
+"Yes, when Ayuha-san taught me she asked me... not to misuse it. So Ronye-san, when the time comes, convey this phrase to those whom you trust."
+
+"............ Yes...... Yes."
+
+Ronye nodded while feeling hot gathering deep in the chest, and then.
+
+Kirito who had been looking into the process from behind unexpectedly said in a relaxed tone.
+
+"It’s still pretty slow...... about making hot water. Maybe if you cast 2-3 ‘fire arrows’ into the basin....... "
+
+"Ah no, senpai, if you do that, it will get pure white in the room because of steam!"
+
+It was Tiese who suddenly replied, and Asuna and Ronye laughed together aloud.
+
+As they were enjoying some rest with cups of red tea (brewed with hot water boiled with Sacred Art) that looked like a special product of South Empire, the bell outside the window rang the 2 o'clock in the afternoon.
+
+The melody was the same as in Northern Centoria — the Dark Territory one was the same as well since we talk of it — but the tone was slightly lighter and felt brighter. Before the echoing of the long trailing note disappeared, Kirito quickly got up and moved to the door.
+
+
 
 ## To be continued
 
 
-<!--## Footnotes:
+## Footnotes:
 
-1. <a name="Prim1"></a>.
-2. <a name="Prim2"></a>.
+1. <a name="Prim1"></a>.I just understood I never called that out previously. For European readers: the floor numbering is — mostly — visually 1:1 in Japan, where “the 1st floor” is the first one available, not “the 1st one to live”. So, in this example, using British/Irish standards, that would be: they are located at the first floor and the dining room — as expected — is at the ground floor.
+<!--2. <a name="Prim2"></a>.
 3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.-->
