@@ -370,6 +370,102 @@ As they were enjoying some rest with cups of red tea (brewed with hot water boil
 
 The melody was the same as in Northern Centoria — the Dark Territory one was the same as well since we talk of it — but the tone was slightly lighter and felt brighter. Before the echoing of the long trailing note disappeared, Kirito quickly got up and moved to the door.
 
+"Okay, this inn is a break from 2 PM to 2:30 for employees, and they all gather in the waiting room on the first floor. Guests will also be on sightseeing and shopping, and now there should not be anyone in the hallway."
+
+"... Hey, how do you know that?"
+
+Having answered using sacred word "I heard it at **check-in**" to Asuna's question, Kirito approached the door. He opened it a little and checked the corridor, then nodded immediately and beckoned for Ronye and others to come. She felt uneasy to say the least as it wasn’t clear what to do, but had to follow after him, secretly hoping that they won’t have to do any absurd things inside the inn.
+
+Kirito who came out in the corridor headed north away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
+
+"Here"
+
+Asuna nodded to Kirito’s muttering. There was no doubt that this room is the crime scene of the old cleaner Yazen’s murder.
+
+Prime Swordsman reached for a brass grip, but for some reason stopped moving. He brought the hand in front of his eyes and carefully peered at his fingertips.
+
+"... What are you doing, senpai?"
+
+To Ronye’s quiet question, Kirito merely muttered something like "No, nothing......" not saying anything clear. However, as soon as Asuna said "It's safe, no way could they reproduce unique fingerprints", he finally nodded and moved his hand to the handle again.
+
+He twisted it to the left and right, but of course, it was locked and stopped halfway. Without thinking what to do next, Kirito silently stared at the keyhole ──
+
+A few seconds later, the sound of an open lock sounded.
+
+"Wow... Senpai, you can do even that with incarnation?"
+
+To that Tiese’s voice reverbing with the mix of shock and admiration, Kirito answered, shrugging:
+
+"The key and keyhole in this world is not a mechanical device, it’s part of a system, ehm...... of the whole thing."
+
+Tiese made an unhappy face to that ambiguous reply, but the situation did not allow for more elaborate discussion. When Kirito twisted the handle again, it turned to the end this time and the door moved a little. He quickly looked around, peered in and encouraged others to get in.
+
+The room girls stepped in behind Asuna was a very common room for two people. There was only one window on the eastern wall, there were beds on the left and right, and a table, somewhat smaller than the one at which the four of them drank tea just now.
+
+At first sight, there was no difference in appearance compared to their room. Perhaps, there were no fruits on the table and the curtains were closed. However, Ronye felt that this was the scene of a horrible murder.
+
+Kirito who came in the last gently closed the door. Asuna stopped near the table and turned around, silently nodding.
+
+"... Is it really safe, Asuna?"
+
+— Kirito said with a worried tone. Ronye as well as Tiese shared the same feeling.
+
+Sacred Art department head Ayuha Furia mentioned that the load of the past reflection art discovered yesterday was too big. In Human World she was one of the best practitioner, and if she says so, it might not be easy to use even for Vice-Prime Swordsman Asuna having the God power.
+
+But Asuna nodded again with her usual gentle smile.
+
+"Yup, it’s OK. For Oroi-san who has to endure the limitations because of this... and much more for Yazen-san murdered, we must catch the criminal as soon as possible."
+
+Having said so in a clear unwavering tone, she took a piece of folded white hemp paper from the leather bag hanging by the sword belt of her simple knight clothes. A glimpse over the unfolded sheet would reveal that it’s densely covered with many lines of sacred characters.
+
+"............ Got it. Relying on you."
+
+Kirito said the short phrase in a voice that made one feel the convincing confidence and signaled to Ronye and the other one to stand back to the wall.
+
+Asuna left alone in the center of the room silently read the sacred words from the paper for over several tens of seconds, then folded it carefully again and put into a leather bag. Apparently, she had memorized the words of sacred art beforehand and that was simply the last review.
+
+Sacred Art certainly has a clear difference in success rate, accuracy, and power when reading a technique written on a paper compared to casting a completely memorized art. Kirito mentioned the reason is because Sacred Art is also intertwined with the power of incarnation. Therefore, the memorization of the art wording is the basic for the practitioner, but the past reflection art Asuna started to chant was much longer than Ronye's expectation.
+
+She could understand that first a crystal element was generated and formed into a thin disc but the continuation of the incantation was something she heard for the first time, so she could not understand it’s meaning. Regardless of this, the affluent intonation Asuna chanted the incantation with was fascinating. And then…
+
+Suddenly the room got dark.
+
+"............!!!"
+
+— Tiese pulled the air in grasping the hem of Ronye's cloak. As ethereal darkness crawled around the floor, their legs became cold.
+
+The sound of Asuna's voice, which began to bear the trace of rumbling and reverberation, broke for a moment.
+
+Suddenly her upper body shook. Kirito moved his right foot half a step forward but stayed on the spot. Casting resumed, the darkness started to grow deeper.
+
+Suddenly the crystal disc lying on the table floated up in the air without any sound. Elegant purple light flowed from it illuminating Asuna’s face from below.
+
+![Image](/Translate/Img/p109.jpg)
+
+Looking at her painful expression, Ronye also shrieked her lips. *I would like to help Asuna, but this technique is only for masters. Besides, she is challenging the gods’ work itself peeking at the past events. The secret the Highest Priest Administrator built, securely sealed in the deeps of the Elders Council ──*
+
+Asuna, whose whole body was now constantly trembling, moved her hands to the disk. She rapidly moved thin fingers, and the overflowing purple light followed, flickering irregularly.
+
+Suddenly a distorted voice, as if heard from under the ground<sup><a href="#Prim2">2</a></sup>.
+
+『…… you…… choose…… at serf Yaze…… derstand……』
+
+Male voice ── but only that could be understood. Then sounded another male voice, a doubtful one.
+
+『Ah, err…… not, wrong…… ourselves…… of active tenants…… isn’t it……』
+
+『……wrong is ……as long as serfs of the domain…… end to dislike that, then right here……』
+
+The voice of the first man, with unexpectedly increased clarity, said ruthlessly:
+
+『…… enjoy the death!』
+
+A thud sounded, overlapped with the scream of the second man.
+
+Immediately afterwards, the crystal disk turned into a myriad of fragments and crumbled. The arms of Kirito, who jumped like a wind to catch Asuna falling down to the floor, firmly supported her body.
+
+***
+
 
 
 ## To be continued
@@ -378,7 +474,7 @@ The melody was the same as in Northern Centoria — the Dark Territory one was t
 ## Footnotes:
 
 1. <a name="Prim1"></a>.I just understood I never called that out previously. For European readers: the floor numbering is — mostly — visually 1:1 in Japan, where “the 1st floor” is the first one available, not “the 1st one to live”. So, in this example, using British/Irish standards, that would be: they are located at the first floor and the dining room — as expected — is at the ground floor.
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
+2. <a name="Prim2"></a>OK, I’ll have to guess here. If/when I guess wrongly – I’ll fix afterwards.
+<!--3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.-->
