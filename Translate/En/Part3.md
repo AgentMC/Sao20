@@ -446,19 +446,19 @@ Looking at her painful expression, Ronye also shrieked her lips. *I would like t
 
 Asuna, whose whole body was now constantly trembling, moved her hands to the disk. She rapidly moved thin fingers, and the overflowing purple light followed, flickering irregularly.
 
-Suddenly a distorted voice, as if heard from under the ground<sup><a href="#Prim2">2</a></sup>.
+Suddenly a distorted voice, as if heard from under the ground.
 
-『…… you…… choose…… at serf Yaze…… derstand……』
+『…… ou…… rent…… a serf Yaze…… rial do……』
 
 Male voice ── but only that could be understood. Then sounded another male voice, a doubtful one.
 
-『Ah, err…… not, wrong…… ourselves…… of active tenants…… isn’t it……』
+『Ah, err…… not…… myself…… a active tenant…… perial……』
 
-『……wrong is ……as long as serfs of the domain…… end to dislike that, then right here……』
+『……erfs of my…… belong to my ter…… end to dislike that, then right here……』
 
 The voice of the first man, with unexpectedly increased clarity, said ruthlessly:
 
-『…… enjoy the death!』
+『…… enjoy the death……!』
 
 A thud sounded, overlapped with the scream of the second man.
 
@@ -466,15 +466,162 @@ Immediately afterwards, the crystal disk turned into a myriad of fragments and c
 
 ***
 
+Four people quickly left the room 211 where the darkness faded and hurriedly flew back to the first room.
 
+Kirito laid Asuna, who was using his shoulders to move around, to one of the beds.
 
-## To be continued
+"It, it's all right now."
 
+Kirito gently pressed down Asuna’s shoulders while she was trying to rise quickly saying so and turned his face to Ronye.
+
+"Excuse me, will you bring us a glass of water?"
+
+"Y-yes, just a second."
+
+She ran over to the cupboard and poured some cold water that remained in the jug into the glass and brought it back. Kirito who took the glass slightly raised Asuna's body, bringing the glass closer to her mouth.
+
+AS she slowly drank three gulps of water, Vice-Prime Swordsman smiled at Ronye with a somewhat alive face.
+
+"Thank you, Ronye-san."
+
+"It’s nothing……"
+
+Was the answer as she looked down. *I’m useless for anything except such tasks, but at least I can say that there are cases where I can help the two of them in some way.*
+
+Since Asuna’s exhausted state was not due to decrease of the Life, it could not be recovered by Sacred Art. Kirito who should have been aware of it, but Prime Swordsman returned the glass to Ronye and holding his hands in the air silently generated three light elements. Those softly floated around lying Asuna, gently illuminating the beautiful face with closed eyes and glossy chestnut hair.
+
+The light elements broke off from Kirito’s control and disappeared by scattering small light drops in less than one minute, but Asuna lifted the eyelids as if she gained some vitality from that shining.
+
+"...Yes, I'm fine now."
+
+"Do not push yourself, you'd better take some rest."
+
+As Kirito quickly said this, Asuna completely raised her upper body.
+
+"No, we have to hurry......."
+
+Kirito tightened his profile to these words, and Ronye also gazed at Tiese.
+
+"...... What did you see? Have you understood how the murderer killed Yazen by avoiding the Taboo Index?"
+
+As a question to jump in, Asuna made a long blinking as if to verify his memory and gave a slightly hoarse voice.
+
+"In the glass disk, the first thing that I saw...... a man who cleaning the room moments ago. I think that it was Yazen-san. Then the second man, standing by the other side of the screen, said to Yazen-san: 『Thou, is not a serf Yazen of the Emperor’s domain?』...... like this."
+
+"Emperor’s...... domain."
+
+As Kirito repeated this quietly, Asuna nodded as well.
+
+"Yup...... Yazen-san nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of my territory belong to my territory until they run out of life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-san's chest with a dagger....... Yazen-san fell down on the spot and the man left the room holding the dagger. That was what I saw there..."
+
+Asuna went silent, but no one tried speaking for a while.
+
+Since no high-level cleric can tamper with the past events, it was confirmed that it was not Oroi who killed the old Yazen. It was a cheering evidence, but it undeniably the mystery has increased again.
+
+Kirito, who was standing one knee beside the bed, raised his body and looked at the door of the room.
+
+"....... The man who killed Yazen-san dropped the blooded dagger in the corridor, knocked nearby room and disappeared. The mountain goblin Oroi who was sleeping in the room noticed the dagger lying on the corridor, picked it up and was captured by South Centoria guards who came to check the place. That is what happened after Yazen-san's murder. "
+
+Kirito’s explanation was enough to Ronye, but Tiese next to her said "But ..." uncertainly.
+
+"Kirito-senpai, weren’t guards too quick to come to a murder location? The criminal who killed Yazen-san knocked Oroi-san's room and ran away, and it seems that only few minutes have passed before Oroi-san picked up a dagger......."
+
+And it has be told, she was right. Kirito also nodded looking gloomily.
+
+"That's right. It was supposed to have been that guards rushed here because a citizen reported to 4th district Guards office that there was a sub-human with a knife acting dangerously at the inn. But in fact, Oroi just picked up a fallen dagger, there was no dangerous behavior in his actions. In other words, it was either the murderer themselves or their partner reporting... ── Asuna, did you not see the murderer at all?"
+
+When asked, Asuna nodded, regretting.
+
+"Yup... I felt like I was always in front of the image floating on the glass plate... or rather......"
+
+She slightly opened her mouth and blinked as if searching for words, but quickly sighed.
+
+"... Sorry, I cannot say it better."
+
+"No, you do not have to apologize."
+
+Said Kirito, coming close to Asuna and gently hugging her.
+
+"Even though I could not see the criminal directly, I could hear the voice, and I understood many other things. For example, ...... the culprit who killed Yazen-san did not utilize a complicated **trick**...... did not avoided the Taboo Index somehow, it just seems that he normally stabbed his heart..."
+
+This was also true, come to think of it.
+
+Asuna took risk and used Past Reflection art to find out both "how" and "why" the criminal killed the old Yazen. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
+
+"The culprit is not bound by the Taboo Index......."
+
+Kirito confirmed Ronye’s muttering with a heavy voice:
+
+"That's what it is....... I do not know yet the reason for that though..."
+
+"I do."
+
+Asuna interrupted, and the three turned their gazes to bed.
+
+Vice-Prime Swordsman appearing almost recovered said while looking at the faces of three people with her tea-with-milk-colored eyes.
+
+"...... I think, the words of the criminal who killed Yazen... I think that's why he could kill him."
+
+"Words ...... 『Serfs of my territory belong to my territory』...?"
+
+"Yes...... The reason why the culprit could ignore the Taboo Index was because Yazen-san belonged to the aristocrat’s private territory and was a subject to the decision right of the one..."
+
+"……Indeed!"
+
+Kirito sharply inhaled and looked outside the window as if hoping to see the criminal standing there.
+
+"It may not only be the old Yazen but as well any other former peasant released from private territories could be killed in the same way.... That's why Asuna said 『We need to hurry』"
+
+"Yup…… If we don’t hit his hands before the next victim comes, that’s what I thought... but......."
+
+It was clear to Ronye why Asuna bitten her lip. Moving the discussion ahead, she cautiously said:
+
+"There are nearly 1000 former private territories peasants in the North Empire alone, quadrupling in Human World as a whole...... It is impossible to protect or give an escort to all of them."
+
+Tiese stepped ahead on a side and said, flinging her hands.
+
+"Besides, not all the people who have been released remain in Centoria. I heard that more than half have left the central capital and chose to have their own farmland where there is a free space. Even just searching for them, perhaps could take weeks..."
+
+"In Human World...... I do not believe there is a family register."
+
+Next to Kirito who speculated using unfamiliar words, Asuna also kept frowning for a while, but soon lifted her face.
+
+"...But, if the purpose of the criminal is to spark the war once again between Human World and Dark Territory, they should not just blindly kill the former private territory tenants. That sin, it would be meaningless unless the responsibility is laid upon tourists from Dark Territory."
+
+"Well then...... who we should protect are the Dark Territory people...?"
+
+Kirito who heard the words of Tiese nodded deeply.
+
+"Yes...... I actually thought of coming to this inn either today or tomorrow. To invite Oroi’s fellows who are waiting here to come and visit the Cathedral. Oroi's **homesick**...... hometown missing illness, I think, should be aided for a while with that......."
+
+"But senpai, there are lots of tourists from Dark Territory......."
+
+When Ronye said so, Kirito gently shrugged his shoulders.
+
+"Surely. Fortunately, their numbers and accommodations are recorded properly, so the search is easier than for the former private peasants. As expected, it is impossible for all of them to stay in the Cathedral, so I think that we need to plan to schedule their return a little earlier beginning today so that they return home in order. If you construct a carriage formation with an escort getting them to the Great Eastern Gate, the criminal cannot mess around it."
+
+"If that’s decided, let's move right away."
+
+Kirito tried to quickly support Asuna who got up from the bed, but it seemed unnecessary. Even so, Vice-Prime Swordsman smiled with quiet "thank you" but quickly returned to a resolute expression.
+
+"So... do you know the room where the mountain goblins are staying?"
+
+"Of course. It is a room for four on the first floor, so it's probably just below here. The one that should have the guards in front of the door... half for the escort and half for the watch...."
+
+"It cannot be helped, but if we move them to the Cathedral, that need is gone. Let's go."
+
+Ronye and others chased Asuna who began walking quickly.
+
+***
+
+However.
+
+The four people who went down to the first floor saw an unattended corridor and a vacant cleaned room. The receptionist, questioned by Kirito, told them with a puzzled expression, that in the morning an official of the South Centoria administration brought a carriage and told them he takes three mountain goblins away.
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>.I just understood I never called that out previously. For European readers: the floor numbering is — mostly — visually 1:1 in Japan, where “the 1st floor” is the first one available, not “the 1st one to live”. So, in this example, using British/Irish standards, that would be: they are located at the first floor and the dining room — as expected — is at the ground floor.
-2. <a name="Prim2"></a>OK, I’ll have to guess here. If/when I guess wrongly – I’ll fix afterwards.
-<!--3. <a name="Prim3"></a>.
+<!--2. <a name="Prim2"></a>.
+3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.-->
