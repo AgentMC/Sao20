@@ -58,6 +58,69 @@ While asking a question she removed the towel and watched him with a serious loo
 
 She pushed his shoulders down and made him sit at the end of the large sofa in the middle of the living room. Asuna took up the brush she was using until a while ago from the low table and carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Eastern Empire — not a Western style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Fanatio for the celebration of Vice-Prime Swordsman's 1st anniversary, and she sincerely appreciated it since then.
 
+Kirito, whose head was entrusted to Asuna’s hands, suddenly said to himself:
+
+"...... I wonder if I will be able to complete the clock soon."
+
+"Same here. But you have already been prototyping it for a long time, is it... is it so difficult?"
+
+"Yup. I need a lot of precision gears to move the hands properly, and gears in this world are in the hoisting device of the castle gate, or in the accelerator of the water turbine, they are good only for applying a big force...... So when I combined them, it does not work properly as a clock.... The stupid hour bell runs with the perfect precision, but the clock I made goes crazy and makes no sense..."
+
+" I guess so."
+
+A nod, and ponderingly:
+
+"... Wait, I’ll ask Fanatio-san. Certainly, in the past there was a clock in this Cathedral, right? The Highest Priest-san made Bercouli-san’s sword out of it. So, who made it?"
+
+"Ehm…well, I guess, it was in the Underworld from the very beginning. The place where this Central Cathedral is located was a small village three hundred years ago, where the staff of RATH brought up the first generation artificial fluctlights. It was just an object they set up in the village. "
+
+"’The first four’......"
+
+While these quiet words reminded of a story she heard from the RATH supervisor Seijiro Kikuoka back at the Ocean Turtle in Real World, Kirito thrusted his right hand into the brushed hair.
+
+"Should the system console on the hundredth floor still function...... I’d call the object data of the clock and could just recreate it."
+
+A bitter smile was an answer to these selfish words.
+
+"Hey, if you can do such a thing, you don’t even have to make a clock as an object, you could just add a time display to the menu window...... to Stacia's window... but before that......."
+
+*── you would be able to stop the Critical Acceleration Phase.*
+
+Asuna left out these last words.
+
+That moment Underworld was operating at a tremendous speed of five million times the reality. It could hardly be believed, but all the long days of one year and three months Asuna has been diving in that world took only about 8 seconds in the Real World. Imagining the huge amount of data that would be exchanged between the STL she was lying in and the fluctlight of her brain vaguely scared her. She feared that the brain could simply burn out someday.
+
+However, if the system console is revived and it becomes possible for them to log out ── Asuna was not sure she could do it without hesitation.
+
+Asuna and Kirito intervened in the governance system of Human World, entire Underworld, which brought enormous and rapid changes. They did not regret it, but the aftermath of the reforms still could be felt and the murder incident happened five days ago was a part of that. The two of them had a responsibility to witness the fate of the world, and should they have to logout without a reason, to look from the outside into Underworld watching the civilization collapsing, — that would be truly regretful.
+
+Perhaps, feeling that there’s something that words can’t express, Kirito unexpectedly raised his hands from behind his head, grabbed Asuna’s body, pulled her forward turning around and sat on his knee.
+
+"Kya~"
+
+She exclaimed, protesting against the stuffed-toy-like treatment.
+
+"Hey, careful!"
+
+But Kirito behind her answered with a tone suggesting a wide grin.
+
+"It's all right, I've supported you with incarnation."
+
+"No problem then! Indeed, what other than superpowers remain to a human at a time of decline...."
+
+"Decline is terrible."
+
+In response, Kirito lightly hugged Asuna from behind.
+
+That moment her body suddenly lose all the energy. Long ago ── seemed like in a previous life, after they just married in the floating castle Incrad, Asuna used to sit the same way on Kirito's knees many times every day, sometimes falling asleep.
+
+A long, long time has passed since that time, but the feeling of being completely protected and that there is nothing to fear when he hugged her this way did not change at all. Holding the dragon-inscribed hair brush in both hands, she leaned against Kirito's chest and closed her eyelids.
+
+*I want to fall asleep like this, and Kirito will carry me to bed even if I do, but I can’t do that. If I fall asleep, Prime Swordsman who feels uneasy today will get out of Cathedral and will depart to search for the three missing goblins.*
+
+In the emergency meeting held in the afternoon, it was decided to issue an investigation order to the South Centoria administration in the name of Human World Union Council and the Integrity Knight group, but at that time the 5 pm bell rang, so it was the next morning to take actions. Moreover, since the official who appeared in the inn was probably a fake, even if the investigation in the administration is done, the outcome will most likely be "there was no order issued to transfer goblins and there is no such official." Asuna thought it was a bad idea to leave an entire day to the quick-moving killer for granted. Besides, it is unlikely that anyone but Kirito can search the whole Centoria and find goblins, so it could be a trap inviting Prime Swordsman just like in Obsidia.
+
+## To be continued...
 
 
 ## Footnotes:
