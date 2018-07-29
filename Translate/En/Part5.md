@@ -120,8 +120,95 @@ A long, long time has passed since that time, but the feeling of being completel
 
 In the emergency meeting held in the afternoon, it was decided to issue an investigation order to the South Centoria administration in the name of Human World Union Council and the Integrity Knight group, but at that time the 5 pm bell rang, so it was the next morning to take actions. Moreover, since the official who appeared in the inn was probably a fake, even if the investigation in the administration is done, the outcome will most likely be "there was no order issued to transfer goblins and there is no such official." Asuna thought it was a bad idea to leave an entire day to the quick-moving killer for granted. Besides, it is unlikely that anyone but Kirito can search the whole Centoria and find goblins, so it could be a trap inviting Prime Swordsman just like in Obsidia.
 
-## To be continued...
+And above all, Asuna was asked by an apprentice knight Ronye to keep an eye on Kirito, and she couldn’t afford failing the trust. *I must keep my promise to her.*
 
+As soon as she thought of the serious face of Ronye who is worried of Kirito's welfare, the back of her chest hurt.
+
+She knew about her feelings for long time already ── it became apparent even before the Human World Union Council was inaugurated, she has first noticed that the night she spent with the four of them, including knight Alice and Human World Defense Army general Solterina during the Foreign World War. But Asuna has never talked to Ronye about it since then.
+
+Asuna was painfully conscious that the other one was still 17 years old and suffering from unrewarding feelings. But she did not know what to do with that.
+
+This disconsolance she felt was the same as sometimes touched her in the real world.
+
+Their friends of the real world who were tied to them by true bonds...... Lisbeth, Silica, Shinon, and Leafa. All of them had strong feelings to Kirito, but in front of Asuna they hid it or turned it into a joke. On the contrary, they used every opportunity to cheer and encourage Asuna.
+
+As always, she was happy about it, but felt some pain as well. Thinking of Kirito, who did no effort to make up his mind in such a dangerous situation, only given her this bitter sensation.
+
+But Kirito didn’t change much since the first time she met him in the first level of Incrad. With both hands widely open and accepting everything, never giving up. A person desperately continuing to level-up in the top ranking extremely dangerous labyrinth areas to finally lend a helping hand to fainting Asuna. And despite being an absolutely key player of the party in the following floor boss fight, he embraced hatred and antipathy to former beta tester choosing the road where he remained being called "beater".
+
+This was exactly Kirito Asuna loved.
+
+Therefore, when the two of them with Kirito got trapped in this world, Asuna for just a little, but felt something similar to a relief.
+
+And in the final stage of the Foreign World War, her heart could not allow her to leave Kirito alone in this world, so she let only Integrity Knight Alice to escape to the real world and stayed in Underworld herself. No, after all was over, she understood that the option of logging out alone did not even appeared in her head at that time. So she did not think at all that it is a way to monopolize Kirito, however, after more than one year has passed, she felt no apology would be enough to resolve the ever-growing feeling of guilt before her friends and family whom she would never meet again.
+
+Still ──
+
+The feeling that in this world there is no need to spare his love with Lisbeth, Silica and others was constantly present in one corner of her heart.
+
+Asuna put the brush on the knee, turned around to him and covered Kirito’s hands with both of her own.
+
+The hug became a little stronger.
+
+When they meet again at the "Altar of the End" at the southern end of the Dark Territory, Kirito was lying on top of the white stone steps, endless tears flooding from his eyes. Without asking, she knew that those were tears for the people whom they could not meet anymore.
+
+A long time has passed from that time, but she rarely mentioned to Kirito any memories of the real world, their friends and families whom they would now bid eternal farewells. This, as well as reasons of this world, where there were too many things to think about, were why Asuna has still not managed to organize her emotions. Perhaps, for Kirito it was the same.
+
+*That's why I want to face Ronye seriously. Rather than repeating the same mistakes as in the real world, I need to think about what I can do for her and what should I do. Always think this way ──*
+
+"...... It is about time to sleep."
+
+When Asuna whispered, Kirito responded "Right", just behind her right ear.
+
+She tried to get off the knees, but the right hand of Kirito moved around her back just before that, and he lifted her up holding from both sides.
+
+"Oh, ... wai...."
+
+As soon as he unexpectedly moved her, the dragon-decorated hair brush that Asuna had on her body, rolled down. However, it stops silently around 50 centimeters above the floor, slid sideways and landed on the low table. Kirito caught it with the "hand of mind".
+
+At that time, Asuna has practiced this supernatural ability that only Kirito and the senior knights could use, but her limit was to move a small Shear copper coin. However, when one can move things around so freely, the life seemed to be decreasing and she was a little bit afraid of that. But still, it surely could be of use for occasional housekeeping tasks like dishes and own rooms cleaning.
+
+"...... it is not surprising anymore."
+
+She glanced at Kirito sullenly, a mischievous smile returning to the face.
+
+"I made an impossible today with the Past Reflection, it's about that, is not it?"
+
+"It’s all about that."
+
+While answering so, Kirito crossed the wide living room with a relaxed walk and opened the door of the bedroom again using the incarnation.
+
+In the middle of a room nearly double of Asuna's own room in the real world, there was a bed one size larger than a king size. When she saw it for the first time, she complained to Fanatio, "That’s too luxurious ", who told her that this bed was brought in at the time when the 30th floor of the Cathedral was built, and it could not be taken out of the room unless it is already broken ─ a smart explanation to which there was nothing she could say. Besides, Asuna, who was somewhat fond of natural wooden furniture, could not deny that the massive black walnut solid headboard was keeping her glances.
+
+According to Higa Takeru from RATH, Underworld used terrain and objects generated by the "The Seed" program transformed into a super-high-resolution "mnemonic-visual" data format. And since The Seed was a shrunk version of the Cardinal system that had run SAO, in a way it could be said that walnut trees growing in Underworld were of the same electronic genus as those of Incrad.
+
+Asuna laid down on the right side of the bed, Kirito walked around the footboard and seated on the left side. His line of sight turned to light element lanterns shining softly in two places on the wall, and elements disappeared controlled by his incarnation. When the artificial light went out, the moonlight flowing in through the large window on the left side of Asuna shaded the room lightly blue.
+
+Kirito then pulled up the quilt folded down at feet and covered Asuna tightly up till the neck. As if to make a bed for small child, he lightly tapped it from the top to the futon, and then also lied down.
+
+"..... even when I fall asleep, have no hope of sneaking out."
+
+Asuna whispered, feeling a calming drowsiness. From the right side, came a sigh of bitter smile.
+
+"I won’t, indeed, in this large Centoria there’s no way to locate those goblins..."
+
+![Image](/Translate/Img/p137.jpg)
+
+"Fine, they will be found safely. Even for the criminals, to have another incident, preparations are necessary.... should be..."
+
+Her right hand moved towards Kirito, resisting the drowsiness the body suddenly sunk into. Immediately a large and warm left hand found Asuna's hand and gently grasped.
+
+Recently, when just two of them remained alone, she let herself to behave in a more childish way. It happened unintentionally and for no specific reason.
+
+Perhaps the reason might be that the mental age of the two of them was reversed.
+
+Asuna's birthday was September 30, 2007. Kirito's birthday was October 7, 2008. Asuna was one year older all the time, but Kirito spent two years eight months of life in Underworld where time has been accelerated before Asuna dived. However, he was in unconscious state for half a year of which he did not have memory. Therefore, even if six months are deducted, Kirito is now one year and two months older than her by mental age.
+
+There were few opportunities to be conscious of it in an everyday life, but in small gestures and words they exchanged when left alone, she didn’t feel anymore that immaturity Kirito of the Incrad era sometimes had. The accumulation of that sensation might make Asuna childish.
+
+Come to think of it, when she came across Kirito at SAO, he was high school student of only 14 years old. And Asuna was also a high school third grader just before taking the exam. The two who decided to unite in the course of action, communicated in a childish way with each other.
+
+Recollecting memories of that period that seem to be so long time ago, Asuna fell into the deep and soft sleep.
 
 ## Footnotes:
 
