@@ -10,7 +10,7 @@ Opening a thick door from the corridor, one first gets into an entrance room of 
 
 There are high windows with a grid on the south wall, from floor to near the ceiling, a complete kitchen and a bathroom are on the west side, and a spacious bedroom is on the east side. It is not as good as living room, but it is still about 15 tatamis<sup><a href="#Prim1">1</a></sup>.
 
-However, in Human World / Univerworld, the unit "tatami" was not used. To begin with, there were no tatami mats at least in Cathedral and North Centoria. The size of the boarded or tiled floor was only expressed in square mel and square kilolu, and they were also abbreviated as "he-mel" and "he-kilolu", respectively. According to this, is the living room size was about 50 he-mels.
+However, in Human World / Underworld, the unit "tatami" was not used. To begin with, there were no tatami mats at least in Cathedral and North Centoria. The size of the boarded or tiled floor was only expressed in square mel and square kilolu, and they were also abbreviated as "he-mel" and "he-kilolu", respectively. According to this, is the living room size was about 50 he-mels.
 
 *Cleaning this large one would be a serious task*...... would be a first thought when someone is introduced to the room the first time, but Underworld basically had only some dirt- or dust-like feeling effect, which did not require an entity object, and disappeared if one runs over it with a broom or a duster. Substantially it was retouching a digital image rather than cleaning, though this wasn’t something Asuna could say bluntly, but Kirito could very well.
 
