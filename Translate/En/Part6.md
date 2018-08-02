@@ -120,12 +120,82 @@ By the time the flock ran away to a deep place, Tsukigake and Shimosaki caught f
 
 ***
 
+Just as the stable keeper said, Tsukigake’s fish dislike has been corrected in a blink of an eye and it became same way not picky like Shimosaki, which ran around the grass once again playing after finishing the meal. The gardens of Cathedral were also large enough, but the dragons were also comfortable in the nature.
+
+Ronye deeply inhaled fragrant air, thinking that they will go out more now.
+
+On the little hill not far away, a chestnut horse, tied to a standing tree, was carelessly grassing. There was, a flock of about ten white water birds by the lakeshore, and butterflies fluttered from flower to flower. As usual, there were no human figures besides the two apprentice knights.
+
+"It’s a shame, these territories were released, I wish people from the central capital come and play here..."
+
+When Ronye murmured that, Tiese, who was drinking tea from a bottle next to her, slipped a chuckle:
+
+"Ronye seems to be used too much to Cathedral life. Today is not the Seventh day<sup><a href="#Prim2">2</a></sup>, so you cannot go out of town that early today."
+
+"Ah... th-that's right."
+
+*Certainly, children are still studying at school, adults are supposed to be at work or doing housework. Although we’re just apprentices, we still can execute the privilege of knights who can act quite freely except for training in the morning, but I do not think that it is common around other people....* having pondered this way, Tiese added a little abruptly:
+
+"Oh, but, as I heard, this Emperor's domain is empty even on the Seventh day, while other private areas seem to be visited quite a lot."
+
+"Hmm............"
+
+Ronye raised the gaze when she heard it.
+
+The Norlangarth Northern Empire spreads out in a shape of a fan from the central capital Centoria. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the northern gate of Centoria they were in, the timeless wall separating the land between the West and the East was still clearly visible.
+
+*Emperor's domain monopolized the land on the west side of the high road running straight north from Centoria, and the territories of nobility were lined up on the east side of the road. In other words, because the location of this territory is relatively close, there was no reason for onlookers to ignore it.*
+
+Glancing at the profile of Tiese, she noticed that the area around her nostrils was twitching a little. It was a sign of her enduring of saying something. Having a slightly bad feeling, Ronye returned the question that her best friend was expecting:
+
+"............ Why is the imperial territory so unpopular?"
+
+Then Tiese coughed a little and pointed to the other side of Lake Norkia.
+
+"There, can you see the house over there?"
+
+"....... Yup."
+
+Small nod.
+
+On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which emperors of Norlangarth dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Empires, they said, that nearly 20 guards and servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
+
+"The emperor's house? What's wrong with it?"
+
+Tiese got a stranger look and said, looking to the one sitting next to her:
+
+"....... Because of what’s there, in that place..."
+
+"Of what’s there...being what?"
+
+"It seems, they say...."
+
+Whispering in a low voice, she brought her face closer to the right ear of Ronye ──
+
+"It’s haunted!"
+
+".................."
+
+*I’ve got no clue what to respond to this.* She kept silent for a few seconds and asked briefly:
+
+"By whom?"
+
+That moment Tiese broke the serious face and shouted:
+
+"Come ooooooon, you’re boring! That’s supposed to be scary!"
+
+"Well, you were preparing for that story all the time from the morning."
+
+"Naturally, I did not have a chance to scare Ronye before."
+
+
+
 ##To be continued...
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>It is the default for western world that dragons fly. That’s why no translators of SAO I ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Integrity Knights, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Asuna used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further I will continue to use just word “dragon” referring to the dragons we all know.
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
+2. <a name="Prim2"></a>Tiese uses ansoku-nichi (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s kanji and not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
+<!--3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.-->
