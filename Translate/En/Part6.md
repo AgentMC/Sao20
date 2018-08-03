@@ -188,7 +188,79 @@ That moment Tiese broke the serious face and shouted:
 
 "Naturally, I did not have a chance to scare Ronye before."
 
+After Tiese complained using a sacred word that Kirito told her, Ronye asked again lightly poking her with the elbow:
 
+"That's not Tiese's imagination, is it? Where did you hear such a story?"
+
+"Last Seventh day...... the day you and Kirito-senpai went to Dark Territory, I shopped in the 6th district market and I asked an old man from the bakery. He said, recently the number of people going to see the former private aristocrats’ territories on the Seventh day increased so the bento and pastry baking business runs pretty well, but the former imperial territory seems not to be popular, because of the ghost appearing near the mansion......"
+
+"Talking ghosts nowadays..."
+
+Ronye shook head in surprise.
+
+According to the old story told when she was a child, before the Axiom Church was formed, ghosts used to appear in the streets and villages all around and they were doing various things. But they were exterminated by church priests and Integrity Knights, and now it has become quite peaceful — all the stories have ended that way. Actually, Ronye has never seen any kind of scary ghosts mentioned in old stories.
+
+"About that, the real battle, where casualties were among the emperors who did not surrender till the end, the generals originating from the royal family and the great aristocracy, or the heads of the emperors’ armies — was happening only in the four imperial capitals of Centoria, was it not? So why are there ghosts in the villa in the emperor’s territory?"
+
+As soon as she heard these quickly voiced arguments, Tiese blinked a couple of times and smiled again:
+
+"Hey, Ronye, aren’t you thinking of some mischief?"
+
+"Mis...... mischief, not at all!"
+
+"Fu~wa. So then...... is it not that we should quickly check it?"
+
+"Eh?"
+
+She winced back hearing this sudden suggestion.
+
+"Ch-check...... that mansion?"
+
+"Of course."
+
+Nodded with a clear face, Tiese continued to stretch her back.
+
+"Look, if such a suspicious rumor is spreading around, it might have an influence on the Union Council’s plan to reuse the former private territories, right? Even though we are still only knight apprentices, since we are the members of the Integrity Knight team, shouldn’t we go for it if we think that investigation is necessary?"
+
+_── But I don’t think it is_<sup><a href="#Prim3">3</a></sup>.
+
+That was her first thought frankly speaking, but the advantage of her best friend’s opinion was surfacing clearly. *Instructor Dusolbert repeats that a knight who just waits for orders becomes useless. The whole afternoon was dedicated to correct Tsukigake's picky behavior ─ which is why we are here at the lake, but the daytime is yet to last for long.*
+
+Ronye sighed and moved her gaze from her best friend's face to the southern sky.
+
+A small hill blocked the view and the cityscape of Centoria could not be seen, but even though it was ten kilolu away, the hulk of Central Cathedral was towering in the blue sky. Over there, Kirito and Asuna should be waiting for investigation reports from the Southern Centoria administration now. In the case of its conclusion being a miss, which is likely to happen, a large-scale search will be conducted throughout the city of Centoria; should an emergency occur before Ronye and others return, senior knight Renri is supposed to come to the rescue riding his dragon Kazenui.
+
+"...... I see."
+
+With as much as possible calm face, Ronye looked at Tsukigake and Shimosaki running cheerfully around the nearby meadow.
+
+"But what about these guys?"
+
+"Don’t you want to take them? Something ghost-like shouldn’t like dragons which are sacred creatures. If it really comes out, though."
+
+After a while, Ronye nodded to Tiese's words about which she wasn’t sure how serious the other one was. It is only Integrity Knights who can breach into the mansion sealed by the name of the Axiom Church, and dangerous creatures such as bears and wolves as well as ghosts cannot appear in such a place, so even if they take young dragons, there won’t be any danger.
+
+"So, well......."
+
+"Then, it's decided!"
+
+Having exclaimed so, Tiese vigorously stand up from a rock she used as a chair. Ronye stood up as well and said touching the handle of the Sword of the Moonlight that was hanging at her left hip.
+
+"For such a case, I wish Tiese would have already picked a new sword."
+
+Then her best friend glanced down to her own Human World Defense Army standard sword and shrugged her shoulders.
+
+"Well, that's right, but I also like this sword...... hands completely accustomed to it..."
+
+She knew that feeling very well. Ronye was anxious to change a familiar sword, and it was hard to let it go, so she couldn’t force her.
+
+When she silently nodded, Tiese smiled again and looked at the dragons.
+
+"Shimosaki —, Tsukigake —, come over! We’re going for a walk!"
+
+To which the dragons, apparently full of energy after eating plenty of fish, synchronously answered "Kururu ──!" fluttering small wings.
+
+***
 
 ## To be continued...
 
@@ -196,6 +268,6 @@ That moment Tiese broke the serious face and shouted:
 
 1. <a name="Prim1"></a>It is the default for western world that dragons fly. That’s why no translators of SAO I ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Integrity Knights, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Asuna used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further I will continue to use just word “dragon” referring to the dragons we all know.
 2. <a name="Prim2"></a>Tiese uses ansoku-nichi (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s kanji and not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
-<!--3. <a name="Prim3"></a>.
-4. <a name="Prim4"></a>.
+3. <a name="Prim3"></a>I guess あっやしいなぁー can also mean that she doesn’t like the whole idea in the first place, and in fact it’s probably both.
+<!--4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.-->
