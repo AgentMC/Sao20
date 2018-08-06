@@ -262,6 +262,172 @@ To which the dragons, apparently full of energy after eating plenty of fish, syn
 
 ***
 
+In order to move from the east bank of Lake Norkia to the west bank where the sealed mansion stood, they had to make a considerable detour north or south.
+
+The south side of the lake appeared to be wetlands, so the two of them headed north. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers and they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Human World, so both cheerfully walked after two people.
+
+It took them more than ten minutes to reach the northern end of the lake where there was a small river flowing into Lake Norkia and a solid stone bridge. This river was a branch of the Rul river, which originated in the northern extremum of the Norlangarth Northern Empire, the Mountain Range at the Edge, and its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
+
+When they were at the Sword Mastery Academy, Kirito and Yujio told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Tiese pointed out that if they would have made a small boat and sailed down the river they could reach Centoria without having any hardships —Kirito and his friend were both silent for a while and then said simultaneously "I could not think of it".
+
+In reality there were many shallows, torrents and waterfalls on the way and it would not be easy, but Kirito and Yujio still said that when they’d come back to Rulid someday, they will try it on the way back to the capital. Tiese and Ronye used to dream that should such a time come, they would join the two people, but that adventure was no longer possible.
+
+They jumped down from a slightly shifted grassland to a fine cobblestone road and crossed the bridge.
+
+From there to the mansion there was a single road. After they walked for some time, a vast field came up on the right. Shrubs lined up in order were grapes grown as the source of wine.
+
+Ronye's father, a lower-class aristocrat, once said that if you turn all the vineyards in private territories of the Emperor and the Great Aristocrats into wheat fields, it would cover all the wheat consumption in the Northern Centoria within a year and they won’t have to bother about the bread from the northern region. The terrible size of the vineyard immediately convinced her that it was not an exaggeration at all.
+
+Moreover, the wine the emperor drank was made only from the best grapes from these grape shrubs, so regardless such a vast number of shrubs, vine made on this vineyard did not reach the mouth of the general public because they brew only a small amount.
+
+Hana said that when she was the exclusive cook of the Highest Priest Administrator, the Highest Priest did not care much about the luxury of drinking and eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, emperor Norlangarth was secretly proud that he was drinking superior wine than the Highest Priest.
+
+"...... What will happen to this vineyard...?"
+
+Tiese walking next to her muttered this quietly, so Ronye slightly tilted her neck.
+
+"It seems that it is not decided yet even in the territory reuse plan whether to leave vineyards or turn into wheat fields. Some of the former private territory people who have taken care of these plants until now want to go back here and continue making grapes......."
+
+"But, if you have such an area, you cannot maintain it without considerable manpower....... I heard that similar problems are occurring in the former imperial territories of other empires."
+
+"Yazen-san, who was in the territory of Emperor Southacroith, I wonder which way he wanted..."
+
+Tiese replied after a short time after Ronye doubted.
+
+"...... In the vision that Asuna-sama saw through the Past Reflection art, Yazen-san said that he was『no longer an active tenant of the emperor’s domain』, so he did not intend to go back."
+
+"That... that's right. I wish he could enjoy a new career he had just found......."
+
+They kept silent for a while, walking under soft sunshine.
+
+The wind flowing though the unmanned vineyards shook feathers of the young dragons who were walking a little way ahead. Twisting grapevines stood leafless due to the cold, but yellow-green young leaves will soon bloom vividly throughout every branch. If they keep vineyards, by that time someone has to begin taking care for thousands of grapevines.
+
+"...... You know, Tiese, if there are not enough people to work in the field......."
+
+Ronye muttered this unconsciously but closed her mouth halfway. To Tiese who seemed to be curios, she said "No, nothing", which wasn’t truth.
+
+*In fact, you should migrate Goblin tribes who are forced to live in remote areas of the Dark Territory and have them to work in the fields —* that’s what she wanted to continue with.
+
+*But then, we will have the goblins replacing the serfs once forced to live a hard life in private territories. Of course, nobody is going to force them to work, but they will have to as the income will be the result of their labor; so, when it comes to "get inside and get to work", I think it means the goblins will be treated almost as slaves.  
+── No, I can’t say that.*
+
+The majority of people living in the Human World was forced to decide on the Sacred Task in the age of just ten years and start to work. It was rather an exception for children to enter high school like Ronye and Tiese did, and even for those two people, if they have not been Integrity Knight apprentices, they should have had no choice but to either join the Human World Defense Army or to marry someone their parents decide.
+
+*I could not choose the future on my own, just like private territories serfs, so, in the essence, is there any difference between us?*
+
+The doubt that had never occurred to her before swirled in her head, and Ronye almost froze in her steps. But suddenly, Tiese next to her exclaimed:
+
+"Ah, there, the gate can be seen!"
+
+She blinked and raised the face to see a beautiful black steel-made gate rising in the end of the road, where Tiese pointed to. On the other side of the gate there were magnificent old trees standing in lines, and the road continued into the darkness where the light of Solus did not reach.
+
+After quickly walking the final hundred mels, the two stopped in front of the gate.
+
+In the center of the gate consisting of thin steel bars, there was the huge emblem of the Norlangarth Northern Empire, depicting a lily and a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Axiom Church, and a sentence saying 【No trespassing without permission of the Human World Union Council】 written in black.
+
+In addition, the gates were severely blocked with a sturdy chain, and the chain stretched to the left and right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Human World able to try to break the blockade after looking at such a sign.
+
+Following the two people, Tsukigake and Shimosaki looked up at the exquisite chain, snuffed it and snorted at the same time.
+
+Meanwhile, their owners exchanged looks and Tiese said:
+
+"...... We are the members of the Human World Union Council, right?"
+
+"...... Every day we attend those meetings, is it not?"
+
+Ronye replied this way but it should be mentioned that she used to onlook rather than attend the meeting. However, sometimes ─ sometimes she was asked for remarks, so she was not a complete outsider either.
+
+Tiese nodded with gulp, then suddenly made a stern face and put the right fist on her chest and the left hand on the handle of the sword.
+
+"Integrity Knight apprentice, Ronye Arabel! In the name of Human World Union Council, requesting the passage through this gate!"
+
+The other one for a moment froze in a mute amazement, but somehow replied "Y-Yes" to a knight’s salute returning the same. Tiese took down her hands and said "Now, you too", eliminating the last resort to go back.
+
+Similarly, the young dragons got permissions as well, and they all walked about ten mel to the right of the road and passed under the chain supported by thin iron poles.
+
+As soon as they felt the air getting cold, they shrunk their necks. They would keep thinking that they just entered the shade, but it seemed that some unexplainable heaviness was contained in the air.
+
+After they walked under the mossy trees and returned to the cobblestone road, Ronye confirmed the purpose of this unofficial mission with her partner.
+
+"Hey Tiese, we came here to investigate ghost rumors... is this correct?"
+
+"That's right."
+
+"This means, we can go into the mansion?"
+
+"That's right."
+
+After nodding twice in a row, Tiese gave a mischievous grin:
+
+"Weeeell, could it be that Ronye is afraid of ghosts?"
+
+Of course, she couldn’t admit it there. The memories of the scary stories heard during childhood were likely to be revived, but she denied with a sturdy face:
+
+"There’s no reason for that... besides, there are no ghosts in the present age."
+
+Then Tiese’s grin faded away for a moment, but the expression immediately returned and she tapped Ronye's back.
+
+"If so, I let you go into the mansion first! Yup, go, go!"
+
+"I...... I understood..."
+
+While thinking that she was tricked anyway, Ronye started walking with her back being pushed.
+
+Supposedly, it had been more than half a year since this whole forest has been sealed, but the ground under the trees was kept unexpectedly clean. Or it may be that weeds are less likely to grow due to the deprivation of Solus’ and Terraria’s blessings because of the tall old trees. The air that was so refreshing when they were on the hill on the other side of Lake Norkia seemed to be a bit stagnant.
+
+While walking, Ronye turned around to see Tsukigake and Shimosaki, who were well ahead of two of them until the gate, but now were following. The young dragons sniffed the smell of the road with a slightly disgusted faces and shook the raised tails left and right.
+
+"What's wrong, Tsukigake?"
+
+When she said it, the dragon following behind responded with a quiet "Kururu......". It looked like he is quite reluctant to proceed, but he wouldn’t stop.
+
+A dragon is tied with a strong bond to a knight and sometimes tries to defend the owner by sacrificing it’s life. In fact, Ronye saw, just before the end of the Foreign World War, in order to protect the knight Renri from countless spears thrown by real world red knights, his beloved dragon Kazenui received those spears by itself.
+
+As the war had come to an end, situations when Tsukigake or Shimosaki, already grown-ups, must do such a thing will hopefully never come. Still, Ronye was hit by a sense that something tightened in her chest for a moment.
+
+*Today's day out is in the first place because of the dragons, so if they are uneasy, it would be better to stop studying the mansion......* she thought, but Tiese would not stop her feet. Forced to turn back, she lined up next to the partner.
+
+*Come to think of it, the attitude of Tiese is a bit weird, I feel she is not the usual her. Even when suggesting to investigate the mansion, although it was a joke, she was strangely stubborn, and in the first place it was happening all of a sudden. It's as if she had planned this investigation mission since it was decided to go out to Lake Norkia.......*
+
+"Hey……"
+
+The moment she tried to talk to her best friend, the sound of the 2 o'clock bell far in the south in the central capital was heard. Tiese quickly turned the face to her and said:
+
+"It will be dark if we don’t hurry. Let’s run!"
+
+"U…uhu."
+
+Inevitably nodding, Ronye chased after Tiese who began running. Young dragons also fluttered small wings and followed bouncing off the ground. Even a child of a flying dragon can get tired and it’s Life then starts to decrease the weather, so they’ll have to eat dried fruits brought from the carriage by the time the dawn comes.
+
+The forest surrounding the mansion did not seem to be wide from the outside, but the winding road took them some time. About ten minutes passed since they heard the two o'clock bell, and finally Ronye was relieved to see the light ahead.
+
+In the middle of the forest, a circular space of about 100 mel wide was cleared, and the problematic mansion was quietly standing in the middle.
+
+It was built of dark gray stone, and the steep roof was black. It seemed to have 3 floors, but because it has few windows, it looked more like a fortress than a mansion. The front yard had already almost disappeared flower beds, but they only gave cold feelings because only the withered grass was growing there.
+
+"... This is the villa of the emperor, for real...?"
+
+When Ronye muttered, Tiese also tilted her head a little.
+
+"Yeah, this...... this being the case, even residence of some great aristocrat would seem bigger....... ah, wait, there."
+
+She lifted the right hand and pointed at the big front door.
+
+"There is a lily and a hawk crest on the door, which should be only used by the emperor."
+
+"Yup……"
+
+Because there was an emblem of the Norlangarth family on the iron gate at the entrance to the forest and on the door of the manor, there was no doubt that this was the emperor's villa.
+
+"... Let’s go..."
+
+Tiese whispered and started walking. Next, head down, followed Shimosaki.
+
+Ronye looked down at Tsukigake by her feet and asked: "Are you all right? Not tired?", to which the young dragon answered "Of course" or something similar since it spread its wings and gave a short chirp.
+
+They walked the path stretching through the dead grass, between the flower beds, and stopped in front of the large door.
+
+
 ## To be continued...
 
 ## Footnotes:
@@ -269,5 +435,5 @@ To which the dragons, apparently full of energy after eating plenty of fish, syn
 1. <a name="Prim1"></a>It is the default for western world that dragons fly. That’s why no translators of SAO I ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Integrity Knights, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Asuna used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further I will continue to use just word “dragon” referring to the dragons we all know.
 2. <a name="Prim2"></a>Tiese uses ansoku-nichi (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s kanji and not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
 3. <a name="Prim3"></a>I guess あっやしいなぁー can also mean that she doesn’t like the whole idea in the first place, and in fact it’s probably both.
-<!--4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.-->
+4. <a name="Prim4"></a>Yes I am aware it’s still late February, several days after snow melted.
+<!--5. <a name="Prim5"></a>.-->
