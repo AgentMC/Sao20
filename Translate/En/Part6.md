@@ -427,6 +427,120 @@ Ronye looked down at Tsukigake by her feet and asked: "Are you all right? Not ti
 
 They walked the path stretching through the dead grass, between the flower beds, and stopped in front of the large door.
 
+Ronye looked back, but the blue water surface of Lake Norkia obscured by trees could not be seen at all. When a thought that there was no meaning to build a lakeside house in such location came to her, there was a metal sound coming from behind. Tiese was grasping handles of both the left and the right doors with both hands trying to push them down.
+
+"…… does not open?"
+
+In response to Ronye's question, her friend gently rocked the red hair.
+
+"Yeah, it sounds locked."
+
+"Well, that would be expected if you think about it... doesn’t this mean that there is no one in the mansion?"
+
+Ronye said so hoping to convince Tiese, but her friend wouldn’t let go her hand of the handle.
+
+"But if it is a ghost, it can pass through even if it’s locked, can it not?"
+
+"Eeee...?"
+
+— frowning at unexpected objections. Certainly, ghosts of ancient tales usually had no real substance and it looks like there were some which could slip through walls and doors.
+
+"...... even so, we just can’t leave it like this..."
+
+Having muttered this, Tiese closed both eyes still gripping the handle, and gave a strange groan.
+
+"... N... n-mu-mu-mu-mu...."
+
+"W-what are you doing?"
+
+"Mu-mu-mu-mu-mu......!"
+
+"S-stop, Tiese, come on!"
+
+She finally noticed that something was wrong with the way her friend gripped the handle.
+
+*Tiese must be trying to imitate the "Pick of Mind" that Kirito showed us in the inn at Southern Centoria yesterday.*
+
+"Hey...... we still cannot use even the "Arm of Mind", and of course we can’t do something like picking a lock!"
+
+Ronye pointed out completely amazed, but Tiese’s profile remained seriously resolute ─ perhaps even desperate rather than that; having noticed that she breathed in some air.
+
+After hesitating a couple of times, she quietly asked:
+
+"....... Tiese, why, so hard...... Is it so important to investigate the ghosts rumors...?"
+
+Then Tiese slowly breathed out and let go of the handles.
+
+Although, she remained leaning as she was before, and it wasn’t immediately that her faint voice returned a question:
+
+"...... Ronye, those ghosts, do you really think that is the case?"
+
+"Eh…………"
+
+After hearing the question, Ronye quickly closed her mouth, feeling like a silly child trying to laugh at something important. The profile of Tiese was as serious as ever, and there was nothing to be joking about. The reason was completely unknown, but Ronye knew, if her best friend is asking seriously, she had to think and answer properly.
+
+Ghost ── Ronye haven’t seen with her own eyes the soul of a human who died in hatred or sorrow wandering without reaching the divine world. Of course, same goes for her mother and grandmothers who let her hear old stories about ghosts.
+
+*Then, even if one says that genuine ghosts appeared hundreds of years ago as it is said in the old tales, it also seems wrong. Because the divine world that the dead human soul is guided to probably does not exist itself. Outside of the Underworld is the Real World which Kirito and Asuna came from, there are no gods there, just humans fighting each other for thousands of years.*
+
+*If the divine world does not exist, this world must be full of ghosts created of the souls of the dead people. But that is not the case, a human soul disappears at the moment of death no matter if it is holding a hatred or sorrow and doesn’t become a ghost.*
+
+Ronye inhaled to express his thoughts.
+
+But just before the voice came out, one scene revived vividly in her mind, and Ronye opened her eyes.
+
+_I have never seen a scary ghost.    
+However, I have seen a glimpse of a soul of a one who died.  
+That was when Kirito was awakened from a long sleep and fiercely fought the man in black cloak<sup><a href="#Prim5">5</a></sup> who was directing the real world's red knights just before the end of the Foreign World War._
+
+At the moment when a huge hatchet held by a black mantle man stroke sparkles from Kirito's sword and even cut his shoulder a little, Tiese gripped both hands and prayed. *Please, Yujio-senpai. Help Kirito-senpai......* and then.
+
+And as if responding to that voice, a transparent golden arm emerged, supporting the Sword of the Night Sky Kirito was holding. With the help of that hand, Kirito pushed back the crowd and triumphantly fought against the black mantle man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Kirito's best friend, Tiese’s mentor, an elite swordsman-in-training Yujio.
+
+"....... Tiese............ you............"
+
+Ronye whispered her best friend's name completely forgetting about the ghost thing they were talking just now. She felt like she could finally understand why Tiese stuck to the gossip rumors about the abandoned mansion.
+
+It was the moment when she stretched the right hand to touch the back of Tiese who was looking down.
+
+Faint ── but definite sounds reached their ears; Ronye winced and froze. At the same time Tiese gently lifted her face.
+
+![Image](/Translate/Img/p167.jpg)
+
+It was not a natural sound that they heard. An unpleasant grinding sound like metal and metal rubbing together. Besides, it definitely came from behind the closed door.
+
+Ronye signaled to turned Tiese by putting her index finger to her lips and softly pressed the left ear against the big door.
+
+A few seconds passed, but nothing could be heard. However, that sound was not an illusion.
+
+When she took her face off the door, Tiese, whose face appeared to completely lose the blood, whispered in a very quiet voice.
+
+"...... if we don’t peek inside…"
+
+"............"
+
+Ronye got lost whether she should nod.
+
+Even if the gossip is true, I cannot believe that ghost is a Tiese's love...... Yujio. Yujio lost his life at the top floor of the Central Cathedral and cannot appear at the villa in Emperor's domain.
+
+And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. 
+
+Because it is only those who oppose the authority of the church and the Taboo Index who is able to go into the mansion, which was closed in the name of the Human World Union Council...... in other words, Axiom Church.
+
+Ronye thought that she should return to Cathedral now and report it to Kirito or Fanatio, but Tiese moved before she was able to suggest it. She began running towards the South along the walls of the house, apparently planning to go around the back of the building. Shimosaki followed her, jumping behind.
+
+"Kururu!!!"
+
+Encouraged by Tsukigake to chirping by her feet, Ronye also kicked off the ground.
+
+*Even if she goes to the back door, it should be locked of course. I do not know what Tiese is going to do, but I have to stop her before she is going to do something unreasonable.* Even so, she couldn’t catch up with her partner running ten mels ahead.
+
+After she turned around the corner of the mansion twice and entered the backyard, it got dramatically darker. There was also a flower bed in the backyard, but since the sunlight hardly reached it, there were mostly bluish mosses and gray ferns. In the aisle there were broken wheels and decayed trees and there is no way anymore to say it’s the emperor's villa.
+
+The back door that Tiese would be aiming was secretly set up on the north side of the building. In other words, it would have been closer to reach it from the north side instead of the south, but Tiese jumped to a small door increasing the run speed even more as if she did not care at all.
+
+She grasped the blue rusted round handle and try to rotate, but just as Ronye expected, only the rusty click sounded. Nevertheless, Tiese continued to pull the handle with force. Even though she was an apprentice, her authority for armor equipment was similar to one of a knight, around 40, so even with pure brute force she could destroy the door. This mansion was handed over from the emperor and was by that moment the property of the Human World Union Council, so even in an emergency situation it was not permitted for a knight to damage it without a Council permission.
+
 
 ## To be continued...
 
@@ -436,4 +550,4 @@ They walked the path stretching through the dead grass, between the flower beds,
 2. <a name="Prim2"></a>Tiese uses ansoku-nichi (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s kanji and not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
 3. <a name="Prim3"></a>I guess あっやしいなぁー can also mean that she doesn’t like the whole idea in the first place, and in fact it’s probably both.
 4. <a name="Prim4"></a>Yes I am aware it’s still late February, several days after snow melted.
-<!--5. <a name="Prim5"></a>.-->
+5. <a name="Prim5"></a>Ronye doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
