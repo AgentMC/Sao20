@@ -687,6 +687,76 @@ But before she finished, Tsukigake’s head showed Shimosaki's back. The body of
 
 "Kyu-ru-ru!!!"
 
+Shimosaki proudly chirped, and although some rust stuck to its feathers, there seemed to be no injury. It looked wide due to fluffy fur and feathers, but the body of the young dragon in reality was still small.
+
+"Good grief, what a self-esteem......."
+
+Tiese lightly scolded him, but a smile of proudness appeared on her lips. Pointing at the key with her right hand thrusted into the iron grid, she instructed the beloved dragon:
+
+"Shimosaki, can you get it?"
+
+Of course, chirping again in the response, Shimosaki went down the stairs and stopped right under the nail.
+
+The height to the key was about 1.8 mel. While leisurely flapping small wings, it jumped once, twice and succeeded in picking up the key at the third time. After coming back to triumphantly, it protruded a thin nose through the grid gap.
+
+Tiese received the key held in the mouth, handed it over to Ronye, and began stroking the head of the dragon with both hands. Who, after observing the scene, inserted the old key into the keyhole of the iron grating. Although, as expected, it was bit hard, the key eventually turned around, then a click and a hard sound echoed.
+
+She waited for Tiese to go one step back and pulled the grid towards herself. The door moved squeaking **ki-i-i-i**. Shimosaki who was waiting inside flapped the wings as soon as they came in.
+
+Since the door was opened, they had to find out what was in the basement, but once again looking into the darkness under the stairs, Ronye felt sweat spreading over her palms.
+
+*I do not like the disjunctive way the high-priority iron grid key was hanging just out of reach. I do not think it is a trap to lure an intruder into the basement — but if so, they wouldn’t have to lock it, to start with — and I cannot predict what is inside so far.*
+
+Ronye lifted the line of sight from Tsukigake, rubbing its body against the feet as if sharing the owner's anxiety, to Tiese, and suggested:
+
+"Hey, Tiese. I will check it down, so you can stay here..."
+
+"Declined, I will go too, of course."
+
+She distinctly shook her head, denying the option to wait outside with the dragons.
+
+"……all right. But be careful, OK?"
+
+"Sure."
+
+Saying so Tiese encouragingly smiled, and Ronye smiled in response and walked up to the bush on the left. Chose a branch without thorns and broke it. Generated a light element and fixed it to the leaf at the tip of the branch by the "**adhere**" phrase.
+
+Embracing Tsukigake with the left arm, she raised the newly-created torch with her right hand and stepped into the building. After waiting for Tiese and Shimosaki to enter, she closed the door and locked it again. She could bring the key along, but it might indicate the intrusion, so she returned it to the nail which was located just beneath the ground level.
+
+The descending stairs were longer than could be imagined. There was a landing after they descended thirty steps, and then it went for another thirty, where it finally turned into a flat aisle. Since the height of one step was about 20 cen, it could be counted as about 12 mels underground. For Cathedral, that would be equal to a height of a third floor.
+
+The air was somewhat warmer than outside, but also damp and moldy. In truth, they first thought that there might be a hidden treasure chest of the emperor Norlangarth stored in the basement, but if someone keeps it in such a place, the treasure box will lose its Life in a few years and it will decay into trash.
+
+After about 50 meters, the long underground passageway turned to the right. Finally, they saw a weak light ahead. But it was not a relief. Whatever the light source was, there must be someone who ignited it.
+
+There was still a distance of over 30 mel to the light, but Ronye saw the other one giving her a sign and stopped. No noise or talk could be heard at that moment. When she carefully tried to resume advancement, her cloak hood was lightly pulled behind.
+
+She startled, winced and turned around.
+
+"……What's wrong?"
+
+To that whispered question, Tiese looked up at the ceiling of the aisle with a difficult expression. Ronye also looked upwards, but she could only see the same stone-cladding as the wall was made of.
+
+Tiese muttered, frowning:
+
+"Went from the backyard northwest, entered the forest... descended from that small shrine to the basement, turned back once....... ── Ronye, is this not the basement of the mansion by any chance?"
+
+"Ehm…………"
+
+After hearing her words, Ronye also imagined the plan of the manor and the forest. She nodded slowly after blinking.
+
+"Yeah, that's right...... what is wrong with that?"
+
+"Because...... isn’t it weird? If it's a basement of a mansion, you only need to make a staircase to the building... Why would you have an entrance in the forest several tens of mels away?"
+
+*To say the truth, Tiese's made a good point. Again, a sense of discomfort revived after thoughts of a key fitting to the metal grid hanging near the entrance, but even if you think it all over, the answer will not come out.*
+
+"Maybe we'll find out if we take a look at what’s down there..."
+
+When Ronye responded in whispering, her partner muttered "well...". After all that happened so far, they couldn’t turn back without having checked every corner of the basement.
+
+After this exchange, two people with two animals began tiptoeing south along the passage.
+
 
 
 ## To be continued...
