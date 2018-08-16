@@ -621,6 +621,72 @@ Judging that there was no choice but to take them along, Ronye bent backward.
 
 After she lightly stroke the head of Tsukigake who responded with a quiet **ku-ru-ru**, the dragon slowly stretched the back.
 
+Another glance at the footpath revealed that the footprints of light had already disappeared, but there was no danger of getting lost due to the size of the forest. They with Tiese nodded to each other and stepped inside together.
+
+Just after a few mels on the dark path the air became freezingly cold. That day was warm manifesting the soon coming of spring, but the air the darkness exhaled seemed to be colored midwinter-white.
+
+*I have bad feeling*, thought Ronye. The throne in the Norlangarth castle to which they rushed together with Tiese at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls and floor for a long time somehow deprived the warmth.
+
+The two-thirty bell haven’t rung yet, but the darkness was steadily increasing as they proceeded. Both sides of the path were blocked by a hedge with sharp thorns, and more and more branches of old trees overlapped above their heads.
+
+*What if it gets darker even more, and I can’t use the light element’s light.....*. she thought, and then:
+
+"Ah...... Ronye, there!"
+
+Tiese sharply whispered, Ronye also stared ahead.
+
+In the depths of the darkness, there was a number of vertically standing metal rods. The first guess would be that they reached the iron fence surrounding the forest. However, that was the iron gate rather than a fence. There was a small building, about of a shrine’s size, in the end of the path, and the gate was the front door bars.
+
+They halted, making sure that there are no signs of people around, then carefully approached.
+
+"... this building, it is quite old...."
+
+Like Tiese murmured, the stone walls looked dusty are blackened as if exposed to the wind and rain, and moss was covering the areas touching the ground, appeared that in ten-twenty years’ time this won’t stand anymore without proper support. A high double iron gate was also thin and covered with rust, it didn’t seem that a high priority material would be decaying so much.
+
+The left and right doors fitted together without any gaps, and a sturdy lock was installed about one mel from the ground. Pulling the iron grid with both hands gently, as expected, did not break them open. On the other side of the door there was a staircase descending below the ground, ending with the complete darkness.
+
+"It's locked here too."
+
+Tiese replied to Ronye’s words with a regretful face.
+
+"And yet there’s something inside, for sure......."
+
+That tone, radiating with the same emotions she felt recently, made Ronye relieved a little bit. Of course, it did not mean that the fear of ghosts has gone, but someone who is coming in and out through the back door of the mansion was obviously not ghost, but a living being. Perhaps, the same people who made sounds in the mansion.
+
+*As an apprentice knight I’d very much like to identify the person who is breaking the Human World Union Council's no-entry ban and catch this villain — but that does not mean I can destroy the lock. There is no crime committed in front of my eyes.*
+
+*It’s a pity*, Ronye thought, *but there is no choice but to go back to the Cathedral and report the situation and get back with someone of the senior knights*. But Tiese exclaimed the same she said just now:
+
+"Ah....... over there!"
+
+She pointed to the wall on the right side of the descending staircase with her right hand protruding into the gap in the iron grating. Ronye also brought her face close to the gate, staring into the deeps of the darkness.
+
+There was something blinking around the seventh step down the stairs. A broken nail stuck in a wall, something of a dull silver color hanging on a string over it, something elongated......
+
+"…………key!"
+
+They exclaimed together and exchanged looks.
+
+It was probably a duplicate key prepared for the time when someone gets locked inside by chance. In other words, this exotic grid door was to prevent intrusion from the outside.
+
+At the same time, they both tried to reach out through the gap in the grid, but since the width of the gap was only ten cens, only a shoulder would fit and the key would be out of reach.
+
+"... an "arm of mind" could be used here......."
+
+Overall, one could agree with Tiese's groaning voice, but if you are able to do so, it’s rather worth trying to invoke Kirito’s "Pick of Mind". Looked around, for something like a long bar, but there was no such thing falling conveniently.
+
+But, on the other hand, they’d need to find a bar about 3 mel length, to take the key out from the outside, so it appears to be an unlikely story to happen. *If you keep a duplicate key, why should it stay so far down the staircase?*
+
+When Ronye thought again, what on earth this building is exactly, that happened.
+
+That moment they heard the dragon's roaring "Ku-ru-ru-ru.......". Looking down, they saw the light-blue feathered Shimosaki trying to thrust his body into the gap in the grid. Tiese who saw it asked, worriedly:
+
+"Hey Shimosaki, you think you can get through this gap...?"
+
+But before she finished, Tsukigake’s head showed Shimosaki's back. The body of the young dragon passed through the gap at once, and after one full somersault, it stood up in front of the staircase.
+
+"Kyu-ru-ru!!!"
+
 
 
 ## To be continued...
