@@ -24,7 +24,7 @@ _**Asuna:** Let's enjoy it while it's hot.
 ![Image](/Translate/Img/k004.jpg)
 
 _**Man in the black robe:** Unwelcomed guests. Or... should I call it God Vector's guiding hand?  
-**(Tiese):** ...Uhm...so...   
+**(Tiese):** ...Y-you've<sup><a href="#Prim2">2</a></sup>...   
 **(Ronie):** It's... impossible_  
 
 ***
@@ -34,3 +34,4 @@ _**Man in the black robe:** Unwelcomed guests. Or... should I call it God Vector
 ## Footnotes:
 
 1. <a name="Prim1"></a>...enkinegio (えんきねぎお), seasoned onigiri.
+2. <a name="Prim2"></a>Tiese there tries to say something starting with うそ, and given her nature and the way of speech it's probably "うそでしょ" — "You've got to be kidding".

@@ -757,6 +757,221 @@ When Ronye responded in whispering, her partner muttered "well...". After all th
 
 After this exchange, two people with two animals began tiptoeing south along the passage.
 
+Up ahead, the yellow light was vaguely trembling. Concentrating on the musty smell, it could be noticed that it contained a burning aroma unique to oil lanterns. And some faint different smell, too.
+
+Tsukigake, still held under the left arm, also pointed out twitching snout. While feeling as though it was a smell smelt somewhere, they kept tiptoeing on.
+
+Eventually, turned out the light was produced by two oil lanterns attached to the wall on the right. The passage was a dead end, but just before it, there seemed to be something on the left wall. It was another grate shinning dully up ahead in the light of the lanterns — no, it was rather…
+
+"...... P-prison...?"
+
+— whispered Tiese, Ronye slightly nodded to her.
+
+It was too big for a door. The iron lattice extending from the floor to the ceiling was exactly like that in the cellar of the South Centoria Guards building. There were two large cells of about four meters wide, placed side by side. The corner blocked the view of what’s inside.
+
+Moving ahead steadily, back against the left wall. As they approach the prison, the mysterious smell became stronger. *It is something like a worn leather armor, like dried straw in the sun. Same smell I smelt... somewhere in the Dark Territory, not Human World.......*
+
+Before the answer came to her, Ronye reached the closest cell and stopped before it. Together with Tsukigake she embraced, they both slowly stuck heads out from behind the wall and peeked inside.
+
+The light of lanterns hanging on the opposite wall was too weak, and did not reach into the depth of the cell. After gently inserting the lit branches, she quickly understood that it is not empty inside. At the far corner from Ronye, three prisoners could be seen. It seemed, they were sleeping, huddled.
+
+The bodies wrapped in some rags were quite short. All of them were under the half a mel. *Children...... no, their arms are too long for the case. Hairless heads, sharp noses and ears.  
+They are neither children nor a Human World person.  
+They are Goblins.*
+
+She recoiled, biting hard the branch in her right hand. In a second, Tiese’s face appears near.
+
+"What's wrong....... Was there anyone?"
+
+Ronye nodded several times to this whisper. Exhaled, then sucked in air deeply through the nose. There was no doubt, this mix of the dry straw aroma and the common body odor she smelled in the past, at the time of visiting the mountain Goblins.
+
+"There are...... mountain goblins, three of them. I think they are the tourists who were taken away from the Inn in Southern Centoria."
+
+"Eh…………"
+
+Tiese rounded her eyes and looked into the prison, clinging to Ronye's body. She returned to the original position in about three seconds and nodded.
+
+"It's really the case... but... how...? How did goblins kidnapped in South Centoria end up in the Northern Empire Emperor's domain?"
+
+This question could not be answered right away.
+
+*In order to move from Southern Centoria to Northern Centoria, one would need to go through Eastern Centoria or Western Centoria and in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic bill or a one-day passage permit, and of course, neither bill nor permit is easy to obtain.*
+
+*No, a fake official who abducted the goblins would fake the identity of the Southern Centoria administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Northern Empire. There is also a vast land in the Southern Empire, and there should be enough places to hide the goblins.*
+
+"...... let’s think about it later."
+
+Having muttered this mostly to herself, Ronye looked at Tiese’s face.
+
+"We have to bring those three out of here and take them to Cathedral."
+
+"Yeah... but look, there is a lock on the prison, is not it?"
+
+It was as Tiese pointed out. They quickly looked over the surrounding walls but, as expected, it was not possible to find the key again. However, the situation was quite different from the previous one.
+
+Tourists from Dark Territory, taken away by a fake official, are imprisoned in front of one’s eyes. It is an obvious rebellion against the Human World Union Council, even the own judgment of apprentices Ronye and Tiese was enough to draw the conclusion.
+
+"I will break the cell."
+
+Having said so, Ronye touched the handle of Sword of the Moonlight with her right hand.
+
+*The material of the prison’s iron grid is probably the same as the one of the ground-level entrance gate. But the sword’s priority should not lose. Whether you can cut through or not depends on the skill of the user.*
+
+"... I understood. Please do it, Ronye."
+
+Tiese who smiled for a moment, looked into the prison again.
+
+"But we should wake up goblins before that. They will be scared if you suddenly use the secret skill."
+
+"Well..."
+
+Although Tiese's fear is reasonable, it was unexpectedly challenging to quietly awake the goblins who might have fallen asleep as they were exhausted. If they scream, the kidnappers in the house above would be alarmed.
+
+Of course, it is not silent to cut through the iron grid with a sword either, but if you use the fastest secret technique Ronye knew — and if it is completely successful, it will be suppressed to a quiet metal sound. Because of this, the goblins must be awakened in advance.
+
+After squatting down on the floor, Ronye released Tsukigake on her left arm. It happened when she put both hands around her mouth and was about to gently call the sleeping goblins.
+
+A loud noise echoed through the passage, as if some heavy things were grinding.
+
+At the same time as Ronye and Tiese abruptly rose back to the standing postures, the three mountain goblins jumped up in the prison and began to shout after noticing Ronye who was in front of the iron grid.
+
+**"Giiii**!!!"
+
+"Stop it, not hurt more!"
+
+The three of them, apparently handled quite roughly when imprisoned, embraced each other hard and shuddered. It would be necessary to explain that they came to help, but the timing was off.
+
+The wall at the end of the aisle they thought that it was a dead end was slowly rising with the roaring sound. Hidden door ── no doubt the sound faintly heard at the front door of the mansion was the same sound.
+
+And the fact that the door was opening meant that someone was going to enter the dungeon from there.
+
+There was no place where they could hide themselves in the aisle. Since the turning bend behind was more than 30 mel away, they already could not run away in time.
+
+"...... There is no choice but to fight."
+
+— Tiese sharply whispered close to the ear of frozen Ronye.
+
+That was exactly right. If you cannot hide, the only remaining option is to fight or to surrender. The question is only which one to choose.
+
+Ronye and Tiese simultaneously pulled out swords from their left hips and held them with both hands.
+
+On the floor, widely spreading the wings, just in front of Ronye's feet — apparently preparing to fight defending his owner — Tsukigake, and next to him, at Tiese's feet, Shimosaki stood quickly.
+
+"Tsukigake, Shimosaki, get into the cell now and stay quiet!"
+
+Young dragons leaked unhappy "Ku-ru-ru......", but obeyed the order. First, Tsukigake squeezed through the gap in the iron grid. Rattling the grating with both legs, it bent the body to go through the gap, and rolled up in the center of the cell. Mountain goblins let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
+
+Next, Shimosaki tried to go through the grid. The hidden door was already half-lifted, and white-smoke-cold air flowed out of the darkness on the other side. The darkness was too dense, it wasn’t possible to see the appearance of the one who was behind the door, but the presence felt somehow familiar.
+
+"Shimosaki, hurry!"
+
+To Tiese’s voice, Shimosaki responded in a pained growl. Apparently, the gap of the grid was slightly narrower than the door on the ground. Tsukigake, who was somewhat smaller due to fish dislike, managed to pass through but the joint of Shimosaki’s wing got stuck.
+
+She thought about pushing by hand, but if it is done too aggressively, one might break delicate wing bones. While she was hesitating, the door opened more and more.
+
+"Shimosaki, you're good! Behind us!"
+
+Tiese shouted again without hesitation while holding the sword ready. Shimosaki also answered "Ku-ru", pulled the body out from the iron grid and ran behind the two of them.
+
+At last the hidden door lifted almost to the very ceiling and stopped with a loud sound.
+
+A few seconds later, they heard **ko-ts**, a shuffling, dry sound of footsteps. **Ko-ts**, **ko-ts**, then steps over the stone floor, someone was approaching from inside the darkness.
+
+Ronye hardly kept the impulse of slashing them with the secret skill before she could see the figure appearing. That would be not a knight’s but a coward’s action, besides, once the person is killed you won’t know the identity of the opponent or the reason for abducting the mountain goblins.
+
+After several seconds that felt tremendously long passed, finally someone appeared in the weak light of oil lantern.
+
+His appearance was completely black, as if the darkness itself had crystallized into a human figure. Before she understood that he was just wearing a jet-black robe, Ronye wasn’t sure for a moment, whether it was a really living person or not.
+
+*── No, it is a human.  
+Moreover, one of a remarkable appearance.*
+
+The one who kidnapped Lisetta, the daughter of the Dark Territory commander Isukan and ambassador Scheta, the man in the black robe. The human figure in front of her emanated exactly the same atmosphere as the one, whether a human, or a demon, whom she opposed on the sealed top floor of Obsidia Castle.
+
+*However, it is impossible.*
+
+Only three days have passed since the kidnapper in the black robe jumped out of the Obsidia castle window and disappeared. The distance from Obsidia to Centoria is more than 3,000 kilolu. To move between them, it takes half a year on foot, three months in a carriage, and two weeks even for a horse messenger moving quickly through ten connected towns and villages. In order to move in three days, one only had to use a dragon, but if one flies a dragon that is not owned by Integrity Knights over the Human World, it would have made a big fuss.
+
+*Is it the same person, or is this one just close enough to their counterpart?*
+
+Trying to find the material to judge it, Ronye desperately looked him over.
+
+The kidnapper had his right arm cut off with a sword of ambassador Scheta called "silent knight", and immediately after that his left arm was slashed with Ronye's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms and legs by healing techniques but certain awkwardness in motion should still remain for at least one week.
+
+But the black robe man — still unclear whether or not it was him ─ stopped after making one step ahead and did not move anymore. From the darkness behind the deep hood, only his eyes glittered, fixed on Ronye and Tiese.
+
+*Estimates our attitude...... or, is he waiting for something......?*
+
+Ronye thought this way, firmly grasping the Sword of the Moonlight with both hands.
+
+*Whatever the man is waiting for, there is no reason for us to play along. If he is truly the same person as the kidnapper in Obsidia, the man would use poison. Rather than just wait for him to use something he’s got, we should hit first action here.*
+
+They didn’t kill him, though. Ronye would slash the enemy's right leg and Tiese would slash his left leg to take away the ability to fight.
+
+When Ronye moved a little to the left, Tiese instantly realized her intent and swung the sword in the opposite direction.
+
+In order to execute Incrad style secret move "Slant" at the same time, they had to align breath. Inhale, exhale and inhale again.
+
+Ronye tried to move the moment she felt she was in complete sync with her best friend.
+
+However, as if to steal that last breath, the black robe man moved with perfect timing.
+
+Had he attacked, Ronye and the other one would have executed the secret moves without any hesitation. However, the man quite casually lifted both hands, and merely swept the black hood behind. The breathing was disturbed, and Ronye slightly drew the sword tip back.
+
+Almost at the same time, a low voice sounded.
+
+"Unwelcomed guests. Or... should I call it God Vector's guiding hand?"
+
+That low, rusty voice was familiar. It was quite different from Obsidia kidnapper’s gentle breeze-like voice.
+
+The movement of both hands lifting the hood was also smooth, and above all, Ronye was familiar to the man’s face.
+
+A fierce and violent appearance reminiscent of a bird of prey. Gray mustache and beard with sharply pointed tip. Pair of eyes shining in the light-blue like a frozen lake.
+
+"...... Y-you’ve got to......"
+
+— Tiese muttered in trembling voice.
+
+Ronye also wanted to say exactly the same.
+
+Norlangarth Northern Empire Sixth Emperor, Krueger Norlangarth....
+
+A bursting with flames decoration hanging on the jet-black wall, distant sounds of sword fight — the memories revived vividly.
+
+*But, this is impossible. Emperor Krueger certainly died by the throne in the throne hall of the Imperial Palace, just about a year ago.*
+
+Ronye and Tiese were engaged in the seesaw sword fight directly with the emperor, who attacked in the High Norkia style, which boasts the power of a blow, although the cooldown is also long, for more than five minutes. Then Dusolbert, who came late, shoot the emperor's right leg with a fire arrow from his Divine Object Conflagrant Flame Bow, so when his movement stopped, Ronye and the other one without missing a moment simultaneously executed their secret moves, deeply penetrating the emperor's right and left sides of chest.
+
+There is no human being able to live with such wounds. The death of the emperor was also confirmed by Dusolbert, the body was taken to the Cathedral, and brought to cremation with the other two emperors. Ronye certainly saw that the remnants of the emperor became grains of divine power and melted away in the air.
+
+Therefore, Emperor Krueger simply couldn’t be alive.
+
+Yet the man in a black robe in front of them could not be thought of as anyone else except for the emperor Krueger himself.
+
+Ronye has become numb and could neither move nor talk. The field of view narrowed, the sense of the body disappeared. Only the man's severe icy eyes were getting bigger and bigger.
+
+Because she was in such a state of paralysis.
+
+To a faint sound she heard from behind, the response was delayed.
+
+*── Footsteps...... unexpected...... enemy!*
+
+As these fragmentary thoughts sparked in her mind, Ronye quickly turned around while turning her left hand towards the man who had the face of the emperor. But at that time, another black robe man who was quietly creeping unnoticed until getting in the close vicinity abruptly jumped back.
+
+And the man's left hand was gripping the neck of the young dragon wrapped in blue feathers.
+
+"Gyu-ru-ru-u!!!"
+
+— the dragon screamed painfully.
+
+"Shimosaki!!!"
+
+— Tiese cried out with a grieving voice.
+
+Both of them were constantly talking to Tsukigake and Shimosaki since the moment the eggs the mother-dragon "Akisomi"<sup><a href="#Prim7">7</a></sup> was brooding, finally hatched, essentially, they spent eight months together. There was absolutely nothing that could hurt more.
+
+Tiese tried to jump to the man in a black robe straight away, but froze on the spot just like Ronye did, after making a step ahead.
+
 
 
 ## To be continued...
@@ -769,3 +984,4 @@ After this exchange, two people with two animals began tiptoeing south along the
 4. <a name="Prim4"></a>Yes I am aware it’s still late February, several days after snow melted.
 5. <a name="Prim5"></a>Ronye doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
 6. <a name="Prim6"></a>The original says “lowered” but given both girls should be under 160 cm (you remember the 180 cm "giant", don't you?), you’ll have nightmares if you try imagining that.
+7. <a name="Prim7"></a>暁染, Color-of-the-dawn. I wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i”), which would raise more questions about this never-heard-of-before dragon.
