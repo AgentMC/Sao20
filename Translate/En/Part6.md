@@ -972,6 +972,80 @@ Both of them were constantly talking to Tsukigake and Shimosaki since the moment
 
 Tiese tried to jump to the man in a black robe straight away, but froze on the spot just like Ronye did, after making a step ahead.
 
+The man put a large knife he held in his right hand to the base of Shimosaki's neck.
+
+The blade of the knife was dyed reddish green, and it was clear at first sight that the color came from poison. Shimosaki himself also seemed to sense the danger, stopped struggling.
+
+The man retreated silently without saying a word and stopped in more than five mels away from them. Anyway, they couldn’t move a finger in this situation.
+
+"You are knights, but care about that lizard."
+
+The emperor Krueger standing in front of the hidden door — or at least the man with his face and voice, began talking, sneering sarcastically.
+
+"Is it not just an animal after all? There will be many alternatives, I find it hard to understand."
+
+"...... You don’t need to understand anything."
+
+— Tiese answered with a voice that pushed the pressure away.
+
+"Tell him to let Shimosaki go. If you scratch as much as his hair, none of you two will get outta here alive."
+
+"Ku-ku-ku, becoming a knight, one also gains power."
+
+After letting out a gruesome laugh, the emperor-like man traced the left side of his chest with his finger. A year ago, that place was deeply penetrated by Tiese’s sword.
+
+"But unfortunately, it is myself who gives orders here. Both of you, throw down swords and slide them away with your feet. If you do anything even a little strange, the head of the baby lizard will fall."
+
+*── At that time your neck will fall as well.*
+
+She would respond this way, but even if the opponent is a true emperor Krueger, they couldn’t afford risking Shimosaki's life. Ronye turned the gaze of her squinted eyes to Tiese and slightly nodded to her.
+
+Together they dropped the released swords onto the floor. While apologizing to the swords in the mind, they carefully hooked swords with tips of boots and gently slid them to the emperor.
+
+The emperor picked two swords with the right foot appearing from under the hem of robe and casually kicked them behind the hidden door. The silver glow glinted in the dense darkness and disappeared.
+
+"Good. Now, the next order."
+
+With his right hand he took out a shiny black key of the robe's bosom. And threw it to Ronye. Reflectively she caught it with both hands. Despite it was supposed to have been in the pocket for a long time, the key was as cold as ice.
+
+"Open the cell next to the goblins, get inside, close the door and lock it."
+
+Ronye was considering a plan of approaching the emperor when he picks up the sword to dispose of it and thus loses the focus, capturing him with bare hands and using the hostage to make the man behind to release Shimosaki. However, the emperor calmly kept the distance and did not move. Quickly glancing behind she saw the poison blade still put against the neck of Shimosaki who had to endure it, struggling occasionally.
+
+They understood that escape will be difficult once they enter the cell, but they had no choice but to obey.
+
+Ronye signaled Tiese with eyes, they approached an empty cell in the back of the left side. She unlocked the door with the key she got and entered inside together with her friend. Closed the door, thrusting the hand through the gaps in the lattice, inserting the key into the keyhole and turning it to the right.
+
+*To pretend it is locked and in fact to leave it in an unlocked state...... I guess, that is probably impossible. The words Kirito said: "The key and keyhole of this world is systematic rather than mechanical mechanism" are reviving in the mind.*
+
+_The sacred word "**system**" in the context of Sacred Art is a word meaning "the principle of the world". The key master, given a Sacred Task inherited from generation to generation, from parents to children, makes a keyhole by punching the iron plate with family-specific chisel, then makes a key from the iron scraps from the same plate, and it is only because so is determined by the principle of this world that only the pair of those key and keyhole functions as a combination, I guess, that’s what Kirito meant. For this very reason, there are only two positions of a key: "locked" and "unlocked", and there is no way to fake a state when it looks as if it is locked, but will be unlocked with a strong shock._
+
+As Ronye turned the key to the right, at certain point she felt a kind of resistance, and eventually a ruthless sound **ga-chin** was heard. Having pulled the key out, she threw it back the emperor.
+
+Emperor Krueger who caught it with a pale right hand smiled again while returning the key to the bosom of robe.
+
+"Ku-ku... quite a wise decision. I wouldn’t want to defile this historic place with lizard blood."
+
+"...!!!"
+
+Placing the left hand on the shoulder of Tiese who was about to shout in anger, Ronye asked in a quiet voice.
+
+"Historic......? It looks like just a dungeon."
+
+Then the emperor picked a sharp chin beard with his fingertips and nodded.
+
+"It is certainly just a dungeon. However, the stone you are stepping on, for over 300 years had soaked in a lot of blood. The blood of many people of my territory, punished by the aristocratic judgement right....... "
+
+"............!"
+
+Ronye stopped breathing and dropped the gaze to the dark floor stone by her feet.
+
+The aristocrat judgement right was a privilege given only to the emperor and the senior aristocrats, to punish those who misconducted at their own discretion. Although only the lower aristocrats and the private territory commoners were the subject to punishment, Ronye's father, who was the sixth-class nobleman, seemed to have been humiliated several times due to punishment caused by higher aristocrats’ accusations.
+
+But even aristocrats could not violate the Taboo Index, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Integrity Knights, who had been granted the greatest rights in Human World, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
+
+"...... The punishment that makes the floor dyed so much would be a violation of the Taboo Index."
+
 
 
 ## To be continued...
