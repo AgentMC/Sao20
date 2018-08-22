@@ -1046,6 +1046,66 @@ But even aristocrats could not violate the Taboo Index, which prohibited the dep
 
 "...... The punishment that makes the floor dyed so much would be a violation of the Taboo Index."
 
+When Ronye pointed that out in hoarse voice, the emperor laughed again:
+
+"Ku, ku-ku-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Emperors of the four empires and of a senior aristocracy existed only due to the exploitation of that method."
+
+The moment she heard the words, the abominable memory ripped her mind like a lightning flash in the dark night.
+
+Former elite swordsman-in-training Raios Antinous tried to trap Ronye and Tiese at the time when they were students, and then disgrace them using aristocratic judgment right as shield. This way his father, 3rd-class aristocrat brought him up, and the father of his father, and it can only be imagined how sneaky and unscrupulous acts were happening in their private territories.
+
+Especially, if a person is the emperor Norlangarth, standing above all the aristocrats ──
+
+"... Didn’t you wonder, girl? Why is there an underpass to the forest in the back yard while there is also a door leading to the mansion?"
+
+Unexpectedly asked, Ronye looked at the face of the emperor through the iron grid.
+
+With the faint smile burning under the thin mustache, the emperor said without waiting for an answer.
+
+"Of course, it's to bring out the dead bodies, so that the blood of those filthy serfs does not defile the house."
+
+"W-what?!"
+
+— Tiese shouted. She rushed to the grid with the full speed her body allowed for and grasped the steel rods with both hands.
+
+A wave of anger run through the whole body of Ronye. The man in front of her ── or rather whole his family, since long ago had been confining their private territory dwellers to this prison, slipped around the Taboo Index and tortured them, taking life after life.
+
+The metal grating on the ground found by the two people was not to prevent intrusion from the outside. That door was opened to bring out the corpses of innocent people from the underground dungeon from the inside. That is why the key was hanging in an unusual place. Because if you think about it, there is no chance someone would sneak with malice into the emperor's house within the emperor’s territory.
+
+Even though Tiese was an apprentice of an Integrity Knight, when she pulled the iron grid with all her strength, the grill only slightly creaked. Imagining how the private territory dwellers trapped here before desperately grabbed the grid, Ronye felt more and more anger rising in her trembling body.
+
+However, at that time, a man in black robe who captured Shimosaki appeared without any sound from the right side of the aisle and stood behind the emperor. After seeing the poisoned knife left on the neck of the young dragon, Tiese released the grid.
+
+Whether because he got tired struggling, Shimosaki was looking limp, and only thinly squeaked "Kyuii..." noticing his owner. The moment she heard the voice, Tiese also leaked a thin and short sobbing, and tears filled Ronye’s eyes.
+
+But she made herself to hold any loud sound.
+
+Tsukigake was hiding in the neighboring cell separated only with a stone wall. He is now following the previously received instructions of staying quiet, but if Ronye gave vent to the feelings Tsukigake would not be able to endure as well. He might even jump out of the prison and try to save his brother dragon<sup><a href="#Prim8">8</a></sup> from the man in the black robe. The situation seems to be already bad, but if Tsukigake is caught, the possibility of escape would be considerably lower.
+
+*── So please remain quiet, Tsukigake.*
+
+While sending these thoughts through a thick stone wall, Ronye desperately tried to suppress her anger.
+
+That moment Emperor Krueger has turned his sharp glance at her as if he had read the thoughts.
+
+"...... Black-haired girl, didn’t you bring your little lizard?"
+
+Tiese replied instead of Ronye who could only silently nod because of this surprise attack, still holding the grid.
+
+"...... Today, we came to catch some fish in the lake to correct that child's fish dislike. Ronye's dragon is waiting in the Cathedral."
+
+"Oh.... You girls do not know, but there are five kinds of fish living in Lake Norkia. I allowed to fish four of them, but those who caught a forbidden golden trout quickly got into this prison."
+
+Tiese refuted to the emperor who said that in a nostalgic tone.
+
+"...... It would be impossible to fish only certain fish."
+
+"Aha, it is impossible. But the hungry people had nothing else left but to fish, praying that the most delicious golden trout would not hang on the hook. Only one could be caught per about three hundred fish, but given good fortune.... no, bad fortune, it was a real pleasure to watch   from the lakeshore the sorrow of those who had it enough to catch the forbidden fish."
+
+While staring at the emperor laughing gutturally “Ku! Ku! Ku!”, Ronye had to endure her fierce anger once again.
+
+Certainly, violations of the Taboo Index and Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the emperor was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ronye and Tiese to be able to apply the aristocratic judging right.
+
 
 
 ## To be continued...
@@ -1058,4 +1118,5 @@ But even aristocrats could not violate the Taboo Index, which prohibited the dep
 4. <a name="Prim4"></a>Yes I am aware it’s still late February, several days after snow melted.
 5. <a name="Prim5"></a>Ronye doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
 6. <a name="Prim6"></a>The original says “lowered” but given both girls should be under 160 cm (you remember the 180 cm "giant", don't you?), you’ll have nightmares if you try imagining that.
-7. <a name="Prim7"></a>暁染, Color-of-the-dawn. I wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i”), which would raise more questions about this never-heard-of-before dragon.
+7. <a name="Prim7"></a>暁染, Color-of-the-dawn. I wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Tsukigake is the only exception I know), which would raise more questions about this never-heard-of-before dragon.
+8. <a name="Prim8"></a>Worth noting, 兄竜 confirms that a) Shimosaki is male, and b) Shimosaki is older than Tsukigake.
