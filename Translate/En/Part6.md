@@ -1106,9 +1106,83 @@ While staring at the emperor laughing gutturally “Ku! Ku! Ku!”, Ronye had to
 
 Certainly, violations of the Taboo Index and Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the emperor was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ronye and Tiese to be able to apply the aristocratic judging right.
 
+After a long laughing, the emperor turned his gaze away.
 
+"Hmm, it seems that there is only one lizard indeed, but I’ll keep this one for now. Worry not, it will be fine...... unless you try to escape from the prison, in which case I’ll roast and let the goblins eat it."
 
-## To be continued...
+Having said so, emperor Krueger turned towards the hidden door.
+
+But then stopped there and glanced at Shimosaki whose neck was still held by his subordinate.
+
+"....... Zeppos, do you think the lizard can pass through the cell grid?"
+
+Ronye's heart made a giant leap. A man in black robe named Zeppos lifted Shimosaki up to his face and inspected him carefully, then said with a surprisingly shrill voice.
+
+"If forcibly pushed in, maybe."
+
+"Is that so?"
+
+The emperor nodded and lifted the oil lantern from the wall and directed it towards the cell with Ronye and Tiese. His sharp gaze browsed through every corner, then he nodded again as if satisfied.
+
+*Leave it and go away*, Ronye prayed. However, the emperor turned right instead of the left and walked in front of the next cell.
+
+Tsukigake was hiding in the dark in the corner, but if illuminated with a lantern, pale yellow feathers will be seen instantly. She could distract them somehow, but calling them would probably result in a negative effect only earning several tens of seconds, which would be meaningless.
+
+*──Tsukigake, If you’re found, do your best to get to the door at the ground and run away!*
+
+Ronye clenched fists hoping her thoughts reach the addressee.
+
+Emperor standing in front of the neighboring cell lifted the right hand with the lantern. Frowned, stretched his neck and began to persistently look around the inside of the cell.
+
+Three seconds passed...... five seconds... ten seconds.
+
+"............ Hm"
+
+Having shortly snouted, the emperor moved away from the grid. He returned the lantern to the holder on the wall, and returned behind the hidden door without even glancing at Ronye and the other one. Behind him followed a man called Zeppos still holding Shimosaki.
+
+Some time has passed since the silhouettes of those two persons vanished, and a quiet sound "**ga-kon**" was heard from the deeps of the darkness, after which the hidden door lifted to the ceiling started to fall with the roaring.
+
+When the lower end of the door touched the floor with the earthy sound, Ronye suddenly breathed out the air she was holding. Tiese released both hands which were grasping the iron grid all the time, quickly approached Ronye and pressed the forehead against her shoulder.
+
+"... It's gonna be fine, Shimosaki......"
+
+Ronye nodded several times to this hoarse voice:
+
+"Of course, Shimosaki is an important hostage for them, they will never hurt him."
+
+"…………Uhu."
+
+After stroking Tiese's back few times, Ronye gently released her body. She approached the iron grid carefully and spoke to the right cell with a quietest voice:
+
+"Thank you, goblins-san."
+
+For quite a while silence continued, but eventually a similar whispering voice was heard:
+
+"...... Tiny dragon, cannot find."
+
+That's right — there was only one reason why emperor Krueger could not find Tsukigake in a small cell. The mountain goblins who gave frightened voice when Tsukigake got into the cell, hid him from the eyes of the emperor using their bodies.
+
+"Thank you very much……"
+
+When she thanked them again, there was also a quiet chirping "Ku-ru".
+
+Tsukigake who passed through the iron grid back appeared in front of Ronye. When the young dragon tried to push the body through the grid again, Ronye crouched and pushed him back with both hands.
+
+"Tsukigake, I beg you. Go along this aisle to the ground and get to the north gate of Centoria somehow...... when guards-san see you, they will take you to the Cathedral."
+
+It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Northern Centoria, and it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ronye did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
+
+But that moment, Tsukigake was the only hope remaining. It was probably impossible to break the grid without a sword, and even if they do somehow it would certainly be noticed by the emperor, and Shimosaki might be killed.
+
+While suffering from strong anxiety, she wrapped Tsukigake's body with both hands thrusted through the gaps in the grid. The young dragon chirped "Please leave it to me" or perhaps something alike in response.
+
+He retreated back from Ronye’s hands, flapped the wings twice, and then started running north along the aisle. Soon his figure disappeared and the clinking footsteps tailed away.
+
+"...... I’m sorry...... but please, Tsukigake."
+
+Knelt on a hard stone, Ronye gripped both hands and prayed.
+
+![Image](/Translate/Img/p205.jpg)
 
 ## Footnotes:
 
