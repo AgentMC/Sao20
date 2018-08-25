@@ -18,7 +18,7 @@ Contents:
 - [Part 5](Translate/En/Part5.md)
 - [Part 6](Translate/En/Part6.md)
 - [Part 7](Translate/En/Part7.md) (30%)
-<-- - [Part 8](Translate/En/Part8.md)
+<!-- - [Part 8](Translate/En/Part8.md)
 - [Part 9](Translate/En/Part9.md)
 - [Part 10](Translate/En/Part10.md)
 - [Afterword](Translate/En/AW.md)
