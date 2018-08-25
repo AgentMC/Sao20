@@ -2,10 +2,10 @@
 ## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 20 (Moon Cradle, part 2)
 ## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 20 (Мун Крейдл / Лунная Колыбель, часть 2) 
 
-Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation of web version, it helps a lot, too). However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
+Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation of web version, it helps a lot, too. And that Bing translator is (suddenly) good at some crazy hiragana sequences like そうかっかしなさんな, so I use it as well now.) However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
 Overall progress: translating...  Estimated finish: somewhere in ~August~ September.  
-`#############################>-------------------- 59.44%`
+`##############################>------------------- 61.11%`
 
 Contents:
 
@@ -17,7 +17,7 @@ Contents:
 - [Part 4](Translate/En/Part4.md)
 - [Part 5](Translate/En/Part5.md)
 - [Part 6](Translate/En/Part6.md)
-- [Part 7](Translate/En/Part7.md) (30%)
+- [Part 7](Translate/En/Part7.md) (60%)
 <!-- - [Part 8](Translate/En/Part8.md)
 - [Part 9](Translate/En/Part9.md)
 - [Part 10](Translate/En/Part10.md)

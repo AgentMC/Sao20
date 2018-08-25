@@ -795,7 +795,7 @@ Tiese rounded her eyes and looked into the prison, clinging to Ronye's body. She
 
 This question could not be answered right away.
 
-*In order to move from Southern Centoria to Northern Centoria, one would need to go through Eastern Centoria or Western Centoria and in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic bill or a one-day passage permit, and of course, neither bill nor permit is easy to obtain.*
+*In order to move from Southern Centoria to Northern Centoria, one would need to go through Eastern Centoria or Western Centoria and in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic pass or a one-day passage permit, and of course, neither pass nor permit is easy to obtain.*
 
 *No, a fake official who abducted the goblins would fake the identity of the Southern Centoria administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Northern Empire. There is also a vast land in the Southern Empire, and there should be enough places to hide the goblins.*
 
