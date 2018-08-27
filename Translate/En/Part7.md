@@ -191,9 +191,121 @@ The knight nodded the head with bluish short hair to Kirito's question:
 
 "No need to burn like that, Negi-boy. It's obvious that they are not worried about the Taboo Index at all, as the insurgents already killed people with their own hands."
 
+Nergius abruptly breathed in, perhaps, intending to protest the way Fanatio addressed him, but barely sighed as if he had given up. Instead, Renri spoke after raising his hand:
+
+"But Kirito-san, if the kidnappers passed the Gates of the Four Seasons...... Great Gates other than the one of Southern Centoria didn’t have examination for the luggage in carriages until now, so is there a possibility that they have already left the Central Capital......?"
+
+"That is so."
+
+— Kirito nodded to a young knight and kept on speaking:
+
+"I think that the search for the goblins needs to include the former private territories outside the city and, in addition, the cities of Eastern, Western and Northern Centoria. However, it is quickly getting dark...."
+
+"Let's prepare for the search of private territories to be able to begin with dawn. The city one will start at once, I’ll lead myself."
+
+Kirito quickly bowed his head to Fanatio who stood up saying this.
+
+"Thank you, Fanatio-san. I'm counting on you."
+
+"Easy-peasy. Instead you, boy, stay low here."
+
+Having efficiently pinned down the fidgeting Prime Swordsman, Fanatio walked up to a plain wood cradle, which was placed a little away. She gently stroke the head of sleeping Berchie and after exchanging a word or two with a servant standing by its side, she quickly left the conference hall.
+
+*Normally Tiese or Ronye take care of little Berchie during meetings, but if they are not in the Cathedral......* Asuna thought, and at that moment.
+
+As if waiting for Fanatio to disappear, Kirito said:
+
+"Ehm....... I am not going to join the search, but can I just go outside for a moment?"
+
+Although he asked for permission, Fanatio and Dusolbert who were in a position to say “no” to Prime Swordsman were not there. Three knights and one cleric exchanged looks, then Nergius said on behalf of all of them:
+
+"Where else do you plan to go to?"
+
+"Actually, the apprentice knights Ronye and Tiese have left for the lake in the Northern Empire Emperor's domain. Something about teaching dragons to catch fish......."
+
+"Ah, is it a correction of unbalanced diet?"
+
+When Nergius nodded, Entokia stretched his lips in a smile:
+
+"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, and we had a hard time correcting it. It was in the depths of the South Empire’s jungle where we were going to find the best sweet potato in this world..."
+
+"I should not have asked you to accompany and just depart separately",— Nergius looked at Kirito after casually cutting the speech in the middle,— "If you speak of the lake in the area to the north, it is Lake Norkia. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
+
+"Well, what if so? From the nature of those two people, if they see a suspicious carriage, I think they would try to find out only by themselves..."
+
+Asuna also nodded unexpectedly to Kirito’s words. Both Ronye and Tiese were obedient and good girls, but as long as they were under the guidance of Kirito at Academy, they could be reckless as well. Indeed, at that time two of them were constantly making efforts to grow from apprentices into regular knights, it is also fully conceivable that their hard work would continue regardless of the danger.
+
+"Since it is just ten kilometers to Lake Norkia, I will just briefly check with them and come back. I’ll return in one hour... no, even in 45 minutes."
+
+Saying that, Kirito quickly stood up. It is probably because he planned to go to the lake by the flight technique from the high floor of the Cathedral, instead of the big South staircase, he went to the elevator shaft at the North. That moment, Asuna also rose from the seat.
+
+"I’ll go, too!"
+
+— she said. Kirito turned around and glanced at the Sacred Arts department head Ayuha.
+
+The woman in white robe nodded lightly as though she gave up, while her face was still shadowed with outrageous concern. Nevertheless, while she briefly added a parting words of "Please return as soon as possible", Asuna shortly bowed to Ayuha and quickly caught up with Kirito.
+
+"Oh, I will update you if there is any sudden movement in the city!"
+
+It was knight Renri who shouted. Kirito answered "Highly appreciated!" and opened the elevator shaft door. They simultaneously jumped into the lift and after quickly closing the door exhaled sighs of relief.
+
+"...... Successfully escaped, that’s what your face looks like."
+
+— She whispered while looking at the one next to her, but Kirito just slightly shook his head:
+
+"It's not like that. I am just worried that Ronye and others are fine..."
+
+"Hu-hu, I understand. Let me move the elevator."
+
+She stepped onto the silver disk on the floor and wrapped the glass tube fixed in the middle with both hands.
+
+This elevator which Airy used to previously operate with Sacred Art was also automated now. The large sealed cans buried under the floor of the elevator shaft were filled with a large number of aerial elements and when the button on the wall is pressed, certain number of elements required to raise the disc to the requested height were burst thus creating pressure which was automatically released from the can. However, just in case, there was also a glass tube for generating aerial elements manually, so that users can operate it on their own. In other words, one could move the lift manually the way they liked instead of an automatic device set at a rather gentle speed.
+
+Asuna produced ten aerial elements inside the cylinder without paying attention to "Hey, safe driving, y’know..." which Kirito standing next to her was saying. When Airy previously lectured them on how to move this disc, she said "I release three units when I start the rise and then one by one when the speed is about to fall down", which would produce a moderate speed when carrying passengers, but she also taught them secretly that if they want to feel more speed the count could be increased.
+
+"Burst!"
+
+With this command, she first release six elements. A green flash blasted in the glass tube, a large amount of air blew out from the bottom, pushing the disk they rode up with a furious momentum.
+
+"U-w-wa....!!!"
+
+— yelled Kirito grasping both Asuna's shoulders. He used to express no emotions when flying in the sky on the back of a dragon or with incarnation, but it seems that he did not like this lift shaft for some reason. Although it is likely to be caused by him nearly falling from the upper floors of the Cathedral, even before Asuna visited Underworld, nothing could be said for sure.
+
+Actually, Asuna had heard about the incident in the middle of the Foreign World War from the mouth of Integrity Knight Alice. She thought that hanging on the outer wall of the 80th floor supported only with one sword when it was not possible to use any flight techniques yet was a considerably fearful experience, but because Kirito displayed mental age of a child only in the elevator shaft, she started at high speed without any bad intentions.
+
+At the time when the sharp rise using six elements began to decelerate, the remaining four were simultaneously released. The disk rapidly accelerated again, and Kirito with "Hye-e-e!!!" stuck to Asuna’s back. Without teasing the poor fellow any more, she just stepped on the floor pedal to lock the disc to the wall as they arrived at the ninetieth floor.
+
+In the past, the elevator shaft was only connecting floors from fiftieth to eightieth, but in conjunction with the automation, the shaft from the first to the fiftieth floor was newly established, as well as an extension of the shaft to the ninetieth. The reason for that was, of course, that the large public bath on this floor was opened to all the staff, but since there was no wide gaps in the outer wall on this floor, they run to the 95th floor, the "Lookout of the Morning Star" by the stairs.
+
+Yesterday they had lunch here with Ronye, Tiese and chef Hana who joined them, but as the evening was approaching, the hanging flower pots looked differently. The inclined sunlight entering directly from the outside appeared reminiscent — of course, at the much smaller scale — of the atmosphere of evening scenes in the floating castle of Incrad.
+
+Asuna used to like seeing sunsets from this place, but they didn’t have time for it. She entrusted her body to the right arm of Kirito who rushed to the northern opening:
+
+"Ehm... I understand we are in a hurry, but will it be safe driving?"
+
+Just returning a silent smile to Asuna's question, Kirito transformed the hem of the black leather coat into a shape resembling wings of a dragon. Holding Asuna tightly, he widely spread the wings.
+
+*It seems, he is going to fly with a quiet incarnational flight technique, not the aerial elements flight technique that gives speed but also a loud noise......* as she got a little relieved, Kirito casually kicked off the floor. With black wings vigorously flapping, they softly floated in the air ──
+
+The next moment, two people flew the sky with a tremendous momentum that was several times higher than the acceleration of the elevator when using six aerial elements. The cruel air current hit the face as the tallest tower of the Northern Centoria Imperial Palace approached. She knew it was much lower than Cathedral, but they passed over it she closed eyes.
+
+*If you can speed up so far with incarnation, what will happen if you use aerial elements flying technique at full power......?* After considering it, Asuna remembered that once she had experienced the same.
+
+A year and three months ago, just before the end of the Foreign World War.
+
+Kirito woke up from a long coma and used the maximum speed aerial elements flying technique to catch up with the Emperor Vector who abducted Alice. At that time Asuna did not know the geography of Underworld at all, so it was only after the war when she learned how far they flew, but anyhow, at that time for about five minutes that Kirito held Asuna in his arms they actually moved a thousand kilometers away. If converted to per-hour speed, it is 12000 kilometers per hour, and since the speed of sound is certainly about 1200 kilometers per hour, so it was a ridiculous speed of ten times faster than sound.
+
+*The present incarnational power of Kirito is enough to float a steel dragon in the air, but that was equal to the miracle of God. In addition to the flight technique, he returned Alice's dragon and her brother-dragon who were seriously injured in the battle into the form of an egg, and also used the full armament control technique fighting the super account of Emperor Vector that changed the entire Underworld’s skies into the night.*
+
+![Image](/Translate/Img/p225.jpg)
+
+*The question is whether Kirito at that time was different — or is Kirito just holding down the power currently? If it is the latter, in a situation where Ronye and Tiese may be in danger, it seems, there is no reason for Kirito to suppress his incarnation.*
+
+The next moment Asuna, who thought this, unconsciously clung firmer to Kirito’s body.
+
+As if he had been waiting for it, the field of vision suddenly gleamed bright green and after that loud burst sounds echoed from behind. Asuna shrieked, not ready to a violent acceleration as if being hit by a giant's hammer.
 
 
-## To be continued...
 
 
 ## Footnotes:
@@ -201,8 +313,8 @@ The knight nodded the head with bluish short hair to Kirito's question:
 1. <a name="Prim1"></a>Prefecture in the northern Honshu, 23% of it's territory consists of natural parks.
 2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, and light dress. Choose your poison.
 3. <a name="Prim3"></a>Originally 空振り, “karaburi”, coming from 空振り三振 “karaburi san-shin”, which means “strikeout”. But since shortening strikeout to “strike” would rather associate with corresponding bowling term, which has opposite meaning, I just picked up something applicable by nature, “no-hit game”.
-<!--4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.
+4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsikigake name of which does NOT end with -i.
+<!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.
