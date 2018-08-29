@@ -75,6 +75,104 @@ After about five minutes passed, this time he felt clear hunger. Even a child of
 
 A large lake was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made him slightly shift the track to the left, but Tsukigake shook his head as he ran and returned to the previous direction. *I will not die because of being hungry, but my Master’s life is in danger.*
 
+If the memory of what he had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the south side of the grassland surrounding the lake. If it's indeed there, it will be possible to find at least one shriveled potato. Only that hope supported the spirit as he ran for five minutes, and then.
+
+Suddenly his foreleg sunk into the ground, so Tsukigake fell somersault and rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
+
+However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Tsukigake, born in Cathedral, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, he stretched and turned the neck carefully around to check the surroundings again.
+
+His front and left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
+
+"Ku-ru-ru..."
+
+Tsukigake who had no idea what to do next inadvertently leaked a miserable voice.
+
+Then, as if hearing his voice, a small creature came out from a grassy place a little away, and shrilly chirped "Kyu-kyu?!".
+
+A creature with short brown fur, ears almost as long as the body, and small round eyes, looked up at Tsukigake, turning the neck to the right as if saying ‘what the heck is this thing’.
+
+Tsukigake thought exactly the same thing. The creature that was about thirty cen long from a pointed tip of the nose to a short tail was called "Miminaga-nure-nezumi"<sup><a href="#Prim2">2</a></sup> by the people of the central city, but of course Tsukigake did not know such a thing.
+
+Looking over the elliptical body of the brown mouse having no boundary between the neck and the torso, he thought it would be delicious to catch it and eat it. The rat tried to quickly withdraw into the grass as if feeling Tsukigake's appetite, so it’s opponent quickly hurriedly objected:
+
+"Kuru!!!"
+
+Whether or not Tsukigake was able to communicate a request to wait ─ nobody can say for sure, but the rat stopped running away leaving the long nose where a beard grew sticking out. After two seconds, it fearfully shoved out the whole head.
+
+*If I scare it again — it will run away at once.* Tsukigake lowered his body as low as possible and squeaked in low voice pretending that he is not going to eat it.
+
+"Ru-ru-ru-ru......"
+
+This time the mouse tilted its head to the left and slowly moved the body out of the grass.
+
+If you look closely, the tips of elongated limbs had swim fins. It was surely a creature living on this land for a long time. Then it might know the way through the swamp.
+
+"Kyu-ru, Kyu-ru-ru-run."
+
+*── I want to go to the South. Tell me if you knew the way.*
+
+Although it was not possible to put the intention into a verbal form, the rat quickly moved long ears and answered "Kyu" to Tsukigake's chirping filled with desperate emotions.
+
+Tsukigake, who felt an echo of ‘I’m hungry’ in the sound, immediately answered:
+
+*── Show me the way, will get you delicious fish as much as you like.*
+
+*── Do not need fish. I like tree nuts.*
+
+*── But there are no trees here.*
+
+While Tsukigake spoke, a small dark object floated on the water surface between the two animals. Rat cried "Ki!!!", jumped in the water, and lifted it with both hands.
+
+From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to the lake from the trees growing on its banks would flow over time to wetlands. Rat immediately brought the precious thing to the mouth with both hands, but even though it had long front teeth, there was no crunchy sound but only sound of damp and moist. *Meanwhile, as I stand immersed in water, my Life runs out.*
+
+"Ku-ru-ru-ru, kyu-ru!!!"
+
+*── If you guide me, I will give you a lot of fresh nuts. Not damp, crunchy ones.*
+
+"Kyuu......."
+
+*── Really? You ought to find one in a whole year.*
+
+*── I promise. You can eat as much as you want everyday.*
+
+*── Well, then. Come.*
+
+Tsukigake wasn’t sure whether the exchange actually took place this way. But after the rat finished eating a black tree nut, it moved to a dry ground nearby and jumped into the grass with excitement.
+
+Tsukigake also hurriedly jumped over the water and thrusted his neck in the place where the mouse disappeared. There was a tunnel of about 30 cen in diameter extending in the densely grown grass. Walls of firmly woven dry grass were clearly not made by nature.
+
+The mouse stopped close to an entrance to the tunnel and waved a short tail as if calling for him to hurry. Tsukigake was slightly bigger than its width and height, so had to shrink a bit, but not as much as to get through the gap in the iron grid that was in the dungeon, besides, the dry grass spread all over the floor helped, too.
+
+"Ku-ru-ru!!!"
+
+After chirping in a loud voice to inspire himself, Tsukigake started running in a narrow and dark tunnel. The mouse also faced ahead and moved as if sliding while moving short legs only a little.
+
+In just three mels ahead the tunnel was diverging to the left and right. Rat jumped into the left aisle without slowing down, so Tsukigake followed. Immediately the next split appeared, this time it moved right.
+
+Next after a tunnel knitted with dry grass, there was a small round room of about 1 mel. There were one adult rat and three small rats by the wall eating what appeared to be grass seeds, and when they saw Tsukigake who came in running, an adult raised an alarming voice "kiki!!!", to which the guiding rat answered something calmly. Going near the small rats who were tracing a strange appearance with their eyes, lowering the head and entering a next passage.
+
+Apparently, the wetland rats had a mesh of tunnels over this swamp. Without a guide, one would quickly get lost. As they run, plops echoed, so the bottom side of the floor seemed to be in contact with water. There must be a huge number of small islands scattered in wetlands connected with buoyant dead grass tunnels.
+
+After the innumerable bifurcations, junctions and small rooms they ran through, he finally saw a point of light ahead. It seemed like a dead end, but the grass on the wall was sparse, and the setting sun was visible through that gaps.
+
+The rat stopped at the end of the tunnel, protruded only a sharp nose into the gap in the grass, carefully sniffed the outside air and only then thrusted the head all the way out. When it was satisfied it got out through the grass.
+
+After a bit of fighting with the grass Tsukigake also left the tunnel finding himself already at the southern part of the wetland area. The dry grassland spread ahead, and after it a wooden fence was seen that seemed to have been made by humans. Behind was the field that he saw from the carriage.
+
+"Kyu-ru-ru, Ku-ru!!!"
+
+*── Thank you, Rat. From here I can go alone.*
+
+When Tsukigake said so, the brown rat tilted the neck to the right again:
+
+"Kyu-ii?!"
+
+*── When will give nuts?*
+
+*── Do not have it now. But, I will have plenty of nuts soon, will come again. I promise.*
+
+
+
 ## To be continued...
 
 
@@ -82,8 +180,8 @@ A large lake was shining gold in about a hundred mels to the left. There would b
 ## Footnotes:
 
 1. <a name="Prim1"></a>Decorative small toy [ball](https://en.wikipedia.org/wiki/Temari_(toy)).
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
+2. <a name="Prim2"></a>So we had Iwanezumi previously, this is another species of Underworld rat. Naming is bit more complicated though. While “Nezumi” remains “rat”, and “nure” probably stays for wetland area it lives in, “miminaga” is the first part of the name they call Australian Bilbies (specifically, [dalgytes](https://en.wikipedia.org/wiki/Greater_bilby)). So, altogether that should be something like… “bilby-like swamp rat”?
+<!--3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
