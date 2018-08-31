@@ -5,7 +5,7 @@
 Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajudesu. (Turns out there is already Chinese translation of web version, it helps a lot, too. And that Bing translator is (suddenly) good at some crazy hiragana sequences like そうかっかしなさんな, so I use it as well now.) However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
 Overall progress: translating...  Estimated finish: somewhere in ~August~ September.  
-`#################################>---------------- 2/3 precisely.`
+`#################################>---------------- 67.78%.`
 
 Contents:
 
@@ -18,7 +18,7 @@ Contents:
 - [Part 5](Translate/En/Part5.md)
 - [Part 6](Translate/En/Part6.md)
 - [Part 7](Translate/En/Part7.md)
-- [Part 8](Translate/En/Part8.md) (42.86%)
+- [Part 8](Translate/En/Part8.md) (57.14%)
 <!--- [Part 9](Translate/En/Part9.md)
 - [Part 10](Translate/En/Part10.md)
 - [Afterword](Translate/En/AW.md)

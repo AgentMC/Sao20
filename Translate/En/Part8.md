@@ -171,6 +171,96 @@ When Tsukigake said so, the brown rat tilted the neck to the right again:
 
 *── Do not have it now. But, I will have plenty of nuts soon, will come again. I promise.*
 
+Tsukigake spoke earnestly, but the mouse rat insisted raising and lowering the long ears:
+
+*── No, I want to eat it now! I want to eat lots of crunchy nuts!*
+
+*── .... Then, come along. If you go to the city, you will get the nuts.*
+
+To the words of Tsukigake, the rat blinked curiously.
+
+*── City? What is a city?*
+
+*── The city is... there are a lot of humans.*
+
+*── Humans? Whenever humans see us, they chase with sticks.*
+
+*── It will be fine if you stay by me. I do not have the time, let's go!*
+
+That said, Tsukigake tried to resume movement. However, the mouse grabbed the end of his tail.
+
+"Ku-ru-ru!!"
+
+*── What's the matter?*
+
+"Kikii!!"
+
+*── Do not go away. My father said that it’s scary behind that wall.*
+
+*── Scary? Because of humans?*
+
+*── I do not know....... But nobody who went beyond the wall had ever come back.*
+
+Tsukigake tilted his head. Only desolated fields spread out on the south side of the wooden fence, as he saw from the horse-drawn carriage window, and he remembered that there were no humans. His owner said something about that all the *praivatwellerz* were *rilizd*. He did not quite understand the meaning, but if the rat is "scared" of humans, now there should be no danger.
+
+Besides, Tsukigake’s hunger was approaching the limit. *If I don’t find something to eat in the field, it looks like I won’t be able to run any more.*
+
+"Ku-ru-ruu..."
+
+*── It's okay, there’s nothing to be scared of anymore. You can’t go to the city without going over there.*
+
+Although he spoke so, the rat had a suspicious face for a while, but eventually the appetite appeared to prevail over the alertness:
+
+"Kiki!!"
+
+*── Okay, I will go with you.*
+
+*── Fine. Then, let's hurry.*
+
+As he said so, Tsukigake kicked off the dry ground. The rat, which ran surprisingly fast, also followed from behind.
+
+When they dashed through the grassland and approached the wooden fence, they quickly looked over the left and right. There was an entrance to the left, so they aimed for it.
+
+Fortunately, there was neither door nor grate, just an artless gate. On the signboard struck by the path, there was a notice "Dedicated farm of the direct jurisdiction" in the Human World language, almost disappeared because of sun and rain, but of course neither Tsukigake, nor the rat could read it.
+
+After passing through the gate, the smell of the earth and dead plants struck the nose. It was not a nice smell, but it was still much better than the way the black pit in the deeps of the forest smelled.
+
+Vegetables they didn’t know the name of were lined in neat rows on the spacious agricultural land, but it seemed that most of them have lost their Life because there were no people to take care of them. Many of them had yellowish leaves down on the ground, while the roots already have completely disappeared turning back to sacred power.
+
+In this situation, vegetables and fruits that Tsukigake could eat were unlikely to be found. Although disappointed, he went ahead by the road running through the middle of the farmland. At a minimum, the road was easier to run than wetlands and grasslands. After making it through this field, the city of Centoria will be there soon. In fact, the shadows of innumerable buildings already floated on the horizon, and behind that the old-fashioned Cathedral tower was clearly visible.
+
+"Kururu."
+
+*── Look, that is the city.*
+
+He said it proudly to the rat running behind, but unfortunately, it didn’t seem to be much impressed.
+
+"Kikii."
+
+*── Strange. Are there nuts in such a place?*
+
+*── Of course, there are plenty. Even if I and you eat for the rest of the year, the count won’t decrease much.*
+
+*── Really? Would you mind if I bring a little to my dad, mother and sister?*
+
+*── Okay, I will ask to get some for your family members as well.*
+
+So, they had such a conversation while running.
+
+Probably because of that Tsukigake was late to notice that smell other than of rotten vegetables had mixed in the air.
+
+Almost at the same time when he noticed, the rat issued a sound of warning "Kii!"
+
+From the right side, a long and slender — but still a little bigger than Tsukigake — shadow came out and blocked the path.
+
+Once again, it was a beast he saw for the first time. Slender sides and tail, the limbs are short but sturdy. Only the long projecting nose and eyes are white, the rest is dark gray.
+
+Tsukigake called out carefully to the beast which silently stopped on the road.
+
+"Kyu-ru-ru-ru..."
+
+*── Let us pass. We just want to go to the city.*
+
 
 
 ## To be continued...
