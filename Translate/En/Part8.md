@@ -261,19 +261,167 @@ Tsukigake called out carefully to the beast which silently stopped on the road.
 
 *── Let us pass. We just want to go to the city.*
 
+But the gray beast did not answer anything, just kept staring straight at Tsukigake's eyes with both its eyes shining red.
 
+While he was thinking of what to do, a quiet sound reached him from left and right. There were the same kind of beasts appearing from behind the dead crops. Four, in total. Two of them went behind almost unnoticed to surround Tsukigake; with the first appearing beast there were five of them now.
 
-## To be continued...
+The gray beasts were called "togari-hanaguma"<sup><a href="#Prim3">3</a></sup> by the private territory dwellers who used to work in this farmland, and these creatures were always hated. They were omnivorous and nocturnal, so they ate the crops from the field during the night. With the permission of a supervisor, the troubled farmers decided to release large dogs in the field at night. Dogs bravely protected fields from hanaguma and reduced the damage to crops, but every once in a while, several hanagumas gathered in groups to attack and kill dogs.
 
+However, those who were liberated from the position of serfs a year ago took dogs with them while moving to Centoria and its suburbs. The field was desolated after all who worked on it disappeared and nearly all of the plants withered, even those which were still producing some fruit for about half a year. Most of the togari-hanagumas who lost the food also starved and died — Underworld's wildlife had an area defined, and it wouldn’t move by itself outside of it — however, some of them, which naturally had a high value for the survivor instinct somehow kept up by eating small animals entering the field, insects they did not pay attention before, and the corpses of their congeners. However, the food was not enough, they were always hungry and ferocious.
 
+Finally, at the point when the surrounding hanagumas began growling "G-r-r-r…" in a low voice, Tsukigake understood the danger.
+
+It seemed that miminaga-nure-nezumi froze trembling on a spot and could not make a sound. Tsukigake also growled, while wrapping it with a long tail to protect a small companion.
+
+"Gyu-r-r-r!!!"
+
+*── If you're planning to fight, you'd better stop it.*
+
+He intended to convey the meaning in the cry, but hanagumas only growled more violently. And unlike the case of rat, there was no meaning felt in those sounds.
+
+Of course, there was no way for Tsukigake to know, but the dragons were distant kin of an ancient Divine Beast who had been given the ability to communicate with wild animals. Originally it was a power designed to evacuate animal units from territory of the Divine Beast, but not all animals were given AI from the very beginning, however, when the Divine Beast came in contact, the animal unit would be given a minimum thinking ability and a decision database.
+
+Hence, his companion-rat got the ability to answer because Tsukigake spoke to him, but the target of that power had to be limited to units with much lower priority than the initiator. And togari-hanagumas which survived the severe conditions were only a little lower than the current priority of Tsukigake. Five animals were not granted thinking ability, the only behavioral principle moving them was to hunt the prey to satisfy the hunger.
+
+Tsukigake glared at all the beasts who did not respond to him.
+
+He had never fallen into such a situation until now. Moreover, this was the first time for him to act alone outside the Cathedral. Still, it was instinctively felt that the five beasts did not want to merely fight, but instead they are going to kill Tsukigake and the rat.
+
+*If I die or get seriously hurt here, won’t be able to call for help for Master and Shimosaki.* Tsukigake's Life has also been decreasing, but if you look closer, hanagumas were also all skin and bones, so it would not be impossible to shake them off if running hard.
+
+*But I do not know if the rat will run away. Its legs are not even close to slow, but it should be tired because we were running a considerable distance from wetlands to this field.* Tsukigake promised to give rat a lot of delicious tree nuts, so he could not abandon it there.
+
+Tsukigake's AI program did not come up with an idea of escaping from hanagumas by sacrificing the rat. A young dragon decided to prepare to fight five predators, and growled quietly and violently:
+
+"Ga-r-r-r!!!"
+
+This time it seemed that the intention was transmitted to the beasts. Hanaguma which blocked the road in the front, also opens the mouth wide, pulled out a thin, sharp tusk and returned the cry:
+
+"Gya-u-u-u!!!"
+
+With that signal, two hanagumas from the left and right jumped over.
+
+Tsukigake wound the tail around the rat which remained frozen, and jumped high in the air. The hanagumas also leaped, but thanks to the wings fluttering with full power he rose up even higher.
+
+The miscalculated hanagumas collided in the air and fell down, entangled. Tsukigake glided in that gap to the west and descended into the field. Tall stalks of millet were still left at that side, so he should be able to hide for a short time.
+
+However, it will not be possible to escape with the rat wrapped with a tail, and it is even more difficult to fight the five beasts while keeping it safe. First, he had to hide the rat in a safe place.
+
+That's why Tsukigake chose a wooden cane left between the ridges. It was on the verge of decay and the Life was running short, but still kept the shape. *Please take cover under the wooden lid completely and be quiet there!* — he whispered to the rat after letting it down to the ground.
+
+There was no answer, but it was clear that it would be dangerous if any movement or cry is heard. But for the plan to succeed he had to separate enemies from that point. As he began running to the south making a loud noise intentionally, a lot of footsteps came from the right side.
+
+*If I’m surrounded, it’d be the end. There is no choice but to push the five animals apart, to defeat one by one.*
+
+Hiding in the millet lines, he leapt irregularly to the right and left. The sound of footsteps behind was gradually getting weaker. At the moment when he was convinced that only one hanaguma was still following while others scattered, Tsukigake made a sudden change in direction using wings.
+
+Hanaguma which jumped out of the millet gaps, stood up only by the hind legs at the moment when it saw Tsukigake thrusting towards it. Leaping like an arrow, he deeply bit into the unprotected throat.
+
+The taste of the fresh blood filling his mouth was something that he would not like too much. This time it seemed that raw meat would become another dislike, but that was a question of surviving. He held hard the Hanaguma which fell down without being able to raise a scream due to torn apart throat.
+
+Hanaguma tried to blindly swing the front legs with sharp claws, but grasping them by the wrists prevented the scratches. It was possible because dragons could manipulate their fingers alike to humans. In about ten seconds hanaguma's movement gradually became dull, and then the power went out quickly.
+
+He took the mouth off the beast’s throat and looked around. The sound of footsteps approached rapidly from the left side. There was nowhere to hide.
+
+Tsukigake stopped moving and laid next to the dead hanaguma. Immediately afterwards, a new hanaguma appeared scrambling the millet lines.
+
+As soon as it saw the congener and Tsukigake lying over each other, Gu-r-r-r... it growled. Approaching slowly, sniffed the smell of blood soaking the body of dead hanaguma.
+
+Although he did not know if it is going to consider calling its friends, or would begin eating a corpse, the moment he felt the attention diverted for a split second, Tsukigake vigorously got up and bit into its neck.
+
+Although the death pretense strategy succeeded, he could not catch the throat in the desired point because of attacking the enemy from the side.
+
+"Gya-a-o-o!!!"
+
+Hanaguma shrugged and began to twitch around trying to get rid of Tsukigake clung to the right side of its neck. He tried to hold it down with the front legs like he did last time but it does not work, the sharp claws made it through Tsukigake’s disturbed feathers and shallowly cut the skin.
+
+The blood of both splashed around as the hanaguma and Tsukigake were rolling on the ground to the right and left. *I am losing more Life this way, but I cannot open my mouth now.* Tsukigake pierced the claw of the right front leg into the wound in the throat of hanaguma and tore down to the bottom with all his might.
+
+So finally, the second beast also lost all its Life and became limp. After removing the tusks from the neck of the corpse, Tsukigake stood up unsteadily.
+
+He looked over his body, countless cuts ran from neck to chest. Moreover, it seems that the scratches on the back which were made by the thorns of the hedge also blooded again because of violent rolling over the ground. However, three enemies still remained.
+
+When he listened carefully again, there were footsteps approaching from three directions, being baited by the second beast’s cry. He did not have the energy to run around and away again. The only way was to fight three animals at the same time.
+
+After a few seconds, togari-hanagumas appeared one after another, kicking down the dead millet. One of them was a leader whom they met first when it blocked the way. Lined up with others, it was slightly larger than the other two animals.
+
+Lead hanaguma released a ferocious scream as soon as it saw the corpse of two congeners:
+
+"Gyu-a-a-a-a-u!!!"
+
+Even though he did not understand the words, Tsukigake felt a lot of anger in that roar. At least to show his fighting spirit is still not defeated, he pulled together the power left behind and replied:
+
+"Ga-r-r-r-r-r!!!"
+
+Although only a year has passed since Tsukigake was born, still the young dragon was one of the strongest beasts in the present Human World. The hanagumas who were running a very simple algorithm also hesitated for a moment as though they felt a threat not expressed in the value of Life or priority, but of course they did not escape in the end.
+
+"Gau!"
+
+A short barking of lead hanaguma sounded and two animals at the same time came jumping from the left and right.
+
+The weapon of hanagumas were tough claws of all legs. Tsukigake also had the same main weapon, but in addition to it there was a long and dexterous tail.
+
+Pretending to counterattack with biting, he suddenly rotated the body and hit two of them together with a tail. Although tail feathers he used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, and rammed into a wall of millet. It was withered and therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle and wriggle in the air.
+
+He did not anticipate this result, but that definitely was the last chance. Tsukigake kicked off the ground and attacked lead hanaguma from the front.
+
+"Gua!!!"
+
+The leader put out the sharp tusks. Tsukigake bent his long neck and aimed at its throat, but the enemy with an unexpected reaction lifted the front leg and protected the vital area. In the end, Tsukigake who reflexively pulled his head away, and the head of the lead hanaguma collided, their jaws intersected and they both have bitten.
+
+The burning pain wrapped his entire face. Sharp tusks bit deep from both sides, the creaking sounds of bones could be heard, but he could not release the jaws. If the force is decreased even by a slight amount, the face would be crushed by hanaguma.
+
+The two of them clung to each other's face were rolling hard on the ground. When blood flowed into his mouth it wasn’t clear if it was his or opponent’s. One thing was certain that the Life of both were rapidly decreasing. The one whose Life runs out first dies.
+
+Until that moment, Tsukigake had never dealt with the thing called death.
+
+The mother-dragon Akisomi was still young; he had not participated in the war, so had never seen human death directly. That day, when he caught and ate fish living in the lake, it was quite a shocking experience. When fish that was swiftly swimming in the water was caught in the mouth of Tsukigake or Shimosaki, after they bit, after some shaking for a moment it wouldn’t move anymore.
+
+Perhaps, in this world, many living creatures die in such a way every day becoming the food for larger creatures. Even hanagumas did not attack Tsukigake and the rat just for fun. It was in order to survive.
+
+But Tsukigake could not let to be killed here and eaten. *In the dungeon of the mansion, my Master and brother dragon and his Master are waiting for help. Black humans who caught the Master did not do so because they were hungry or about to die. It was for worse things, trying to hurt  people I cherish...... or maybe even to kill them. I cannot let such a thing happen, absolutely.*
+
+Unexpectedly, Tsukigake felt something burning in the back of his throat.
+
+Something hot inflated and spiraled up from the deeps of his body. He could not keep it down.
+
+Tsukigake unleashed the heat still clung to the jaw of the lead hanaguma. Countless sparks burst from the joint of two jaws, burning fur of both. Most of the uncontrolled flame and heat flew and into the body of Hanaguma, causing fatal damage.
+
+"Gya-u!!!"
+
+The screaming lead hanaguma rolled on the ground, releasing Tsukigake's face and stopped moving after several convulsions.
+
+Tsukigake did not understand what he did. That it was a fire stream<sup><a href="#Prim4">4</a></sup>, the greatest weapon of the dragons they spew out of their mouths, and that it cost Life, Tsukigake did not know any of this.
+
+At this point, Tsukigake's Life was less than 10% of the maximum value. Moreover, blood continued to drip from the back and chest, and from the wounds he received on the face.
+
+Still the young dragon managed to get up and to turn backward.
+
+The two remaining hanagumas that were caught in the millet's ridge just jumped to the ground. Even though their leader was dead, they did not seem to give up. While groaning low, they closed the distance.
+
+He did not have enough energy to continue fighting, but Tsukigake continued to support the body stained with blood standing. Would he collapse, the two will jump immediately.
+
+*The vision slowly gets darker. The force comes out of limbs. But I cannot fall down. I’ll get to the city and call for help.*
+
+Suddenly, he felt as if he heard something.
+
+Hanagumas turned their faces at the sky. Tsukigake also raised the blooded face.
+
+Something was flying in a straight line at a great height in the sky gradually getting deeper and deeper shaded with evening colors. Is it a bird? Is it a dragon? It was something sounding like a gust of wind and emitting green light, something like a star.
+
+*── Although I see it for the first time, but somehow I know who that is.*
+
+And touched by a strange sensation, Tsukigake tried to howl.
+
+The voice did not come out at all, but the star changed its orbit as if it heard.
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>Decorative small toy [ball](https://en.wikipedia.org/wiki/Temari_(toy)).
 2. <a name="Prim2"></a>So we had Iwanezumi previously, this is another species of Underworld rat. Naming is bit more complicated though. While “Nezumi” remains “rat”, and “nure” probably stays for wetland area it lives in, “miminaga” is the first part of the name they call Australian Bilbies (specifically, [dalgytes](https://en.wikipedia.org/wiki/Greater_bilby)). So, altogether that should be something like… “bilby-like swamp rat”?
-<!--3. <a name="Prim3"></a>.
-4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.
+3. <a name="Prim3"></a>Togari = shrew, hanaguma = coati. I have no clue to what togari is here, but based on description it talks about [Western Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
+4. <a name="Prim4"></a>熱線, actually translates as “infrared rays” :)
+<!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.
