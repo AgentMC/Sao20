@@ -189,6 +189,85 @@ Indeed, at that time Emperor Krueger continued to attract their attention as a d
 
 "If there are only two of them, I think we can secure Shimosaki if we attack suddenly. Fortunately, our swords should be left just behind the secret door."
 
+"............"
+
+Ronye stared at the darkness behind the secret door.
+
+The drawn swords that the two of them dropped on the floor were kicked to the other side of the door by emperor Krueger, but there was no evidence that they were taken from there to the upper floors. Should they be able to escape from the cell, there was a high chance of retrieving the swords back right away.
+
+*If I have my beloved sword, even if that one was a genuine Emperor Krueger, I do not feel like losing. But, again, I am worried about Shimosaki. Even if there are only two enemies there, it is necessary to at least know where he is kept in the mansion in advance to rescue him with surprise attack as Tiese suggested.*
+
+"Tiese."
+
+While standing in front of her best friend, Ronye lifted her hands:
+
+"Lend a hand."
+
+"Eh……?"
+
+She firmly grasped the hands the other one raised with bewildered expression on the face.
+
+"Trying to open locks with incarnation is unreasonable, it perhaps we can try incarnational sensivity."
+
+When the Ronye said this, Tiese opened her autumn leaves colored eyes wide.
+
+The training of the incarnational power emphasized the "ability to perceive" as much as the "ability to influence". The training of "Tanza mind wiping", which the two of them were struggling with, was all about sitting on the training ground, closing the eyes, blanking the mind, and attempting to broaden the perceptual power by the incarnation.
+
+Kirito, who had the greatest power of incarnation in Human World, said "If your opponent is a dragon, you can sense it even if you are 10 kilolu away", but Ronye and herself did not even sense humans within the same room. And now it was about locating a small dragon through a thick stone ceiling. Although it seemed reckless, there was no other way to find Shimosaki's location.
+
+Tiese, who thought this way, wanted to say something for a moment, but quickly squeezed lips. Grasped Ronye’s hands and meditated.
+
+Ronye closed her eyes too and quietly inhaled the cold dungeon air. Tiese in front of her also breathed in. Held it for precisely 1 second, then slowly exhaled.
+
+Although the incarnational power was an individual strength, it can be maxed out by the state of "the unity of body and soul" which is achievable by breathing synchronously with someone while holding their hands. With that being quite an advanced technique, even together with such a close friend as Tiese they have only succeeded in it several times in the past. However, the power of one person would probably be not enough to pierce the ceiling with incarnational sensing.
+
+The breathing of two deepened with every inhale. The sensation of touching each other’s skin melted, the distance dissolved. The boundary between themselves and the outside world gradually faded little by little, as the perception range spread.
+
+*I can feel three are present almost directly above the dungeon. It seems they are lying side by side. This would be three mountain Goblins.*
+
+*Two presences somewhere away. They are felt so cold as it cannot be thought of a living human being, that must be emperor Krueger and Zeppos.*
+
+And there was a small but very warm presence in the corner of the same room. As soon as they perceived it, Tiese’s breathing became slightly disrupted. For a moment, the overlapping incarnational fields fluctuated but quickly regained stability. They sensed Shimosaki's feelings of anxiety and tension, but there was no sign of a major injury.
+
+The sensing range extended further. They can vaguely perceive the layout of the mansion. It was only referred to as an imperial villa, however on both the first floor and the second floor there were many rooms; luckily, all the other halls except the one with five people and Shimosaki seemed to be unmanned.
+
+*If we climb the stairs behind the secret door out of the dungeon, we’d get to a room that seems to be a storage on the first floor of the mansion, from there the door of the hall is just 5 meters away via the corridor. If two of us run with full power, it’s fifteen — no, just ten seconds.*
+
+Ronye and Tiese lifted the eyelids at the same time and stared each other's eyes.
+
+No words were needed. They let go of hands and turned to the iron grid.
+
+It would be difficult to destroy it with bare hands, but the swords’ sheaths, which were quite robust too, were left on the waists of both. Priorities of those did not reach the swords’ ones, but they should endure a single slash.
+
+"... Hey, do you remember? The way Yujio-senpai and Kirito-senpai escaped from Cathedral's dungeon."
+
+— Tiese suddenly whispered, Ronye blinked to that.
+
+"Of course. They cut the divine iron chains, and using them broke the grid."
+
+"When I heard that story, I thought, man our senpais are tough, but... no way I could ever imagine we would do the same thing."
+
+"Me too."
+
+A momentary smile wiped out, and Ronye with clasp removed the empty sheath from the sword belt with her left hand. Pased it to the right hand and raised it vertically. Tiese next to her made perfectly identical movement.
+
+*I do not know what the emperor and Zeppos are doing to the goblins in the hall above. However, if we take the next step, we cannot lose even a second.*
+
+*…………sorry.*
+
+After apologizing to the sheath in my mind, Ronye sharply breathed in.
+
+*One cannot use secret moves with a sheath, but I will just hit as much as I can.*
+
+"Haaah!"
+
+"Yaaaa!"
+
+With the increasingly loud screams, two people sharply swung down empty sheaths performing Norkia style secret move "Lightning slash", also known as Incrad style secret move "Vertical".
+
+It was probably an illusion that the sheath made of wood and leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid and crumbled it down to pieces with a tremendous pulsing sound.
+
+
 ## To be continued...
 
 ## Footnotes:
