@@ -219,7 +219,7 @@ Tiese, who thought this way, wanted to say something for a moment, but quickly s
 
 Ronye closed her eyes too and quietly inhaled the cold dungeon air. Tiese in front of her also breathed in. Held it for precisely 1 second, then slowly exhaled.
 
-Although the incarnational power was an individual strength, it can be maxed out by the state of "the unity of body and soul" which is achievable by breathing synchronously with someone while holding their hands. With that being quite an advanced technique, even together with such a close friend as Tiese they have only succeeded in it several times in the past. However, the power of one person would probably be not enough to pierce the ceiling with incarnational sensing.
+Although the incarnational power was an individual strength, it can be maxed out by the state of "the spiritual unity" which is achievable by breathing synchronously with someone while holding their hands. With that being quite an advanced technique, even together with such a close friend as Tiese they have only succeeded in it several times in the past. However, the power of one person would probably be not enough to pierce the ceiling with incarnational sensing.
 
 The breathing of two deepened with every inhale. The sensation of touching each other’s skin melted, the distance dissolved. The boundary between themselves and the outside world gradually faded little by little, as the perception range spread.
 
@@ -265,17 +265,247 @@ After apologizing to the sheath in my mind, Ronye sharply breathed in.
 
 With the increasingly loud screams, two people sharply swung down empty sheaths performing Norkia style secret move "Lightning slash", also known as Incrad style secret move "Vertical".
 
-It was probably an illusion that the sheath made of wood and leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid and crumbled it down to pieces with a tremendous pulsing sound.
+It was probably an illusion that the sheath made of wood and leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid and crumbled down to pieces with a tremendous pulsing sound.
 
+Immediately afterwards, a grating of 2 mel height and 4 mel width split in two pieces, blew out of the framing and blasted against the other side of the aisle. Again, the thunderous roaring shook the whole dungeon.
+
+*── Go!*
+
+— though Tiese without saying a word, and to this thought:
+
+*── Within ten seconds!*
+
+— same way silently answered her Ronye jumping into the aisle.
+
+Rushing into a secret door that was left open, they saw a small storage-like room. There were some leather bands looking like restraints on the right wall and strange shaped cutlery and glass containers on the left wall lined up. It was obvious how it was used, but pushing that out of heads, they searched around the floor relying on the weak light flowing in from behind.
+
+Ronye's Sword of the Moonlight and Tiese's sword were carelessly thrown somewhere in the corner of the warehouse. Ronye who found the sword first picked up her beloved sword with her right hand and Tiese's sword with her left hand and threw it to her partner.
+
+Three seconds have elapsed so far.
+
+A stone stairway extended up in the front wall. Grasping the naked sword, they rushed up skipping five steps at a time.
+
+The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing north, let in plenty of sunset-colored outside light, and it was much brighter than in a small basement room. The myriad of display shelves and armor stands around the floor and walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ronye kicked off was disguised as a large shelf, and it would be difficult to find if one doesn’t know what to look for.
+
+Seven seconds passed.
+
+There were real doors: one on the western and one on the southern walls. Since the structure of the mansion was roughly sensed with incarnational sensing, they rushed over to the western door without hesitation and kicked it open again.
+
+The door was blown away from the destroyed hinges and crashed against the opposite wall, but they ran ahead without worrying about it. Behind it there was a gorgeous hallway lasting long in both directions. The red wallpaper depicted a lily and a hawk.
+
+The door of this corridor they we aiming at was just 15 mels to the left.
+
+Eight seconds. Nine seconds.
+
+Mustering together all the knight’s leg strength, Ronye, who had run through the corridor in two seconds, turned to the huge two-piece door and burst a kick in the center. Although it did not blow off as she, frankly speaking, expected, both pieces of the door opened wide with the momentum just barely insufficient to break them and revealed the interior scenery.
+
+Ten seconds.
+
+A vast room that would occupy about one-third of the first-floor area was dark. All the south side windows were covered with black curtains. It was not perfect darkness though because ten or so candles were lit in the center.
+
+Candles were arranged in a circle about 2 mels in diameter, with three goblins lying in it. A black figure standing just outside the circle seemed to be casting some sort of an incantation. *Although we had no doubt that nothing good was happening here, now that’s surely ──*
+
+Wide open Ronye’s eyes noticed a large jute bag rolled in the corner of the left side of the hall and a second black figure about to run there.
+
+The shadow's identity would be Zeppos. There was no need to guess what was inside the bag.
+
+*── Tiese!*
+
+While calling her in her mind, Ronye stuck the left hand forward.
+
+At the same time Tiese swapped sword and lifted the right hand that crossed Ronye's one.
+
+"**System Call! Generate Thermal Element!**"
+
+Ronye continued the sacred art Tiese began casting:
+
+"**Form Element! Arrow Shape!**"
+
+The five thermal elements Tiese produced instantaneously changed to five arrows according to Ronye's incantation. It was an advanced technique which allowed to shorten the activation time in half by sharing between casters the chant statements of element generation and forming, "tuned chant". To use it, Tiese and Ronye had to train together for a long time, beginning even before they became apprentice knights ── way before that, actually, since the time they were junior students. But now both "spiritual unity" and "tuned chant" techniques which even senior knights could succeed in with low probability, were available to them.
+
+The two of them, after completing the element generation and formation in just two seconds shouted the last word aloud synchronously:
+
+![Image](/Translate/Img/p269.jpg)
+
+"**Discharge!!**" x2
+
+The five glowing lines tore up the darkness.
+
+The shadow in the black robe avoided the flaming arrows swooping ahead with a hum, by jumping backwards with a superhuman move. Arrows were crashing into the wall one after another, causing small explosions.
+
+"Go, Tiese!"
+
+— shouted Ronye while controlling the remaining two arrows.
+
+Tiese removed her hand and rushed to the jute bag. In order to push the black robe — Zeppos further away, Ronye bent the flame arrows trajectory to follow him.
+
+The fourth one also missed. But the fifth arrow hit the robe which flared up.
+
+Zeppos silently dismissed of the robe and retreated further. At the same time, Tiese reached the jute bag and cut off the drawstring tightly tying its neck with the sword in her left hand.
+
+"Shimosaki!"
+
+— she shouted with a breaking voice, while inserting the left hand<sup><a href="#Prim2">2</a></sup> into the bag.
+
+The young dragon she pulled out and embraced had some plume fallen out where the light blue feathers received a rough handling, but chirped a limp and quiet "Ku-ru-ru......" squeezing into the owner’s chest.
+
+Feeling how the relief due to Shimosaki's safety is being overcome with anxiety for Tsukigake which has not returned yet, Ronye shouted loudly:
+
+"Tiese, take Shimosaki to the safe place outside! Leave this here to me!"
+
+"But...!!"
+
+She resolutely insisted to her partner who was about to shake her head:
+
+"Go!"
+
+In order to help the goblins who seemed to lose consciousness, it is inevitable to fight with Zeppos and the emperor who continued to chant something unclear. It was impossible to fight while holding Shimosaki, and they would never be able to regain him if he’s taken away again.
+
+"...... Got it, I’ll be right back!"
+
+Having shouted this, Tiese swung the sword around herself. The nearby curtain was cut off and the glass window behind it crumbled with a loud noise.
+
+Cutting through the darkness, the square of reddened sunset light burst into the hall. As if fearing the light of Solus, Zeppos who lost black robe retreated further.
+
+What the man was wearing under robe was something very much resembling a physical restraint covering the whole body. A number of leather bands fixed together with countless rivets were wound tightly around the stick-thin limbs and body, and it wasn’t clear whether it was a protective gear or a kind of punishment.
+
+And the skin looking through the gaps in the leather belts was also of a strange color. One couldn’t be certain watching it just under the reflected light of the setting Solus, but it’s bluish-gray color couldn’t be thought of as a human one.
+
+*I think I saw this somewhere already......* While Ronye thought so, Tiese holding Shimosaki jumped through the broken window and escaped to the front yard. In order to hide Shimosaki in a safe place, she has run to the forest surrounding the mansion.
+
+*It's two to one until the she comes back. Not that it’s impossible, but I am concerned about the extraordinarily long art that emperor Krueger continues to cast over goblins lying on the floor.*
+
+She listened carefully to the weird voice, but could not understand the meaning of a single word of a chant. However, once the operation is completed, it is certainly that some bad things will happen.
+
+Ronye tried to generate new thermal elements in order to interrupt the emperor's incantation while pointing the tip of the Sword of the Moonlight straight to Zeppos.
+
+But just before that, Zeppos, who was retreating to the south window covered by the curtain, pulled out two daggers with almost no sound from the sheaths attached to the leather bands on both legs. The one in the right hand was slightly larger, but the blade in the left hand was covered with some green liquid.
+
+*The blade in the left hand, same poison knife he pointed to Shimosaki back there in the dungeon.  
+And perhaps the one in the right hand is the knife used to take old Yazen's life.*
+
+While going around the candle circle in the center of the hall, Zeppos was getting closer and closer. The light of sunset flowing through the only window that has lost a curtain illuminated in red his face that was hidden under the hood until now.
+
+There was no single hair on the man's head. The elongated face was also blue-and-black like the body, the bizarre pupils of small eyes glowed bright. This face didn’t remind her of anyone.
+
+"...... you got out of the prison quite a bit sooner than expected, you know?"
+
+— Zeppos whispered, with indifferent expression.
+
+"Than what expected....... So... was it on purpose that you left the secret door open?"
+
+The all skin-and-bones man produced a thin smile to Ronye's question:
+
+"Oh, certainly. Would you think that emperor Norlangarth house's great chamberlain, being me, can allow for something as bad as forgetting to close the door?"
+
+"Great chamberlain......!?<sup><a href="#Prim3">3</a></sup>"
+
+As Ronye opened both eyes wide, Zeppos deepened his little smile.
+
+Since she has never met a person who is emperor Norlangarth house's great chamberlain before or after the battle for the Imperial Palace, it was no wonder she didn’t recognize his face. But Ronye knew what happened to him. She surely heard what Human World Defense Army General Selrut had reported at the meeting after the chaos was suppressed.
+
+"The emperor house's great chamberlain... should be dead. He refused to break up with the leaders of great aristocrats and was eliminated by the Human World army, that’s what I heard. "
+
+"That was my duty, my pleasure. If it is for his Emperor's Majesty, I will die again and again, as often as I can."
+
+Crossing his hands holding knives over his chest while saying so, Zeppos quickly glanced at the black robe man standing in the center of the hall.
+
+Specifically, at the supposedly dead emperor Krueger Norlangarth who continued to chant the mysterious incantation. Moreover, unlike Zeppos, Ronye herself took the emperor's life. Her palms still remembered the feeling when the sword she grasped deeply pierced the right side of the emperor's chest.
+
+*If they are not impersonators, it means that according to the words of Zeppos they have recovered from death. However, the resurrection of dead is something impossible neither for Kirito who has the greatest mind power of Human World, nor for Asuna who possesses the power of the goddess Stacia, nor for Ayuha Furia, the Sacred Art department head — nor for the half-god who continued to rule Human World for over 300 years, Highest Priest Administrator. I cannot believe that these two were truly resurrected. Something evil...... some unimaginably wicked trick should be used for that*, Ronye thought.
+
+Perhaps, reading these thoughts from the expression of Ronye, Zeppos returned to the story and opened the crossed arms.
+
+"To keep the doors of the dungeons open was, of course, to lure you here. Because thou is a perfect match for goblins combat training, without the need to pass that hidden passage....... "
+
+"Combat training...... needn’t to pass...?"
+
+While repeating after him with a hoarse voice, Ronye gazed at the goblins lying in the circle of candles. No matter how they looked, they were even smaller than Ronye, not mentioning tall Zeppos and the emperor, of course. *To begin with, what was the problem that made them to took you out of the dungeon?*
+
+That was something she couldn’t understand, but one thing was certain — that it was necessary to stop the incantation as soon as possible. To do that, she first had to eliminate Zeppos.
+
+"...... Enough of this wasteful talk. If you are resurrected from death, I will just drive you back to the deeps of the ground!"
+
+— Ronye stated resolutely and held up her left hand.
+
+*Zeppos has blades in both hands. He cannot use Sacred Arts this way. I’ll pause for an art, then will immediately shorten the distance and slay him.*
+
+"**System Call! Generate Thermal Element!**"
+
+Just like minutes ago, when she let Tiese to continue the incantation after the elements generation to maximize speed, she created 5 thermal elements. At the same time, Zeppos kicked of the floor and jumped over with two blades in hands. He seemed to think that since it was not a "tuned chant", the early attack would work, but that was a trap Ronye set up.
+
+Ronye jumped back and shouted, leaving elements in the place of generation:
+
+"**Discharge!!**"
+
+Five thermal elements were discharged at once and exploded with tremendous roar.
+
+It is necessary to process the element in order to hit the target of no fixed position by an attack technique. "**Arrow shape**" gives priority to linear penetrating power, "**bird shape**" gives an ability to pursuit, and there are many other processing formulae, but if enemies themselves come to the location of an element, they all are unnecessary. Just release it as it is at the moment of contact.
+
+As Ronye planned, Zeppos was caught in the explosion. His leather bands which she couldn’t even call an armor won’t be able to negate the damage. Although thermal elements blast is a basic attack technique, the five elements blasted together have the power enough to completely erase the Life of even young and tough soldier.
+
+*And even if you survive, you cannot move right away. So, I’ll slay you ── there!*
+
+"Waaaa!!!"
+
+With a high shout, she crushed the Sword of the Moonlight down towards the center of the black smoke cloud remaining in the air.
+
+**Ga-ki~i~i~n**! The piercing metal sound echoed, and the sword stopped with the impact which was passed from the wrist to the right shoulder.
+
+"............!?"
+
+In front of astonished Ronye, Zeppos appeared from the dissolving smoke.
+
+Most of the leather bands were burned black, and some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, and beneath the skin had a hollow enough to fir two fists. But that was it. Not a single drop of blood was flowing, and his right hand holding a large knife over his head firmly received Ronye’s sword.
+
+*Impossible. He is standing despite the body is dented to the degree that the lungs and heart should collapse.* The full-body blow with the Sword of the Moonlight, which had the priority of the Divine Object class, delivered by Ronye, who despite being an apprentice, belonged to Integrity Knights, was stopped by one hand of a great chamberlain who wasn’t even a guard.
+
+Standing close to her, Zeppos burst into laughter.
+
+A small knife in his left hand, wet of poisonous green, was quickly protruding, and Ronye tried to avoid it by jumping backwards.
+
+But she did not make it. The knife slid like a green snake through the air, reaching to her chest. The edge of the fluttering cloak is cut away without a sound ──
+
+**Zag**!
+
+— A damp sound reached Ronye's ears.
+
+However, it was a piece of silver metal flying from behind — probably a stake generated from metallic element — that made the sound when it deeply pierced Zeppos' belly.
+
+"Ronye!"
+
+— Tiese shouted and jumped through the cracked window, grasping the naked standard sword:
+
+"Get away from her!"
+
+Following her friend’s voice, she retreated a step away from the poisoned knife which stopped just a few millis away from the solar plexus. Zeppos wiped out his smile and tried to catch up, but Tiese shouted again:
+
+"**Discharge!!**"
+
+Zeppos stared at the pointed tip of the second stake that flew with a humming sound, hit his back and protruded from the center of his chest. Blackened blood was splattered from the man's mouth.
+
+*This time, he’s dead. There are no people living with the heart pierced with a 3 cen thick stake.*
+
+Confident of that, Ronye stepped on the floor with both feet and brandished the sword to deliver the final slash.
+
+"No, he still can move!"
+
+Had Tiese not shout so, she might have been beheaded by a large knife Zeppos swept sideways at a horribly rapid speed.
+
+"Wha............"
+
+Astonished, Ronye bent her upper body to the limit. A blunt silver blade flew so close that her neck felt the pressure of the air it created.
+
+Zeppos who swayed the knife also did not seem to be dead, but he was not intact either; he stopped following her and retreated with uneven steps. Stopped near the center of the hall and spread the two knives as if trying to protect the circle of candles.
 
 ## To be continued...
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Tsukigake is female. I wonder how many hours it will take me to fix all the references to the dragon in both books… Please don't tell me Oroi too is female...
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
-4. <a name="Prim4"></a>.
+2. <a name="Prim2"></a>Before doing that I guess she swapped the sword to the right one.
+3. <a name="Prim3"></a>If you are confused just like Ronye is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
+<!--4. <a name="Prim4"></a>.
 5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
