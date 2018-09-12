@@ -498,6 +498,212 @@ Astonished, Ronye bent her upper body to the limit. A blunt silver blade flew so
 
 Zeppos who swayed the knife also did not seem to be dead, but he was not intact either; he stopped following her and retreated with uneven steps. Stopped near the center of the hall and spread the two knives as if trying to protect the circle of candles.
 
+Tiese ran through the hall’s space to a place by the side of Ronye, shouting with the sword directed to Zeppos.
+
+"Ronye, he is not a human!"
+
+"Eh... what do you mean...?"
+
+As Ronye dashed a confused gaze back and forth to the broken window where she jumped in, Tiese added:
+
+"I’ve found a heap of jute bags in the deeps of the forest. Inside them, was pure soil...... clay, stinking badly."
+
+"Clay……?"
+
+At the moment when she heard that word, Ronye's mind suddenly flashed.
+
+Zeppos' gray skin. Even if he gets caught in the thermal elements explosion, it is just a hollow appearing in the body. Darkish blood.
+
+Ronye saw a body with a similar texture at Obsidia Castle in Dark Territory. Not human. A huge monster suddenly appearing in the treasury store ──
+
+"............ Minion!"
+
+Tiese nodded deeply to Ronye’s panting voice, and Zeppos twisted his lips wet with black blood.
+
+Minion. An artificial creature that could only be produced by Dark Territory Dark Arts Guild Masters. Although it accepts only simple instructions, it has enormous Life suitable for a large body and has high resistance to heat and cold. If Zeppos is a Minion made of clay rather than man, that could very well explain that the body only dented even though it was hit directly by five thermal elements explosion.
+
+But that possibility suggested a new mystery.
+
+"Minion...... It is a monster that cannot even speak. But he ...!"
+
+When Ronye shouted that, Zeppos, with its belly and chest penetrated by the steel-element stake, said with thunderous voice:
+
+"...... It was not just you guys from Axiom Church who were doing research on Sacred Art....... His Majesty Krueger...... no, those of the oldest and most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
+
+"The Four Emperors...... collaborated!?"
+
+— this time Tiese exclaimed in surprise.
+
+Ronye was appalled the same way. For Ronye born in the lower aristocratic house of the Norlangarth Northern Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Foreign World War when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, and that there is a vast world spreading outside of Human World.
+
+*But Zeppos said that the emperors of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Highest Priest, it was possible to go and cross the Timeless Wall, and the four castles towering around the Cathedral were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the emperor himself to go back and forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
+
+"What is that art!?"
+
+Zeppos returned an unusual chuckle to Tiese’s request:
+
+"Gy, gy-gy-gy...... What a foolish girl you are that you have not understand it yet. I’ll tell you...... it is a technique to acquire the privilege of gods monopolized by the Highest Priest, ‘Eternal life’.... "
+
+"Eternal……"
+
+"…life, is it!?"
+
+Struck by the new shock, Ronye and Tiese just stood stock still.
+
+Meanwhile, Zeppos’ body quivered with some sort of cheerful vibe, as he grabbed his narrow head with both hands holding knives:
+
+"Gy-gy-gy....... We used all sorts of experiments to stop the natural decline of Life: all kinds of art, media from elixirs to even toxic poison sometimes. That dungeon where you were confined before. Lot of serfs died there dedicating their lives for this sublime purpose..."
+
+A horrible monologue, followed by an annoying laughter.
+
+Ronye frowned feeling deep grudge, and hatred, and jealousy in his voice and tenacious look.
+
+*The one who became a great chamberlain of the imperial house, should have had a position and power comparable to the senior nobility. Such a person, what could he be jealous of the two who are barely apprentice knights?......* this thought really took her aback.
+
+But it was not Tiese and Ronye as individuals that Zeppos was jealous of. It was the very existence of Integrity Knights. Immortals whose Life was frozen, living for eternity ──
+
+For the emperor and senior nobility who were given the highest power a human may have and used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest and the Integrity Knights overlooking the Human World from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even emperor was not allowed to reveal antipathy.
+
+However, Integrity Knights suffered the Integrity Knights’ troubles. Ronye knew that since entering Cathedral.
+
+Those whose Lives have been frozen must go through repeated separation from the others who do not live indefinitely. For example, knights’ head Fanatio. She is forever young person who have lived for more than two hundred years, but Berchie, her son, is not the same. Unless someone resurrects the Life freeze Sacred Art lost with the death of the Highest Priest ── and unless Fanatio chooses to apply it to Berchie, her son will definitely get older than his mother and will eventually die. What an unbelievably cruel fate for both.
+
+"Eternal life contradicts to the essence of the world."
+
+— Ronye declared while restraining her anger hard, —
+
+"It is absolutely forbidden to kill innocent people..... dozens of them, in search for such things......"
+
+Zeppos’ face immediately distorted to a greater extent than ever before.
+
+"Damned knights... how dare you saying such words at all?"
+
+Black blood scattered from his mouth pronouncing curses.
+
+*Even if Zeppos is minion as Tiese guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged and belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood at least appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
+
+Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, and the other one was split in two with the sword-like hand slash by the ambassador Scheta. With skills of Ronye and the other one, it was difficult to give a fatal injury ── Kirito and others would call it "**damage**", but if one can slip through two knives and slash one of the limbs then there is a winner.
+
+But the problem was emperor Krueger whom Zeppos was trying to protect. Three minutes or more have passed since they broke into the hall, and he was still singing. The longer the Sacred Art is, the longer, more complex and more powerful effects is produced, and Ronye was not aware of any so long technique. The incantation of the Past Reflection art that Asuna used felt quite long too, but still it would have been only about two minutes.
+
+*We cannot prolong the fight with Zeppos. Rather than waiting for death of blood loss, the battle must be resolved at shortest, and then we’d stop the emperor's incantation.*
+
+"Tiese, when I activate the secret move, stop his movements with light element technique."
+
+ — when Ronye whispered this, her friend instantly nodded.
+
+The sword power, the sacred art power, and the incarnational power of the two were at the same levels. Tiese for sure would not want to impose a dangerous role on Ronye. However, there was a big difference between the two of them outside of their abilities. Tiese's Human World army standard sword must have had priority 25 and Ronye's Sword of the Moonlight’s priority was 39 — so it was Ronye who had to strike.
+
+"...... certainly, neither Integrity Knights nor the Axiom Church may be absolutely correct."
+
+— while raising her beloved sword overhead, Ronye shouted, —
+
+"But even if we are sometimes not right, what you are doing here is definitely wrong whatever you say!"
+
+As if the attitude of the owner was passed to it, the blade released a brilliant light blue shine. The moment Tiese began chanting the first line of Sacred Art, she kicked off the floor with the power of the whole body.
+
+The invisible wings vigorously flapped behind her back, creating a tremendous acceleration. Instantaneously she shot through a distance of more than 10 mel and approached the enemy. Incrad style high-speed rushing technique, "**Sonic Leap**".
+
+"You too shall be food for our ambitions, little girley!"
+
+— Zeppos shouted out, grinning with pointed yellow fang-like teeth. He carelessly got better hold of the knives in both hands and tried to catch Ronye.
+
+A pure white shine wrapped his evil words.
+
+Three high-pitched pops overlapped with bang. Light bullets Tiese released had overtaken Ronye in the air.
+
+Light elements were not as powerful as thermal or cryogenic elements, but with their overwhelming flight speed and hit accuracy, they were optimal to cause dizziness. Moreover, it became a counter anti-attribute to minion made with the power of darkness, so it was able to give some damage.
+
+Purple smoke rose from the Zeppos’ face burned by intense light. The movement stopped only for a moment, but it was enough for Ronye.
+
+The light blue flash passed diagonally between the two knives being swung down.
+
+The Sword of the Moonlight bit deeply into the right shoulder of the former great chamberlain and exited the body under the left armpit. A cracked voice groaned from Zeppos’ mouth while he stiffened in a daunting pose.
+
+"...... Krueger, ...... your...... majesty......"
+
+The upper half of the split body slid to the lower left and dropped onto the carpet with a thud. Slightly behind, the lower body also collapsed to the knees.
+
+Ronye avoided the black blood which gushed from the cut surface of the two body pieces by leaping beside.
+
+The moment she was convinced that this time he’s dead, power left her entire body, but the battle had not ended yet. Before the incantation is completed, they had to also defeat emperor Krueger.
+
+In front of her eyes, there was soundlessly swaying candles ring. Inside, the three mountain goblins laying, with their eyes closed. And beyond that, man in a black robe, keeping both hands up and continuing to cast the incantation ──
+
+*If that is the case that the reborn emperor is also a minion, he cannot be defeated by a half-power attack. Like Zeppos, I need to break his body or behead him.*
+
+Ronye brought her sword up again to activate the secret move.
+
+The next moment, several things happened at the same time.
+
+"Ronye!!"
+
+— Tiese exclaimed behind her,
+
+"Zeppos, do your duties!"
+
+— The emperor roared interrupting the cast,
+
+**Ga~ts**!!!
+
+— a heavy impact hit Ronye's right foot.
+
+A bit later, a tremendous pain ran up to her head. Looking down she saw Zeppos who became only a head and a left arm thrusting the knife deeply to the instep of the right foot. With blade glittering green.
+
+Intense numbness followed the pain, and Ronye clenched teeth. The poison had to be dealt with before it spreads throughout the whole body, but there were many kinds of poisoning techniques, and it is not possible to judge which kind of sacred art should be used unless the identity of poison is defined.
+
+"Kh...!!!"
+
+While groaning, she cut Zeppos’ left arm off with a sword. Grabbed the guard of the poisoned knife and pulled it out of the foot. The blood streaming from the wound was already dark.
+
+At the very least, in order to delay the circulation of the poison, Ronye generated five light elements, then deeply cut the leg above her right knee with a sword. Blood flowed again, but its color was still barely red. To allow the light elements into the wound, she converted them to fog using the "**Mist Shape**" command and blended into the blood.
+
+*With this, poison and light should cancel each other to some extent, but to completely detox, it is necessary to use a special technique with medicinal herb that is contained in the carrying bag on the waist. The time’s running out, I have no choice but to use the first toxin decomposition technique which I’ll remember.*
+
+Ronye was thinking so while trying to open the carrying bag with her left hand, but the sense of the fingertips was already dull and she could not unravel the strap. Also, the power was leaving from the left leg as well as from the injured right leg, her body violently shook and tilted ──
+
+"Ronye!"
+
+— Tiese, who ran from behind, supported collapsing Ronye. Carefully swinging the sword, she cut the head of Zeppos who was still watching from the floor.
+
+The sharp metal sound **Kiin**! overlapped the dull sound something made of clay could produce. Zeppos’ head, which was split in two from the crown to the chin, apparently, had completely lost the Life this time, lost its shape and smoothly melted. The lower body that was kneeling nearby also turned into black mucus, and after it spread around the floor it quickly started to evaporate.
+
+There was a strange thing falling in the place where Zeppos’ head disappeared. Silvery disk with petals of lily and feathers of a bird of prey ─ an emblem given to those serving Emperor Norlangarth house, petals and feathers representing the top-ranking ones.
+
+The disk was cut in two pieces. The Tiese’s sword has broken it. A sort of purple smoke was rising from the cut, and soon it disappeared with a sound resembling a faint scream.
+
+*This strange thing is the core of the mystery why Zeppos and the emperor who should have died were resurrected as minions. Perhaps, no, for sure there is something contained in the emperor’s head, which gives the character and personality to the clay body.*
+
+"Tie......se."
+
+Ronye called her best friend, resisting the numbness that was finally reaching the mouth.
+
+*── Cut the emperor's head. This way you can defeat him.*
+
+She wanted to continue, but her mouth wouldn’t move anymore. Tiese hugging Ronye with her left hand had thrown the sword on the floor and was searching hard in the carrying bag. Rather than defeating the emperor, she decided to cure Ronye. This decision cannot be blamed. If the situation is the opposite, Ronye would also do the same.
+
+Behind the black hood drawn down to the eyes, Krueger thinly smiled. Nothing like a sorrow for Zeppos who was supposed to be his long-time supported to die for the second time reflected in that smile.
+
+"**Connect All Circuit! Open Gate!**"
+
+— the emperor raised both hands up to the limit, sharply bent the tall slender body, and shouted with a voice resembling a cracked bell.
+
+Ronye did not understand the meaning of the phrase at all. But guided by some kind of instinct, she hardly turned the numbing neck.
+
+The high ceiling of the large hall was painted black and there were decorative chandeliers hanging, that seemed to be expensive, but not lit. However, Ronye's eyes were drawn to the middle of the ceiling — to a circular hole just above the lying goblins.
+
+*The diameter is about 30 cen. It wasn’t a neat job, the shape is distorted, and the wood is left scratched as it was. Perhaps it was a rough digging through the second-floor room floor with something like an ax.*
+
+*For what such a thing could......* the confusion immediately changed to shivering.
+
+Because something filthy-black was shaking at the back of the hole. Highly viscous, like mud. It closely resembled the clay-like material that the body of dead Zeppos was made of.
+
+Ronye and Tiese both looked up and watched the black clay, or mucus, drooped down out of the hole. It moved as if being extruded with a strong pressure, or as if it crawling out by its own will.
+
+Mucus swelled like a balloon, waved, wriggled — and burst with a horrible sound.
+
+
+
 ## To be continued...
 
 ## Footnotes:
