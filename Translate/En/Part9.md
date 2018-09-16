@@ -702,18 +702,436 @@ Ronye and Tiese both looked up and watched the black clay, or mucus, drooped dow
 
 Mucus swelled like a balloon, waved, wriggled — and burst with a horrible sound.
 
+In front of their eyes, the flood of mucus fell on the floor like a waterfall instantly sinking mountain goblins underneath. The stream ended after the heap of mucus reached the height of more than 2 mel, but the wriggling where the caught creatures were buried did not stop. It continued trembling, waving, seething with goblins inside.
+
+"............!!!"
+
+— Tiese exclaimed and quickly retreated while holding Ronye.
+
+The latter could only desperately clench the handle of beloved sword with her right hand which had already lost sensitivity as the influence of the poison spread over the entire body. If what knife was covered with was a lethal poison, it is supposed that her life was rapidly decreasing, but the numb body could not even feel pain.
+
+Despite understanding the need to use detoxification procedure immediately, Ronye could not take her eyes off the wrinkling black mucus.
+
+The mucus which was an amorphous heap split into three parts after some more trembling. It spread over the floor reaching the ring of candles, and as it absorbed them, flames disappeared one after another.
+
+The only light illuminating the hall that moment were sunset rays hardly flowing in through the window Tiese broke, and also some from the corridor through the big door Ronye kicked open. Both were weak and hardly reached the center of the hall.
+
+The two watched, stunned, as the mucus continued to change into a human shape after becoming the three huge shadows.
+
+Strong upper body, swollen straw rope-like muscles. Oddly long arms. Two legs bent like goats’ ones. The wings folded on the back, and the tail hanging to the floor.
+
+It closely resembled the figures of minion seen at the Obsidia Castle. But there was one important difference.
+
+The original minion had a circular mouth at the tip of a long hagfish-like<sup><a href="#Prim4">4</a></sup> head, and two round eyes are lined up one on each side. But the head of a monster standing in front of them was much closer to humans, with a sharp nose and pointed ears, and two half-closed eyes.
+
+"That face ............ Goblins’............?"
+
+— Tiese muttered with trembling voice. Indeed, the face of the monster closely resembled mountain goblins, but there were no rat-like teeth. Countless fangs stuck out of a wide mouth stretching between two sides of a bald head.
+
+Unexpectedly, Zeppos’ words he said a few minutes ago echoed in her mind:
+
+*── Because it is a perfect match for goblins combat training, without the need to pass that hidden passage...*
+
+For these three minions in front of them, or rather for the three mountain goblins transformed by the emperor's technique and the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of your body would be as long as two and a half mels, their heads would reach the ceiling if they fully extend the bent legs.
+
+*Zeppos ─ perhaps, also the emperor ─ were revived as a humanoid minions by embedding their dead corpses in clay after the Rebellion of Four Empires. And the three goblins were taken into the clay alive and transformed into huge minions.  
+There must be someone further standing in the shadows of the two phenomena. Someone who used the remnants to revive the emperor and the other one, and taught them minions manufacturing method. And that person must be the key to a kidnapping incident in Obsidia Castle and a series of events in Human World.  
+But, rather than that, we should think about how to restore the goblins.  
+If we destroy minions in a normal way, goblins will definitely die as well. It is necessary to remove only the black clay without hurting them who still should be inside. It may be possible if we hit the anti-attribute, light element, in large amounts, but as much as 10 or even 20 might not be enough. Moreover, there is probably not much sacred power remaining in this hall.*
+
+"Ronye, drink this."
+
+Suddenly, a small bottle was brought to her mouth accompanied with such a whisper. She thought it was an elixir to restore Life, but the smell was different. While Ronye thought about all those things, Tiese seemed to have made antidote with available media and sacred art.
+
+The liquid that flowed into her mouth was intensely bitter, but she felt that the numbness of the tongue melted after drinking just a single drop. But how did Tiese identify the kind of poison in Ronye's body?
+
+As if reading the doubt in the eyes, her best friend whispered again:
+
+"That knife was probably the ‘poisonous Ruberyl steel’. I’ve never seen the real thing before, but it was similar to the color Linel told."
+
+The other one agreed solely by moving her eyes.
+
+Integrity Knight Linel Synthesis Twenty-Eight and her fellow Fizel Synthesis Twenty-Nine were the main characters of a story of how they tried to paralyze Kirito and Yujio and get them kill by poison sword. Despite being reliable senior knights, they used to share knowledge somewhat different from the other knights, and probably that was the source from which Tiese may have learned about poison sword.
+
+Hardly moving the lips that just got barely relieved from paralysis, Ronye whispered:
+
+"Tiese...... that Minion, do not kill. Need to save the goblins-san."
+
+"...... Got it."
+
+Tiese nodded deeply and glanced at the broken window:
+
+"But it is impossible to dissolve three Minion bodies with light-element art. As soon as Ronye can move, we will escape from here."
+
+"……but……"
+
+Emperor and minion may disappear if Ronye and she escape. Minion can fly in the sky even if it cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
+
+"I know, but we have no choice."
+
+With a painful look, Tiese brought the mouth close to Ronye's ears and said:
+
+"If the art does not work, and we have to use a sword...... perhaps we won’t be able to slay that Minion."
+
+"............!!"
+
+Ronye sharply inhaled.
+
+That was exactly right. Mountain goblins are integral parts of minions and they could be killed by slashing through; and even if they with Ronye decide that they should do so, there is high possibility that their bodies won’t obey the intention. The "seal of the right eye" ──
+
+However, it was not limited to them. Other Integrity Knights, and even guards of the Human World Defense Army who share the same iron rule: "In order to protect the peace between Human World and Dark Territory, we must never injure a sub-human"<sup><a href="#Prim5">5</a></sup>, will fall into the same situation.
+
+What if there are not only these three?
+
+The Integrity Knight team won’t be able to fight back "sub-humans forced to transform into minions" attacking Centoria in dozens or hundreds.
+
+No, even more terrible things can happen than that.
+
+Emperor Krueger and Zeppos abducted the mountain goblins and transformed them into minions in order to cause a new war between Human World and Dark Territory. If these minions attack Centoria and after a large number of casualties it turns out that their actual identities are goblins, the influence of that would not be limited to the Yazen’s murder scale. The anger and hatred far exceeding the ones of former Foreign World War would rise and the people of Human World will have the genuine wish to begin a reverse invasion into the Dark Territory.
+
+In order to avoid that definite catastrophe, some knights may be able to break the seal of the right eye and fight minions.
+
+However, what if the one who is behind the emperor, instead of clashing the two worlds, wants just to break the present order on its own — to end the rule of the Human World Union Council?
+
+Instead of sub-humans, they could convert Human World people into minions.
+
+Today, there will be at most two hundred or three hundred tourists from Dark Territory staying in Human World. Even if they somehow abduct all of them, that would be the upper limit for the number of minions that can be made. However, the total population of Human World exceeds 80000. With the clay as the material, one can prepare as many bodies as they need.
+
+After Human World people get transformed into minions, Integrity Knights will not be able to fight any of them.
+
+After controlling the Human World Union Council with an army of minions, it would be even possible to invade the Dark Territory and even defeat the Dark Territory army. It is nothing more but the return of "sword skeleton soldiers plan" that the Highest Priest Administrator had been attempting.
+
+Ronye, who had thought about this for a while, watched the shadow of the emperor Krueger through the gap between the three minions, which still hadn’t moved.
+
+Whether he had been exhausted by a long-time high-level incantation, he stuck one knee on the floor. Despite that, the evil wickedness emanating from his black robe appearance, did not appear to fade away. He remained the same or even more malicious than the kidnapper trying to kill the baby Lisetta in Obsidia Castle.
+
+*I ultimately cannot let this man to escape.*
+
+And the Emperor moved as if he felt Ronye’s determination. He staggeringly stood up, passed between minions which remained in the standby posture, and stopped before Ronye.
+
+"...... I did not recognize the style, but it was a splendid secret move, girl."
+
+Ronye was unable to respond quickly to that surprising words she did not expect. But the emperor did not seem to care, he kept talking in crackling voice from behind the hood:
+
+"Not simply murdering, but also slashing away Hozaica’s left arm."
+
+She shivered trying to remember the killing, which he talked of with such an emotionless casual voice, but still she could not remember the name he called. To be exact, she felt like she heard it somewhere, but could not remember details easily.
+
+In lieu of Ronye who raised the eyebrows, Tiese exhaled "Eh......". The arms holding Ronye's body slightly stiffened.
+
+"....... Hozaica Eastabarieth......?"
+
+"Yes...... They used to call him this name at that time."
+
+Listening to that interaction, Ronye finally realized who it was.
+
+One who lost his life in the Rebellion of Four Empires, the Emperor of the Eastabarieth Empire.
+
+However, Emperor Krueger misunderstood something. In the battle of a year ago Ronye and Tiese rushed into the Northern Centoria Imperial castle, and never stepped into the East Centoria. They were knight Nergius and knight Entokia who attacked the Eastern Centoria Imperial castle and slashed Emperor Hozaica.
+
+In the first place, there were only three people, including Zeppos who died a few minutes ago, whom Ronye defeated using a secret move. The first one was the emperor Krueger, and the second one was a black robe kidnapper whom she fought on the top floor of Obsidia Castle.
+
+At that time, Ronye slashed kidnapper’s left arm with the same "Sonic Leap" as she did just now.
+
+Left arm.......
+
+All of a sudden, thanks to the antidote, the feeling came back to Ronye, from toes to the eyelids. In her head, the kidnapper’s voice faintly echoed:
+
+*── Well, so it was the Human World Prime Swordsman who slashed the sealing chain? This person is more troublesome than his reputation.......*
+
+That day, should the kidnapper be of Dark Territory people, he could not hear rumors of Human World Prime Swordsman. Both times Kirito visited Obsidia, including the last time, were incognito, so the people of the city never had a chance to even see Prime Swordsman.
+
+"Did...... did you mean......"
+
+Roughly moving dry lips, Ronye decided to confirm the true meaning of emperor's words.
+
+"Was the kidnapper who appeared in the Obsidia Castle the Eastabarieth emperor, who survived as minion just like you...?"
+
+To that question, Krueger suggestively lifted the pointed mustache:
+
+"You have not found the corpse of Hozaica, have you?"
+
+— and shook his right hand quickly before Ronye said anything:
+
+"Do not worry, that person is dead. Dead bodies that fell to the ground melt and disappear...... just like Zeppos did."
+
+These words confirmed that the kidnapper was emperor Hozaica in a form of a minion. But that led to a new doubt.
+
+"...... How would you know such a thing while you were in Human World?"
+
+Who asked that was Tiese, not Ronye.
+
+Emperor Krueger did not reply by words, but spread the black robe on his chest.
+
+There, hanging on a thin chain, was a blood-red jewel shining even in the dark. Kidnapper — emperor Hozaica — had exactly the same on his chest.
+
+"Again, Hozaica’s plan was destroyed and he died. When 'katashiro'<sup><a href="#Prim6">6</a></sup> also breaks, he cannot be resurrected anymore. However, what he observed was passed over, becoming the cornerstone of the next plan...... that's it. The same way we made this fusion-type minion... prototypes of them, which will strand you knights."
+
+As he said so, satisfied Krueger stroked Minion's powerful arm with his left hand.
+
+Ronye desperately thought while startle and shock quickly converted to a saturated horror in her head.
+
+*Katashiro, that badge that came out from the head of Zeppos. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
+The emperor Hozaica, whose arms were cut off by ambassador Scheta and Ronye, threw himself out of the window on the top floor of Obsidia Castle. The corpse was not found not because he flew away or ran, the katashiro was destroyed when he fell, and the clay body melted.  
+But if we believe in Krueger's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Norlangarth empire and gave Krueger the memory and knowledge of Hozaica ──  
+If the guess so far is correct.  
+That red gemstone is the heart of a gigantic conspiracy intertwining Human World and Dark Territory.*
+
+Ronye strongly clasped the beloved sword with the right hand, already purified from paralysis poison and able to move again.
+
+*I cannot let you go away here. Even if I could defeat the emperor Krueger, if the gem disappears somewhere, there must be someone who inherits the accumulated malice.*
+
+"Tiese...... somehow attract minions for just 30 seconds."
+
+— Ronye whispered at such a volume that she could barely hear it herself.
+
+"After slashing the emperor, goblins may return to the original."
+
+It was a slight hope, but at least they can earn some time if there is no one to control them.
+
+The problem was that the poison hasn’t come out of the wounds above the right knee and right instep. Strong posture was essential for secret sword moves, as well as to release several whole-body blows. Still there was no choice but to try.
+
+"...... I’ve got it."
+
+Tiese who was supporting Ronye’s back also replied with the quietest voice.
+
+She moved the fingers of both hands and feet a little again, to confirm that the sensation is back. Thanks to the emperor talking about it, she gained time to get the medicine to work, but surely the same is true for the other party. Emperor’s mental exhaustion — regardless of whether there is any spirit in the head of minion made of pure clay — seemed to have passed, and the skin surface of the fusion-type minions also became shinier than when freshly made.
+
+Emperor Krueger stroke the minion's arm again with his fingertips and nodded, satisfied:
+
+"Well, according to the plan, Zeppos was supposed to be the opponent for the combat training, but he died. Let me take that responsibility for you."
+
+While talking, he went in the back. Probably, the intention was for minions to kill them.
+
+The prototype minions, which emperor Hozaica used in Obsidia Castle, accepted limited set of very simple commands in sacred words or Dark Territory people words. Moreover, their thinking power was at a wild beast degree, it could not deal with Integrity Knights' sword skill and complicated tactics that make use of Sacred Art. At the time of the Foreign World War, 800 precious minions introduced by the Dark Arts Masters Guild could not recognize the trap of full armament control technique that the knight chief Bercouli set up, and all of them were destroyed in a blink of an eye.
+
+*The time at which the fusion-type minions incorporating the goblins inside have evolved above the original has probably come. They must be able to understand more advanced and diverse instructions. But of course, it will take time to give multiple orders. Take advantage of the chance and kill the emperor that moment.*
+
+Emperor Krueger who returned behind Minions who stood side by side raised his right hand upwards as if giving orders to a soldier under his command.
+
+"Minions! Kill these two girls! ── **Activate**!!"
+
+That was the only command issued. In Human World language and one word of sacred language.
+
+With sound of something starting to vibrate, minions’ eyes began glowing red.
+
+Immediately after, with the speed that made their giant figures blurry, the right and left minions made powerful jumps. The left minion stood before the broken window and the right minion stopped in front of the large open door.
+
+They confined Ronye and others in the hall. In order to carry out the command of "killing", they decided that command objects must not escape, and blocked two possible escape routes.
+
+Ronye realized that the calculation she did a few seconds ago was wrong. The fusion-type minion had an ability to recognize the situation and to accept complicated instructions, and beyond that — judge oneself and move accordingly.
+
+However, since the two blocked the escape routes, there was only one minion remaining in front of emperor Krueger. They couldn’t hit a fusion-type minion built on top of innocent goblins, but they could avoid his attacks and slay the emperor.
+
+*── Tiese!*
+
+Her friend who responded to the thought that thrusted forward the hands supporting her back, as the result pushing Ronye ahead. At the same time, Ronye also kicked off the floor with the injured right foot. Blood sprayed from the boot and knee, the pain engulfing her was like a burning skewer penetrating through the entire body, but she clenched teeth and endured it.
+
+Minion showed an unbelievably agile reaction to the super high-speed rush which combined the power of the two knights. With growling, the long log-like thirty cen-wide right arm came down intending to mow Ronye. Sharp sickle-like nails sprung out from tips of the fingers; if they hit, one will be torn apart.
+
+But Ronye predicted that attack.
+
+Regardless of how high fusion-type minions’ abilities are, the overall shape is almost the same as the original minion. Then, like the origin, they should use claws of both hands as the main weapon.
+
+"**Kh**......!!!"
+
+While unconsciously leaking a groan from behind the clenched teeth, she let the atrociously looking claws to target her for as long as possible, and just before the hit, bent the upper body to the back.
+
+Sliding on the floor feet first, she dove under the attack. The claws of thin fingers reached the disturbed hair, and ends were cut by about 3 cens, but it was a cheap price.
+
+Minion swayed to the left because of the momentum of the whole-body swoosh and turned his back on Ronye. This minion mimicked the shape of a human even more than previous ones, it could not attack from this position. When she brought the body back up by slightly hooking the left foot to the carpet, there was the figure of emperor Krueger in just seven mel ahead.
+
+*Definitely within the range of a "Sonic Leap". With one whole-body blow, destroy the katashiro that should be stored in the middle of the head and the red jewel hanging on the chest, and end it all.*
+
+When she kicked off the floor again with the blooded right foot, vigorously swinging the Sword of the Moonlight up ──
+
+It happened at that very moment.
+
+Something black and slender jumped like a whip from the floor sinking in the darkness, and rushed with incredible speed aiming at Ronye's neck.
+
+Reflectively she lifted the left arm to protect the neck.
+
+In several hundredths of a second, the black whip struck the left forearm.
+
+*── This is minion's tail.*
+
+The fusion-type minion used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, and at a speed higher than the right arm would do.
+
+The moment Ronye recognized it there was the sound of crumbling left arm bones. The braided wire-hard tail, without stopping, painfully hit Ronye's chest and another arm and sent her flying through the air backwards with a tremendous momentum.
+
+Ronye who flew more than 10 mel through the air crashed into the back wall and bounced down to the floor.
+
+*Everything is black. I cannot breathe. Seems it has broken also several ribs on top of my left arm, but the impact that my whole body received is so huge that I cannot even feel pain.*
+
+Despite she thought of standing up, the body did not move at all. Although she wore light metal armor on the chest, it seems that Life has been reduced to a dangerous value with a single blow.
+
+"Ronye ── !!!"
+
+Tiese was calling her name from somewhere distant. She hardly managed to move the face touching the floor, opened the darkened and cloudy eyes.
+
+She could see her best friend appearing from the front left side. And a huge shadow abruptly attacking from the right side.
+
+*....... Tiese, run away.*
+
+An attempt to shout, but only some air flew out of the throat.
+
+Tiese who noticed minion aiming at himself stopped running and tried to deflect the attack.
+
+However, at the moment when she swiftly swayed the sword, her appearance unnaturally stiffened.
+
+The "seal of the right eye" has been activated. She forgot herself because of Ronye's injuries and tried to attack the minion reflexively, but then remembered that there was a goblin enclosed in the enemy's body.
+
+Ronye has never experienced a seal effect until that moment. But she heard that the pain is like the soul is being directly crushed down. As far as Ronye was aware, the only people who managed to break through the seal with their own will were elite swordsman-in-training Yujio, Integrity Knight Alice, the ork chief Rirupirin, and adding General Commander Isukan who got the right eye out himself, there were only four people in total.
+
+Minion with all his force mowed through Tiese's body which was attacked by so much pain that became frozen. Fresh blood painted four long trails in the air, and Ronye screamed forgetting about her deep wounds.
+
+Tiese collapsed on the floor, bounced back and rolled right up to Ronye. She seemed to have lost her consciousness, and wouldn’t move the closed eyelids. A massive amount of blood continued to flow from deep wounds torn by minion’s claws.
+
+"Tei.......se......."
+
+Ronye desperately crawled on the floor while spitting blood from her mouth, lifted the broken left arm and touched the partner's body. Without treating her with luminous elements right now, Tiese will die.
+
+"**Siste...... ko...l**"
+
+She tried hard but couldn’t activate the art with the lack of voice. The left barely holding Tiese’s wounds already dyed red up to the wrist.
+
+Integrity Knights had much higher armor and equipment authority and Sacred Art authority than the Human World guards, and they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ronye and Tiese who were only 17 years old had just about 3000<sup><a href="#Prim7">7</a></sup>.
+
+Even if she couldn’t say it aloud, the Stacia’s window could be displayed if she draws the sacred character. However, Ronye did not have the courage to see the Tiese's remaining Life amount. Just dropping tears down, she held the wound with her left hand, continuing attempts to pronounce the incantation.
+
+**Kin**, a sound echoed on the opposite side of the hall. Minion that drove two people to the moribund state, picked up Tiese’s standard sword that fell to the floor, and tossed it away.
+
+The rest two did not move away from the broken window and the big door. It seemed that they judged that only one is enough to kill Ronye and her. That one, with a steadfast gait, was approaching in order to deliver the finishing blow.
+
+"Ku-ku-ku...... Ku-ha-ha-ha-ha-ha-ha!"
+
+— Emperor Krueger blasted in distorted laughter in the middle of the hall.
+
+"Amazing. Just one...... And this is a fighting power for just a goblin-based fusion? I have heard that soil blended with lots of blood and bones makes it a stronger minion, but isn’t it more than expected? After they died they still dedicate themselves to the surplus, I must praise my former serfs for what they do...... Ha-ha-ha-ha-ha-ha!"
+
+Ronye couldn’t even think about the meaning of words that reached her ears anymore.
+
+It was getting darker and darker in her eyes. Emperor’s loud laughter dissolved away. The sensitivity only remained in the left hand immersed in the blood of Tiese. Its temperature was gradually fading.
+
+Finally, minion that came in front of her eyes swung up the left and right arms at the same time.
+
+Unexpectedly ──
+
+Right hand felt a gentle warmth.
+
+She did not immediately understand what the hand was holding. It was a handle of the Sword of the Moonlight, carefully wrapped with a slightly rough leather.
+
+**To-kun**, **to-kun**, through the pulsing heat sword spoke to her. Unleash me, for I will respond.
+
+*However, I can’t do "that thing". Sword of the Moonlight is certainly a high priority instrument, but it is not a divine object.  
+Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim8">8</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories and can communicate with their masters.  
+On the other hand, it was some human blacksmith who forged the Sword of the Moonlight, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
+Cannot. Cannot…….*
+
+On the verge of her and Tiese’s death, as the time became weirdly stretched, in her head Ronye was repeating the single word over and over.
+
+Suddenly, she felt as if she has heard a new voice.
+
+*── Not only the sword. Even clothes, shoes, tableware...... every single particle generated by sacred art, if you open your heart and share your love they will surely respond. Maybe, people too.......*
+
+She had heard that a long time ago somewhere far away, the words of the deceased elite swordsman-in-training Yujio.
+
+To open the heart.
+
+It was the owner Ronye who had decided that Sword of the Moonlight had no spirit. But looking back at what happened there, it was Vice-Prime Swordsman Asuna who told her to pick one of the three swords, but it was Ronye who was left with the choice of the sword, not her. At that moment, something drifted Ronye's right hand, attracted it to this sword with the silver guard in a form of a crescent moon.
+
+And now, the sword which Ronye named "Moonlight" was speaking to her to help its troubled owner. Believe in the sword, open your heart and release it’s memory.
+
+With warmth transmitted from the handle to the right hand, and the warmth of the left hand immersed in Tiese’s blood transmitted to the core of her body, Ronye cried out using all her modest powers:
+
+"**Enhance Armament!**"
+
+She intended to scream, but the voice was so weak that she could barely hear it herself.
+
+But the sword and the essence of the world responded to Ronye’s call.
+
+The guard and blade of the Sword of the Moonlight emitted a dazzlingly bright silver shine. The moment it was shined by the light, minion that was on the verge of descending the claws of both hands, jumped back, and the other two blocking the exit, together with emperor Krueger who continued to laugh loudly, covered the eyes, twisted bodies.
+
+At the same time, Ronye felt that the pain in the right leg pierced by a knife and in the left arm crushed by the tail, goes away. The blood streaming from Tiese’s wounds also rapidly reduced the flow.
+
+'Complete armament control'.
+
+Essence of incarnational force that only the top knights can use with divine objects, a true mystery.
+
+Perhaps the Sword of the Moonlight released part of its own Life as an enhanced version of the light element healing art. It was a fairly simple category of a complete armament control, but it was a true miracle that Ronye, who has only been a year since becoming an apprentice knight, was able to activate it without doing the full-scale study first.
+
+The light of the blade continued for more than ten seconds, then gradually faded little by little, flashed couple of times and disappeared.
+
+Bleeding from deep cuts carved through Tiese’s body ceased, a little bit of redness returned to the face. However, consciousness has not returned yet, and Ronye's left arm and right foot were not completely cured.
+
+On the other hand, three minions were burned with the anti-attribute light and gray smoke was rising from their whole bodies, but they have not decomposed yet. Apparently, the damage is superficial and they will start moving soon.
+
+*I do not want to let the emperor go, but I cannot exchange Tiese's life to his one. I have to escape from the hall before minions attack again.*
+
+She gathered up the energy that Sword of the Moonlight gave them and rose up with Tiese on her left hand. As for the exit, the door to the hallway was larger, but if minion follows, they will not be able to escape. There was no choice but to go to the front yard through the broken window.
+
+"Tiese, try hard a little more!"
+
+— Ronye whispered to her dying best friend and began running to a window 15 mels away.
+
+With every step, a pain burst in sparkles over her left arm and right leg. She suddenly felt bad and throat got sore.
+
+Another ten mels. Eight mels. Seven mels.......
+
+"Minions, close the window!"
+
+— shouted emperor Krueger who seems to have recovered from the spiritual light damage from the center of the hall.
+
+"**Shyu-gooo**!!"
+
+Minions, despite being similar to mountain goblins, did not have similar voices; which responded was the one curled near the broken window. Stood in front of the escape path, expanded the wings of both arms and barked. The window Tiese broke became completely hidden by the huge body, and the color of the sun went away.
+
+Also, behind, two other minions barked one after another.
+
+To escape, they needed to eliminate the one in front of the window. But Ronye couldn’t attack the fusion-type minion. Even just trying to slash its leg to make it stop moving will trigger the "seal of the right eye" and she will not be able to move just like Tiese previously.
+
+*The only remaining means is to just use complete armament control. If it has curative spirit, burning the flesh of Minion should not hurt the goblins inside. But how much more Sword of the Moonlight's Life has left? I cannot afford confirming it through the Stacia’s window.  
+Sword of the Moonlight will crumble if it runs out of Life by complete armament control.  
+Still.  
+If it is to save Tiese, will the sword forgive me?*
+
+While desperately thinking, Ronye tried to hold up the sword in her right hand.
+
+Suddenly, something was heard.
+
+Countless resonating silver bells. As if all stars and planets of entire sky started to make boisterously noise.
+
+Hundreds of angels sing like
+
+LA ─────────
+
+Along with the spectacular sound, a rainbow of light poured down through the ceiling of the hall.
+
+*This light is as clean as if it doesn’t belong to this world, but it doesn’t damage minions.* She blinked red eyes, and looked up at the ceiling, perplexed.
+
+Suddenly a thin grid of light ran through the ceiling.
+
+Light was becoming more and more thick. The ceiling was being decomposed into dozens of boards. Although the boards were completely separated, they did not fall at all for some reason. While floating in the air, they skidded sideways.
+
+It was not only the ceiling being disassembled. The walls of the second floor, the roof, even the furniture was wrapped in rainbow-colored light, and they were separated and moved outwards without any sound. It was as if the house, previously assembled from precise building blocks crumbled from the inside.
+
+The wave of disassembly finally reached the walls of the first floor. The gray stone composing the stone walls that seemed to be quite sturdy broke apart and moved to the front yard. A glass window left the frame and chased it.
+
+The vast mansion was completely decomposed, leaving only the floor in only a matter of ten seconds. Angels singing dissolved, rainbow-colored light faded.
+
+Immediately afterwards, a myriad of building blocks floating outside the floor dropped with tremendous roar.
 
 
-## To be continued...
+## To be continued... no kidding, this is one hell of a chapter
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Tsukigake is female. I wonder how many hours it will take me to fix all the references to the dragon in both books… Please don't tell me Oroi too is female...
 2. <a name="Prim2"></a>Before doing that I guess she swapped the sword to the right one.
 3. <a name="Prim3"></a>If you are confused just like Ronye is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
-<!--4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.
-6. <a name="Prim6"></a>.
-7. <a name="Prim7"></a>.
-8. <a name="Prim8"></a>.
-9. -->
+4. <a name="Prim4"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
+5. <a name="Prim5"></a>I have doublechecked several times, and a) yes that’s the first time I hear about that and b) no there is no word “innocent” or alike in the phrase, and c) yes that makes the scene at guards building from the volume 19 completely impossible.
+6. <a name="Prim6"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim7"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using western notation, e.g. 3000.
+8. <a name="Prim8"></a>I slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ronye means here.
+<!--9. -->
