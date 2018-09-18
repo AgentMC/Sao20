@@ -1121,6 +1121,81 @@ The vast mansion was completely decomposed, leaving only the floor in only a mat
 
 Immediately afterwards, a myriad of building blocks floating outside the floor dropped with tremendous roar.
 
+When the echo of thunderous destruction sound fell, Ronye was not in the mansion anymore. Her feet were still in a dark carpet, but the evening reddening sky spread overhead. The lower edge of crimson Solus touched the Mountain Range at the Edge; the northern wind still full of winter coldness shook hair of the two.
+
+Three minions and emperor Krueger froze, stunned. If it had been an original minion that simply obeys instructions, it would have continued attacking without any concern for changes around, but because the fusion type one had a kind of consciousness, it seemed to be confused about what to do.
+
+But Ronye’s head stopped working the same exact way. A large hall she thought there was no hope to escape — no, the entire emperor's villa filled with malice and fear couldn’t oppose against the super phenomenon that decomposed it completely within about ten seconds.
+
+"... Ronye"
+
+Suddenly a faint voice reached her left ear. Then at last the thinking ability returned, and she called the name with the same blurred voice.
+
+"Tiese......!"
+
+Her best friend regained consciousness, but was not looking at Ronye. Her autumn leaves-colored eyes did not move away from a point in the southern sky.
+
+Ronye looked up too, filled with curiosity.
+
+A small shadow floated around the boundary of wide sky dyed bright golden yellow and madder red.
+
+One, not two. A woman wearing a pearl dress, her long brown hair flutters on the breeze. The right hand lowering a fine naked sword.
+
+And a man with black hair wearing clothes both top and bottom colored black too, his right hand wrapped around woman’s waist. The hem of the cloak deformed into gently flapping dragon wings.
+
+Ronye who opened both eyes to the limit also noticed what the woman was firmly holding with her left arm. A creature wrapped in light-yellow feathers. Little dragon with long neck and tail and small wings.
+
+"....... Tsukigake......"
+
+— she muttered with shivering voice, trying hard to breathe in while feeling something hot burning in the throat. And called the names of the two people:
+
+"Asuna-sama....... Kirito-senpai......"
+
+Small Tsukigake ran hard to Centoria and brought them here. The rainbow-colored light that decomposed the large mansion must be the power of Stacy God, "unlimited terrain manipulation", which only Asuna possesses in whole Underworld.
+
+Somewhat later than Ronye and Tiese, emperor Krueger seemed to also have noticed the existence of people overlooking him from a far height. He bent loosely hanging fingers of the right hand bent like claws with creaking sound loud enough to hear even for Ronye who was standing away.
+
+![Image](/Translate/Img/p315.jpg)
+
+"............ Human World Union Council...... Prime Swordsman. For how long will you disturb us?"
+
+The emitted voice was distorted and cracked as if it were a curse. The black robe's skirt abruptly turned, and a thin like a dead tree branch left arm pointed to the sky:
+
+"Minions, shoot down those irreverents!"
+
+Three fusion-type minions which received a new order quickly turned their faces towards the sky, opened the pointed mouth wide. Purple miasma wriggled eerily behind the rows of sharp fangs.
+
+*No way fused minion can have attacking belch...... that would be "**breath**" in sacred language, like dragons’ fire stream?*
+
+"Senpai! You are being targeted!"
+
+— Ronye desperately shouted, but her voice was too weak, she did not think that it reached the two floating as high as 100 mels.
+
+But Kirito, as if responding to Ronye’s callout, casually stretched his right hand down from the sky. There was a long black sword shining gold in the sunset in it. Kirito’s divine object, "Sword of the Night Sky".
+
+Three minions opened their mouths to the limit, and tried to breath a dark-colored ray.
+
+Suddenly the surroundings rapidly darkened.
+
+In the beginning, Ronye thought that the streams from minions’ mouths blocked the sunlight. But she quickly understood that was not the case. It was not only in the vicinity of minions that it got dark. The forest surrounding the mansion sank in black shadows, despite a bright scarlet illuminating it moments ago. The sunset sky became dark purple, and even some stars were twinkling in it.
+
+And even Solus floating just above the western horizon lost its light as if it had been dimmed by Lunaria.
+
+Within this suddenly fallen night, there was only one intensely shining thing.
+
+The Sword of the Night Sky Kirito was holding in his right hand. The blade glowed so dazzling golden light that it could not even be looked directly at.
+
+It seemed that emperor Krueger was also frightened by the new super phenomenon, which even exceeded the deconstruction of the mansion. However, he raised his left hand again and shouted boldly.
+
+"Doesn’t matter! Shoot them!!"
+
+Three minions thrusted up heads that froze a moment and vigorously launched a shining purple light stream.
+
+Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward the miasmic mass that rushed at them with a strange sound reminiscent of the beast scream, Kirito sharply swung the Sword of the Night Sky down.
+
+The vision of Ronye burned pure white.
+
+
 
 ## To be continued... no kidding, this is one hell of a chapter
 
