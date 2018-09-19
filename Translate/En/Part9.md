@@ -1195,6 +1195,74 @@ Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward 
 
 The vision of Ronye burned pure white.
 
+Although she could not help narrowing her eyes because of too bright glare, Ronye tried to see what was going on without turning her face away.
+
+It was a huge number of particles emitting white light. Pure heatless white light filled the surrounding space.
+
+At first, miasmic breath kept rising while eating the light grains, but then sharply decreased, as if a body of ice fell into hot water, and disappeared without a trace.
+
+"............... This all, light elements...?"
+
+Ronye silently nodded to Tiese's whispering.
+
+*By shade and movement, these light spots are nothing but familiar light elements. However, what the light element-based techniques are limited to, is that even if a high-level practitioner uses both fingers, there can be only ten elements generated at the same time.  
+The number of light elements filling a wide surrounding space without gaps, at minimum is a few thousands...... and possibly more than a million.  
+I can infer how to generate it. Kirito's Sword of the Night Sky is equipped with an ability to absorb sacred power from the surrounding space itself — to be precise, it has "memory liberation technique" which is its superior power. With that power it sucked in the light of Solus and changed all the enormous amount of sacred power into light elements.*
+
+However, the element disappears or gets out of control the moment caster loses the concentration. Beginning from the training of holding one element on one finger, a practitioner would be already considered a full-fledged cleric if he or she can control five elements on one hand, but higher-ranked masters can control even ten of those with two hands. Both Ronye and Tiese could operate only five elements at that time.
+
+*How can he control tens thousands of elements at the same time?*
+
+— Ronye amazedly stared at the light elements falling like sparkling snow.
+
+On the other hand, minions opened their mouths again to shoot the miasmic breath.
+
+It was then that the light that just drifted in space moved. Tens thousands of light elements flew altogether as if they have their own will and wrapped up three minions’ bodies in a swirl. Like at the time when Sword of the Moonlight emitted spiritual light, their skins cracked and unpleasantly smelling smoke rose up, but it did not last for long.
+
+Numerous light elements penetrated one after another into dark-gray bodies, making it to glow from the inside in pure white.
+
+Terrible monster, without a single scream, collapsed as liquid.
+
+The splashing mucus evaporated while falling through the air, and mountain goblins rolled out of it. They were unconscious, clothes and accessories were all lost, but it seemed that they were not injured.
+
+Some of the light elements wrapped around Ronye and Tiese and healed their scars. Although they felt like collapsing right here right now due to unparalleled warmth and comfort it generated, they tried hard to keep standing.
+
+At the same time as the three fusion-type minions completely disappeared and Ronye's and Tiese’s injuries was healed, the sky also regained the sunset color.
+
+Most of the huge number of light elements played their role and extinguished, but the last few hundreds were floating slightly above the floor forming ten rings. It was the emperor Krueger Norlangarth, of course, trapped in this slender cage created with those rings placed one above another. The rings sizes were just enough not touch the robe's cloth, and if he had moved just a little, the light elements would penetrate the clay body and decompose it in the same way as minions’ ones.
+
+Under the sunset which got a little more reddish than before, the face of the man was completely shaded and the expression in the back of the hood could not be seen. However, it was unlikely that a person as arrogant as emperor would have chosen to quietly become a prisoner.
+
+"Tiese, can you stand?"
+
+Her friend strongly nodded to this loud question:
+
+"Yup, it's all right now. Thank you, Ronye."
+
+"That's me who should... thank you, Tiese."
+
+They hugged each other for a moment and let each other go. Ronye quickly checked the condition of injuries, it seemed that the broken left arm bones are not perfect but were holding together, and only thin scars remained on the right feet and right knees. Tiese, who was more seriously injured, seemed to have no difficulty moving either.
+
+Tiese's standard sword thrown away by a minion laid on the opposite side of the hall from which only floor remained. She stopped Tiese who tried to begin walking there with a left hand:
+
+"Later. Keep an eye on the emperor."
+
+To Ronye’s words, her best friend nodded with tense facial expressions. She was worried about the mountain goblins lying on the floor, but there was also the possibility that the emperor will try to use them again in some way. While carefully holding the Sword of the Moonlight, the other one gradually approached the cage of light elements.
+
+Kirito and Asuna descend from the sky along a wide arc. Ronye and Tiese’s role was to make sure emperor doesn’t do anything weird until the two land.
+
+When two people stepped on the floor three meters from in the cage, black robe shook a little.
+
+"Ku-ku, ku-ku-ku-ku......"
+
+ — sticky stifled laugh reached ears. A point of a sword quickly aimed at him, but emperor did not stop laughing.
+
+"....... Krueger Norlangarth. Your plans are already over, so please be quiet this time."
+
+She spoke as severe as possible, and laughter finally stopped, but in spite of this, words came after, arrogant as usual:
+
+"It is the repeating of what happened a year ago, girl. Could you imagine that back then I have chosen the death filled with glory, and you will be humiliated this time?"
+
 
 
 ## To be continued... no kidding, this is one hell of a chapter
