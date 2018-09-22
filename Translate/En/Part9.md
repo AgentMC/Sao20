@@ -1263,9 +1263,131 @@ She spoke as severe as possible, and laughter finally stopped, but in spite of t
 
 "It is the repeating of what happened a year ago, girl. Could you imagine that back then I have chosen the death filled with glory, and you will be humiliated this time?"
 
+"...... Unlike back then, there is no such option this time."
 
+"Option...... you say? You don’t understand. You don’t understand anything."
 
-## To be continued... no kidding, this is one hell of a chapter
+The emperor who muttered the answer raised the hood a little. Ronye also glanced at the sky, and the Kirito’s group were already reaching just above the mansion. About two seconds or so remained until two people get down.
+
+*For sure, there’s nothing he can do.*
+
+Ronye's determination —
+
+Emperor Krueger outstripped in an unexpected way.
+
+"I’m leaving for the time being, girl... See you again."
+
+That said, the emperor’s body collapsed forward.
+
+"Ah……!"
+
+— Tiese exclaimed and stretched her left hand, but there was nothing she could do. Light element rings, not thicker than one milis, cut through the emperor Krueger's body and the black robe. The clay body slices dropped to the floor one after another from top to bottom with heavy thuds.
+
+Eleven black lumps quickly became mucus heaps and evaporated.
+
+When Kirito and Asuna landed behind them, only a piece of black cloth and two units of jewelry remained on the carpet.
+
+One was the golden ring with a hawk spreading it’s wings over a white lily engraved.
+
+And the other one, glowing ominously on the dark chain, was a crimson gem ──
+
+Kirito who has run to her, placed a hand onto Ronye’s shoulder:
+
+"Sorry, I got late! Are you OK?"
+
+As soon as the tension has gone, Ronye felt like collapsing on the spot, but somehow she remained standing and looked in the face of Prime Swordsman.
+
+"Y-Yes, I am fine. But the emperor......."
+
+"E-Emperor!?"
+
+Despite Kirito was greatly surprised, she couldn’t proceed with detailed explanation. Because some yellowish mass flew out from the arms of Asuna who tried to nurse Tiese and clung to Ronye’s face.
+
+"Kyu-r-r-r!!!"
+
+As soon as she heard the cry, tears flowed from both Ronye’s eyes.
+
+"Tsukigake......!"
+
+She left beloved sword to Kirito and hugged the little dragon firmly with both hands.
+
+Looking closely, she saw mud that stuck to mud stuck to the feathers of Tsukigake and blood here and there, and the fluffy tail feathers have fallen out miserably. *No matter how far Centoria is, I could never imagine it would be like this just by running through meadows and fields. Tsukigake surely made a hard work guiding Kirito here.*
+
+As she gently stroked the little dragon who was chirping “ku~, ku~”, they heard a shrill chirp from the eastern side of the forest.
+
+Light-blue fur ball jumped out of bushes and rushed to them. When it reached the floor surface by slipping through the remains of the mansion piled up in the front yard, it crashed into Tiese.
+
+"Shimosaki!!"
+
+— Tiese also shouted, firmly holding the love dragon. Next to her, Asuna said with a gentle smile:
+
+"Without Shimosaki’s chirping and the brilliance of light elements glimmering through the window of the mansion, we wouldn’t have noticed this place. Everyone did a good job here."
+
+"…………Yes……"
+
+— Tiese answered with the wet voice, Shimosaki chirped proudly at her chest "Ku-ru-ru!" Tsukigake answered "Kyu-ru-ru!" In addition, "Kyu-kyu!" — a third cry echoed.
+
+"............!?"
+
+In response to several surprised looks trying to find a source of the voice, a much smaller creature, a little smaller than the young dragons, came out of Kirito's coat, ran up and sat down on his head. A brown beast with profusely long ears, something between a rabbit and a rat, look around at everyone and as if complaining of something again cried "Kyu!!!".
+
+".......K-Kirito-senpai, what is that thing?"
+
+When she asked in surprise, Kirito turned his eyes towards the rat on his head and said:
+
+"Well, that is....... When we flew above the field in the southern part of former private territories, Tsukigake was fighting a beast named something like anaguma......."
+
+"I guess, that's not ‘anaguma’ but ‘hanaguma’."
+
+After answering "As if it makes any difference......"<sup><a href="#Prim9">9</a></sup> to Asuna's point, he shook his head and continued the explanation.
+
+"Anyway, after we chased away those hanagumas, treated Tsukigake's injuries and were about to fly again to the lake, Tsukigake ran to a **bucket**, a wooden cane that was rolling near...... this guy came out of it."
+
+"From the cane, is it...?"
+
+"Yup, from the situation, it seemed that Tsukigake hid it in the cane before fighting hanagumas. So, I thought it would be an important **flag**, a condition to fulfill, but it did not do anything in particular..."
+
+When Prime Swordsman finished, Tsukigake chirped "Ku-ru-ru~..." while moving his glance between Ronye and Kirito, and the rat responded "Kyu-kyu-kyu!"
+
+Ronye did not precisely understand the meaning of Tsukigake's chirping as well as rat’s squeaking. Still, she somehow perceived the overall sense of the interaction and tried to express it into Human World language:
+
+"W-well... apparently, Tsukigake seems to have promised that mouse... something ..."
+
+"Promised......?"
+
+When Kirito, Asuna and Tiese exchanged looks altogether, the rat complainingly jumped on Prime Swordsman's head. The situation was so strange that called for a smile ─
+
+That moment.
+
+A blood-red flash burst on the floor slightly away.
+
+"Kii!!!"
+
+— the rat screamed and jumped into Kirito's bosom. Tsukigake and Shimosaki also made warning sounds.
+
+Ronye looked at the source while shielding the eyes with her right hand from the stabbing light.
+
+What was shining was a gem that laid on the floor. The necklace Emperor Krueger and Emperor Hozaica wore on the chest.
+
+"Senpai! That is the culprit of everything!"
+
+That moment when Ronye shouted and Kirito took a step towards a red flash.
+
+The gem rose into the sky with terrible momentum.
+
+Kirito stretched his right hand to the red light rising fast enough to exceed the flame arrows art. The shining rapidly decelerated and stopped about 30 mel above.
+
+Kirito was trying to grasp it with the "arm of mind".
+
+*It cannot shake off Kirito's mind – capable to fly a metal dragon.* Ronye thought so, but the gem had not fallen easily. It trembled as if being pulled behind with a chain, but remained at the same point in the sky.
+
+The battle lasted for about 3 seconds.
+
+Suddenly, **bakin!** — impact-like sound echoed.
+
+The chain that it was pulled with by the power of mind seemed to break apart.
+
+And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset and disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Western Empire Wesdarath.
 
 ## Footnotes:
 
@@ -1277,4 +1399,4 @@ She spoke as severe as possible, and laughter finally stopped, but in spite of t
 6. <a name="Prim6"></a>[Katashiro](http://yokai.com/katashiro/).
 7. <a name="Prim7"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using western notation, e.g. 3000.
 8. <a name="Prim8"></a>I slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ronye means here.
-<!--9. -->
+9. <a name="Prim9"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, and despite certain similarities, it is entirely different animal, and should Tsukigake actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.
