@@ -668,9 +668,9 @@ Ronye was thinking so while trying to open the carrying bag with her left hand, 
 
 The sharp metal sound **Kiin**! overlapped the dull sound something made of clay could produce. Zeppos’ head, which was split in two from the crown to the chin, apparently, had completely lost the Life this time, lost its shape and smoothly melted. The lower body that was kneeling nearby also turned into black mucus, and after it spread around the floor it quickly started to evaporate.
 
-There was a strange thing falling in the place where Zeppos’ head disappeared. Silvery disk with petals of lily and feathers of a bird of prey ─ an emblem given to those serving Emperor Norlangarth house, petals and feathers representing the top-ranking ones.
+There was a strange thing falling in the place where Zeppos’ head disappeared. Silvery ring<sup><a href="#Prim4">4</a></sup> with petals of lily and feathers of a bird of prey ─ an emblem given to those serving Emperor Norlangarth house, petals and feathers representing the top-ranking ones.
 
-The disk was cut in two pieces. The Tiese’s sword has broken it. A sort of purple smoke was rising from the cut, and soon it disappeared with a sound resembling a faint scream.
+The ring was cut in two pieces. The Tiese’s sword has broken it. A sort of purple smoke was rising from the cut, and soon it disappeared with a sound resembling a faint scream.
 
 *This strange thing is the core of the mystery why Zeppos and the emperor who should have died were resurrected as minions. Perhaps, no, for sure there is something contained in the emperor’s head, which gives the character and personality to the clay body.*
 
@@ -722,7 +722,7 @@ Strong upper body, swollen straw rope-like muscles. Oddly long arms. Two legs be
 
 It closely resembled the figures of minion seen at the Obsidia Castle. But there was one important difference.
 
-The original minion had a circular mouth at the tip of a long hagfish-like<sup><a href="#Prim4">4</a></sup> head, and two round eyes are lined up one on each side. But the head of a monster standing in front of them was much closer to humans, with a sharp nose and pointed ears, and two half-closed eyes.
+The original minion had a circular mouth at the tip of a long hagfish-like<sup><a href="#Prim5">5</a></sup> head, and two round eyes are lined up one on each side. But the head of a monster standing in front of them was much closer to humans, with a sharp nose and pointed ears, and two half-closed eyes.
 
 "That face ............ Goblins’............?"
 
@@ -779,7 +779,7 @@ Ronye sharply inhaled.
 
 That was exactly right. Mountain goblins are integral parts of minions and they could be killed by slashing through; and even if they with Ronye decide that they should do so, there is high possibility that their bodies won’t obey the intention. The "seal of the right eye" ──
 
-However, it was not limited to them. Other Integrity Knights, and even guards of the Human World Defense Army who share the same iron rule: "In order to protect the peace between Human World and Dark Territory, we must never injure a sub-human"<sup><a href="#Prim5">5</a></sup>, will fall into the same situation.
+However, it was not limited to them. Other Integrity Knights, and even guards of the Human World Defense Army who share the same iron rule: "In order to protect the peace between Human World and Dark Territory, we must never injure a sub-human"<sup><a href="#Prim6">6</a></sup>, will fall into the same situation.
 
 What if there are not only these three?
 
@@ -865,7 +865,7 @@ Emperor Krueger did not reply by words, but spread the black robe on his chest.
 
 There, hanging on a thin chain, was a blood-red jewel shining even in the dark. Kidnapper — emperor Hozaica — had exactly the same on his chest.
 
-"Again, Hozaica’s plan was destroyed and he died. When 'katashiro'<sup><a href="#Prim6">6</a></sup> also breaks, he cannot be resurrected anymore. However, what he observed was passed over, becoming the cornerstone of the next plan...... that's it. The same way we made this fusion-type minion... prototypes of them, which will strand you knights."
+"Again, Hozaica’s plan was destroyed and he died. When 'katashiro'<sup><a href="#Prim7">7</a></sup> also breaks, he cannot be resurrected anymore. However, what he observed was passed over, becoming the cornerstone of the next plan...... that's it. The same way we made this fusion-type minion... prototypes of them, which will strand you knights."
 
 As he said so, satisfied Krueger stroked Minion's powerful arm with his left hand.
 
@@ -995,7 +995,7 @@ Ronye desperately crawled on the floor while spitting blood from her mouth, lift
 
 She tried hard but couldn’t activate the art with the lack of voice. The left barely holding Tiese’s wounds already dyed red up to the wrist.
 
-Integrity Knights had much higher armor and equipment authority and Sacred Art authority than the Human World guards, and they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ronye and Tiese who were only 17 years old had just about 3000<sup><a href="#Prim7">7</a></sup>.
+Integrity Knights had much higher armor and equipment authority and Sacred Art authority than the Human World guards, and they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ronye and Tiese who were only 17 years old had just about 3000<sup><a href="#Prim8">8</a></sup>.
 
 Even if she couldn’t say it aloud, the Stacia’s window could be displayed if she draws the sacred character. However, Ronye did not have the courage to see the Tiese's remaining Life amount. Just dropping tears down, she held the wound with her left hand, continuing attempts to pronounce the incantation.
 
@@ -1024,7 +1024,7 @@ She did not immediately understand what the hand was holding. It was a handle of
 **To-kun**, **to-kun**, through the pulsing heat sword spoke to her. Unleash me, for I will respond.
 
 *However, I can’t do "that thing". Sword of the Moonlight is certainly a high priority instrument, but it is not a divine object.  
-Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim8">8</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories and can communicate with their masters.  
+Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories and can communicate with their masters.  
 On the other hand, it was some human blacksmith who forged the Sword of the Moonlight, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
 Cannot. Cannot…….*
 
@@ -1339,7 +1339,7 @@ When she asked in surprise, Kirito turned his eyes towards the rat on his head a
 
 "I guess, that's not ‘anaguma’ but ‘hanaguma’."
 
-After answering "As if it makes any difference......"<sup><a href="#Prim9">9</a></sup> to Asuna's point, he shook his head and continued the explanation.
+After answering "As if it makes any difference......"<sup><a href="#Prim10">10</a></sup> to Asuna's point, he shook his head and continued the explanation.
 
 "Anyway, after we chased away those hanagumas, treated Tsukigake's injuries and were about to fly again to the lake, Tsukigake ran to a **bucket**, a wooden cane that was rolling near...... this guy came out of it."
 
@@ -1394,9 +1394,10 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Tsukigake is female. I wonder how many hours it will take me to fix all the references to the dragon in both books… Please don't tell me Oroi too is female...
 2. <a name="Prim2"></a>Before doing that I guess she swapped the sword to the right one.
 3. <a name="Prim3"></a>If you are confused just like Ronye is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
-4. <a name="Prim4"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
-5. <a name="Prim5"></a>I have doublechecked several times, and a) yes that’s the first time I hear about that and b) no there is no word “innocent” or alike in the phrase, and c) yes that makes the scene at guards building from the volume 19 completely impossible.
-6. <a name="Prim6"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim7"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using western notation, e.g. 3000.
-8. <a name="Prim8"></a>I slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ronye means here.
-9. <a name="Prim9"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, and despite certain similarities, it is entirely different animal, and should Tsukigake actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.
+3. <a name="Prim4"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) and it is mentioned that it is a piece of jewelry.
+4. <a name="Prim5"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
+5. <a name="Prim6"></a>I have doublechecked several times, and a) yes that’s the first time I hear about that and b) no there is no word “innocent” or alike in the phrase, and c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
+6. <a name="Prim7"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim8"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using western notation, e.g. 3000.
+8. <a name="Prim9"></a>I slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ronye means here.
+10. <a name="Prim10"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, and despite certain similarities, it is entirely different animal, and should Tsukigake actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.
