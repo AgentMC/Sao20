@@ -39,7 +39,7 @@ That's fine, but no matter how few people were in the Cathedral’s ninety-fifth
 
 "Ah...... It is not advisable to compete against the work of Kirito-senpai...."
 
-when Ronye Unintentionally said so, Tiese cheerfully laughed. Tsukigake and Shimosaki who were eating dried fish on the floor also chirped "ku-ru-ru”; next to them, their new friend, miminaga-nure-nezumi, was crunching a deliciously looking nut.
+when Ronye Unintentionally said so, Tiese cheerfully laughed. Tsukigake and Shimosaki who were eating dried fish on the floor also chirped "ku-ru-ru”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
 
 Three days have passed since the incident in Emperor's domain, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four emperors was planned to be held extensively in the whole city of Centoria, and the Cathedral was a little more crowded than usual.
 
@@ -174,6 +174,114 @@ When Asuna pointed that out, Kirito muttered with his arms folded:
 
 "No matter how many hands there are, it is never enough."
 
+Ronye knew that Kirito said so because he himself was chased by a lot of work every day. Unconsciously, she stretched the spine and said in a formal voice:
+
+"Well, when I become a regular knight, I will try helping you more!"
+
+Kirito looked at Ronye and smiled "I'm counting on you", then moved his eyes to Tiese, and opened his eyes wide in a startle.
+
+Ronye also looked to the right.
+
+Tiese, who was listening to the subject with a serious expression until just before, was sitting there, head down, biting her lips as if desperately trying to endure the tears.
+
+"Tiese."
+
+She reflexively reached the hand out and touched her best friend's back. *Tiese is supposed to be a little bigger than me now, but it feels like she is as small as a child.*
+
+Both Kirito and Asuna did not say anything. Resolve was supposed to be the characteristic of the Order’s member, however, sincerely caring of Tiese’s feelings, they remained silent.
+
+"Kyu-ru......"
+
+Shimosaki, who was chasing with Tsukigake and Nuts around the middle of the garden, shortly chirped, came close to the table and licked Tiese's right hand fingers. Tiese slowly raised her face after gently plucking the neck of the young dragon with her hand.
+
+"Um......, Kirito-senpai, Asuna-sama......."
+
+When the two silently nodded, Tiese said, pushing out one word at a time through clenched teeth:
+
+"....... I am thinking of declining to be promoted to a regular knight."
+
+"Why is that?"
+
+— Kirito asked bluntly looking straight at her. From the time they first met in Sword Mastery Academy, they knew this feeling of being inquired by a gaze of his black eyes, his gentle but powerful look, and Tiese finally pushed out what she had in my mind for a long time:
+
+"...... I attempted to examine the emperor's villa...... because I have heard rumors that there is a ghost there. Should a ghost exist...... I wondered if I could meet Yujio-senpai someday again. I rushed ahead and endangered Ronye, Tsukigake and Shimosaki only because of my personal interest. I do not have the right...... I’m not eligible to become a regular knight."
+
+At the last words she violently shook, closed her mouth, and grains of tears ran out of her autumn leaves-colored eyes.
+
+Ronye had a lot to tell to her best friend, but now it was Kirito's task to comfort Tiese’s thoughts.
+
+"... If I could meet him too............"
+
+Kirito said in a gentle, but somewhat distant voice. Tiese snapped her face up, and stared at Kirito with wet eyes.
+
+"Me too, from time to time feel that overwhelming desire to see Yujio and to talk to him again. Being alone, I imperceptibly recollect his words and smile. And you know...... it wouldn’t be true if I say that in this world there is no way to hear the voice of the person who passed away. The memory of a person soaks into things that he cherished or places he liked, and from there it is not impossible to extract a pseudo-soul with some Sacred Art..."
+
+When Kirito said so, Tiese shivered with the whole body. She grasped both hands in front of the chest and asked squeezing words out:
+
+"Then...... then you can meet him? Once again, Yujio-senpai..."
+
+Then Kirito closed the eyes for a moment and slowly shook his head:
+
+"...... Even if I can hear Yujio's voice because of some form of an art, it cannot be said that it would be the real Yujio. Just like emperor Krueger who revived as a minion was not the real emperor....... Five floors above this place, on the top floor of the Cathedral, Yujio died by the hand of the Highest Priest while attacking her. His soul, along with the Alice’s soul consisting of her childhood memories taken away during the Synthesis ritual, are now gone. After that Yujio’s memory stayed in the sword which helped me a number of times, but... in the battle with Emperor Vector, it finally burned out......"
+
+Kirito's words were comforting but cruel at the same time. Tiese slowly dropped her shoulders and muttered:
+
+"Well... then, there are no memories of senpai left anywhere in this world..."
+
+"No, it’s not like this."
+
+— While saying so resolutely, Kirito lifted his right hand and pressed it against his chest:
+
+"Memories are here. In minds of all the people who met Yujio and spent time together with him, the memory of him remains. If this memory of Yujio speaks...... that is the real Yujio."
+
+Tiese, who quietly breathed in, put her right hand on her chest in the same way.
+
+But after a few seconds her hands fell down to the knees.
+
+"............ I...... I only had about a month around Yujio-senpai. I could not travel together with him like Kirito-senpai did, nor could we fight together in the Axiom Church. Moreover...... it was basically because of me that Yujio-senpai was taken to the Church. My senpai left the academy and now is gone....... I cannot hear Yujio-senpai’s voice..."
+
+Having said so, Tiese pushed both hands against her face and began to cry; Shimosaki rubbed his neck against her leg while raising an anxious voice. Tsukigake and Nuts also watched the situation side by side.
+
+"....... Tiese-san."
+
+As Tiese continued to cry, Asuna talk to her in a calm voice.
+
+"I have also lost an important person in the Real World. She was younger than me, but she had always been strong, always smiling brightly and said she was my little sister. The time we spent together was very short, but.... but at the time of Foreign World War, she helped me. Even now, I have lot of memories of this girl. What is important is not the length of time... besides, since Yujio-san acted to help Tiese-san and others, he must have never had any regrets about it."
+
+Asuna finished talking and extended the left hand gently stroking Tiese’s back, her crying little by little stopped.
+
+Still, Kirito said to Tiese who did not try to remove her hands from the face:
+
+"Tiese. Even if you decline the promotion to a regular knight, are you going to swap the sword?"
+
+Although it was a sudden question, after a while Tiese finally took off her hand from the face and nodded.
+
+"...... Yes, back there at the villa, I made Ronye to fight because I still used the regular sword..."
+
+"Then, on top of selecting a sword in the armor store...... I would like you to keep this one."
+
+That said, Kirito lifted the cloth-wrapped package from the flower bed nearby.
+
+What came out from the white cloth was a beautiful single-handed long sword with a rose embossed on an ice-like transparent guard. As soon as she saw it, Tiese opens the eyes wide:
+
+"S-sword of the Blue Rose...?!"
+
+The sword Kirito put in the middle of the table was definitely the Sword of the Blue Rose — the former Yujio’s beloved sword and after his death was the finest divine object that Kirito continued to own.
+
+"B-but, this is… Kirito-senpai’s......."
+
+Tiese was just slightly shaking her head. Ronye could also understand the inexpressible feeling that she experienced.
+
+Kirito had shut his heart since fighting the Highest Priest till the end of the Foreign World War, and for a long time could not speak or walk, but he never let go of the Sword of the Night Sky and the Sword of the Blue Rose. But Kirito smiled and said with a voice full of a strong will:
+
+"I'd like you to have this one, Tiese, now you still are not strong enough to equip it and it will be difficult to swing,...... but at least you can take care of it. If you carefully polish it, one day Tiese for sure will be able to hear Yujio's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
+
+Encouraged by Kirito, Tiese steadily extended her hands and grasped the long sword contained in the white leather sheath.
+
+The current Tiese's weapon equipment authority was the same as Ronye’s, 40. On the other hand, the priority of the Sword of the Blue Rose should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or an craftsman.
+
+Since Yujio and Kirito entered the Sword Mastery Academy, they could freely handle this sword, a divine object. That means that their weapon equipment authority has reached 45, the level of highest grades. Considering that, one can also talk about the fact that the two had equalized with Dusolbert and Fanatio and others in Central Cathedral, but, as Kirito constantly said, the strength cannot be represented only by figures.
+
 
 
 ## To be continued...
@@ -182,8 +290,8 @@ When Asuna pointed that out, Kirito muttered with his arms folded:
 ## Footnotes:
 
 1. <a name="Prim1"></a>This is a combination of “hyaku” (one hundred) and “pa~”, first syllable of “pa~sento” (percent). So it’s a Japanese slang word consisting of a Japanese word, treated as a non-Japanese one, plus a syllable of another non-Japanese word, all in all, meaning “100%”. Good luck trying to adapt this… best thing I came up with was “damgud” but it’s so pitiful it only deserves a place in a footnote.
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
+2. <a name="Prim2"></a>Actually, it's "Natsu" (ナツ). But it's definitely not because of Summer (natsu, 夏), nor because of a Fairy Tail reference. Something tells me that it's simply because the rat wanted nuts. Besides, given _who_ gave the name, I see no other choice but to adapt it.
+<!--3. <a name="Prim3"></a>.
 3. <a name="Prim4"></a>.
 4. <a name="Prim5"></a>.
 5. <a name="Prim6"></a>.

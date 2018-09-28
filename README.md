@@ -5,7 +5,7 @@
 Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajidesu. (Turns out there is already Chinese translation of web version, it ~helps a lot, too~ helped till chapter 9 which is still not translated. And that Bing translator is (suddenly) good at some crazy hiragana sequences like そうかっかしなさんな, so I use it as well now.) However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
 Overall progress: translating...  Estimated finish: by the end of September.  
-`###############################################>-- 95%.`
+`################################################>- 97.22%.`
 
 Contents:
 
@@ -20,7 +20,7 @@ Contents:
 - [Part 7](Translate/En/Part7.md)
 - [Part 8](Translate/En/Part8.md)
 - [Part 9](Translate/En/Part9.md)
-- [Part 10](Translate/En/Part10.md) (45%)
+- [Part 10](Translate/En/Part10.md) (81.82%)
 <!-- [Afterword](Translate/En/AW.md)
 - [Last content page - Accel World 22 commercial](Translate/En/AW22Ad.md)-->
 
