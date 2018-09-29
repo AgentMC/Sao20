@@ -278,13 +278,89 @@ Kirito had shut his heart since fighting the Highest Priest till the end of the 
 
 Encouraged by Kirito, Tiese steadily extended her hands and grasped the long sword contained in the white leather sheath.
 
-The current Tiese's weapon equipment authority was the same as Ronye’s, 40. On the other hand, the priority of the Sword of the Blue Rose should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or an craftsman.
+The current Tiese's weapon equipment authority was the same as Ronye’s, 40. On the other hand, the priority of the Sword of the Blue Rose should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or a craftsman.
 
 Since Yujio and Kirito entered the Sword Mastery Academy, they could freely handle this sword, a divine object. That means that their weapon equipment authority has reached 45, the level of highest grades. Considering that, one can also talk about the fact that the two had equalized with Dusolbert and Fanatio and others in Central Cathedral, but, as Kirito constantly said, the strength cannot be represented only by figures.
 
+Tiese stood up placing her legs wide enough to remain steady and let out a long breath. Then, same way slowly breathed in, held her breath ─ and carefully little by little lifted the Sword of the Blue Rose.
+
+The divine object resonated with Tiese’s spirit, did not refuse her hands. Firmly holding the sword with both hands, Tiese gently gripped the handle, and a small smile appeared on her face instead of drying tears.
+
+"....... Kirito senpai, I will do my best to take care of the Sword of the Blue Rose. I will polish it every day and practice my training more seriously... and someday, I’ll become a strong senior knight able to swing this sword!"
+
+"……Uhu."
+
+— Kirito and Asuna nodded at the same time, and Ronye blinked to shake off the tear blurring the vision.
+
+*Her thoughts on Yujio and the proposal from Renri. Looks like, it will take some time for Tiese to answer. But little by little... going forward one step at a time. As the two of us have done so far.*
+
+A gentle breeze passed through the garden, and the 2 o'clock bell rang lightly.
+
+"Oops... it's just about the time."
+
+— Kirito suddenly murmured and swallowed the piece of an apple pie that remained in the dish in one bite. As Kirito, looking pretty similar to a tree nut lover Nuts with his swollen cheeks, was chewing it down, Asuna asked him:
+
+"The time for what?"
+
+"Everyone, please take a look at the main gate."
+
+They moved along the aisle as he said ─ Tiese still holding the divine object which appeared to be truly physically heavy though,─ and looked over the front garden of Cathedral from the southern side.
+
+That time the gate, normally closed, opened wide, and large four-horse carriage came in through it.
+
+"Wow, such a big horse carriage..."
+
+— Tiese muttered, and Ronye also tilted her head:
+
+"Who is inside...?"
+
+"Hey, don’t you remember the report you heard at a meeting couple of days ago?"
+
+— Kirito said smiling with cream on his face.
+
+"The Sacred Art masters apprentices entering the tower this month."
+
+"Eh…………!"
+
+Ronye looked at Tiese and then at the carriage again.
+
+*There certainly was something like this on the agenda. I had completely forgotten it because of the troubles caused by the black emperors, but that means that in the carriage......*
+
+"....... Frenica!"
+
+— Ronye and Tiese shouted out loudly and looked at the faces of Kirito and Asuna.
+
+"Oh, hey, senpai, we..."
+
+"Ah, are you going to welcome her? I will deliver the Sword of the Blue Rose to your room later then."
+
+"S-sorry, I would appreciate your favor!"
+
+Actually, she did not want to let it go so quickly, but she wouldn’t be able to run with a divine object. Tiese retuned the sword to Kirito and quickly lowered her head:
+
+"Asuna-sama, thank you for the pie and tea party! Would you kindly excuse us!"
+
+"Welcome."
+
+— smiling Asuna waved them a hand, and the two rushed to the staircase, when they heard ─
+
+"So, I’ll go too, will welcome Selka."
+
+— a voice from behind. Turning around in surprise, Ronye saw Kirito holding the Sword of the Blue Rose in his right hand, about to jump from the platform straight to the air.
+
+"Ah, hey Kirito-kun, please take me along!"
+
+— shouted Asuna, leaping at him from behind and falling together with him outside. Prime Swordsman and Vice-Prime Swordsman disappeared in a blink of an eye, and when Ronye again looked back at Tiese, she grinned.
+
+"Hey Tsukigake, Shimosaki, Nuts, let’s go!"
+
+When she turned back and called, the young dragons answered "Ku-ru-ru!" and the rat jumped on Tsukigake’s back.
+
+The two people and three animals began running cheerfully down from the Lookout where early spring flowers bloomed.
+
+(the end)
 
 
-## To be continued...
 
 
 ## Footnotes:
