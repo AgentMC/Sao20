@@ -16,4 +16,4 @@ Kawahara Reki.
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>This is a combination of “hyaku” (one hundred) and “pa~”, first syllable of “pa~sento” (percent). So it’s a Japanese slang word consisting of a Japanese word, treated as a non-Japanese one, plus a syllable of another non-Japanese word, all in all, meaning “100%”. Good luck trying to adapt this… best thing I came up with was “damgud” but it’s so pitiful it only deserves a place in a footnote.
+1. <a name="Prim1"></a>...of Ordinal Scale.
