@@ -4,8 +4,7 @@
 
 Warning: I just began learning Japanese, so translation is done through Google Translate, Jisho and Romajidesu. (Turns out there is already Chinese translation of web version, it ~helps a lot, too~ helped till chapter 9 which is still not translated. And that Bing translator is (suddenly) good at some crazy hiragana sequences like そうかっかしなさんな, so I use it as well now.) However, I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
-Overall progress: translating...  Estimated finish: by the end of September.  
-`################################################## 99.99% (fixing Tsukigake).`
+Overall progress: done, 30th September.  
 
 Contents:
 
