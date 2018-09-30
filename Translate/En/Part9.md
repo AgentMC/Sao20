@@ -1311,7 +1311,7 @@ As soon as she heard the cry, tears flowed from both Ronye’s eyes.
 
 She left beloved sword to Kirito and hugged the little dragon firmly with both hands.
 
-Looking closely, she saw mud that stuck to mud stuck to the feathers of Tsukigake and blood here and there, and the fluffy tail feathers have fallen out miserably. *No matter how far Centoria is, I could never imagine it would be like this just by running through meadows and fields. Tsukigake surely made a hard work guiding Kirito here.*
+Looking closely, she saw mud that stuck to the feathers of Tsukigake and blood here and there, and that the fluffy tail feathers have fallen out miserably. *No matter how far Centoria is, I could never imagine it would be like this just by running through meadows and fields. Tsukigake surely made a hard work guiding Kirito here.*
 
 As she gently stroked the little dragon who was chirping “ku~, ku~”, they heard a shrill chirp from the eastern side of the forest.
 
@@ -1391,7 +1391,7 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Tsukigake is female. I wonder how many hours it will take me to fix all the references to the dragon in both books… Please don't tell me Oroi too is female...
+1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Tsukigake is female. I wonder how many hours it will take me to fix all the references to the dragon in both books… (the answer is: 2.5 hours) Please don't tell me Oroi too is female...
 2. <a name="Prim2"></a>Before doing that I guess she swapped the sword to the right one.
 3. <a name="Prim3"></a>If you are confused just like Ronye is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
 3. <a name="Prim4"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) and it is mentioned that it is a piece of jewelry.

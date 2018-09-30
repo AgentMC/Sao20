@@ -24,11 +24,11 @@ His shabby face looked somewhat older than Dusolbert’s, but the actual age was
 
 When Ronye nodded, the stable worker extended his slender, yet, upon closer look, quite stubborn right hand, pushing it under the chin of the young dragon.
 
-"Recently I gave some fish to Tsukigake, it wasn’t a lot, but it still left some. Dragons, of course, have individual food preferences, but there’s no chance one can choose food in the battlefield, so you’d better correct this behavior while it’s still young."
+"Recently I gave some fish to Tsukigake, it wasn’t a lot, but she still left some. Dragons, of course, have individual food preferences, but there’s no chance one can choose food in the battlefield, so you’d better correct this behavior while she’s still young."
 
 "Oh... is that so? Hey, Tsukigake, there’s no good in being picky, you know?"
 
-When the Ronye softly scolded it, the young dragon, as if understanding the words, pushed its head and feathery ears down and said "Kyuuun".
+When the Ronye softly scolded her, the young dragon, as if understanding the words, pushed its head and feathery ears down and said "Kyuuun".
 
 "Well, what should I do to correct this fish disliking?"
 

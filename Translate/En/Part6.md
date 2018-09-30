@@ -78,7 +78,7 @@ When Ronye encouraged it, after moving the body back and forth numerous times he
 
 in a loud voice, Tsukigake also jumped into the water.
 
-*I can chase the light-yellow figure with my eyes; although his movements feel slightly awkward compared to Shimosaki just now, it swims hard to chase fish. But the swarm of trout quickly moved from side to side and could not be quickly caught. To Tsukigake which is of a quieter personality than Shimosaki, I guess, the load of sudden fish hunt was too heavy......* At that time, Shimosaki who overcame them earlier, jumped in front of the school of trout. Tsukigake plunged into the space where the surprised school got disarranged.
+*I can chase the light-yellow figure with my eyes; although her movements feel slightly awkward compared to Shimosaki just now, she swims hard to chase fish. But the swarm of trout quickly moved from side to side and could not be easily caught. To Tsukigake which is of a quieter personality than Shimosaki, I guess, the burden of sudden fish hunt was too heavy......* At that time, Shimosaki who overcame them earlier, jumped in front of the school of trout. Tsukigake plunged into the space where the surprised school got disarranged.
 
 As it jumped out of the water surface, a splendid trout, of about 25 cen, was held in the mouth of the young dragon returning to the shore.
 
@@ -92,7 +92,7 @@ And of course, it is all great to make the young dragon happy, but Ronye unexpec
 
 *If you do not eat it, you’ll have no lunch......* Tiese interrupted her just before she was going to begin scolding.
 
-"Hey Ronye, that, he gives it to you, does he not?"
+"Hey Ronye, that, she gives it to you, does she not?"
 
 "Eh……?"
 
@@ -124,7 +124,7 @@ Just as the stable keeper said, Tsukigake’s fish dislike has been corrected in
 
 Ronye deeply inhaled fragrant air, thinking that they will go out more now.
 
-On the little hill not far away, a chestnut horse, tied to a standing tree, was carelessly grassing. There was, a flock of about ten white water birds by the lakeshore, and butterflies fluttered from flower to flower. As usual, there were no human figures besides the two apprentice knights.
+On the little hill not far away, a chestnut horse, tied to a standing tree, was carelessly grassing. There was a flock of about ten white water birds by the lakeshore, and butterflies fluttered from flower to flower. As usual, there were no human figures besides the two apprentice knights.
 
 "It’s a shame, these territories were released, I wish people from the central capital come and play here..."
 
@@ -379,7 +379,7 @@ While walking, Ronye turned around to see Tsukigake and Shimosaki, who were well
 
 "What's wrong, Tsukigake?"
 
-When she said it, the dragon following behind responded with a quiet "Kururu......". It looked like he is quite reluctant to proceed, but he wouldn’t stop.
+When she said it, the dragon following behind responded with a quiet "Kururu......". It looked like she is quite reluctant to proceed, but she wouldn’t stop.
 
 A dragon is tied with a strong bond to a knight and sometimes tries to defend the owner by sacrificing it’s life. In fact, Ronye saw, just before the end of the Foreign World War, in order to protect the knight Renri from countless spears thrown by real world red knights, his beloved dragon Kazenui received those spears by itself.
 
@@ -423,7 +423,7 @@ Because there was an emblem of the Norlangarth family on the iron gate at the en
 
 Tiese whispered and started walking. Next, head down, followed Shimosaki.
 
-Ronye looked down at Tsukigake by her feet and asked: "Are you all right? Not tired?", to which the young dragon answered "Of course" or something similar since it spread its wings and gave a short chirp.
+Ronye looked down at Tsukigake by her feet and asked: "Are you all right? Not tired?", to which the young dragon answered "Of course" or something similar since she spread her wings and gave a short chirp.
 
 They walked the path stretching through the dead grass, between the flower beds, and stopped in front of the large door.
 
@@ -531,7 +531,7 @@ Ronye thought that she should return to Cathedral now and report it to Kirito or
 
 "Kururu!!!"
 
-Encouraged by Tsukigake to chirping by her feet, Ronye also kicked off the ground.
+Encouraged by Tsukigake chirping by her feet, Ronye also kicked off the ground.
 
 *Even if she goes to the back door, it should be locked of course. I do not know what Tiese is going to do, but I have to stop her before she is going to do something unreasonable.* Even so, she couldn’t catch up with her partner running ten mels ahead.
 
@@ -683,11 +683,11 @@ That moment they heard the dragon's roaring "Ku-ru-ru-ru.......". Looking down, 
 
 "Hey Shimosaki, you think you can get through this gap...?"
 
-But before she finished, Tsukigake’s head showed Shimosaki's back. The body of the young dragon passed through the gap at once, and after one full somersault, it stood up in front of the staircase.
+But before she finished, Tsukigake’s head showed Shimosaki's back. The body of the young dragon passed through the gap at once, and after one full somersault, he stood up in front of the staircase.
 
 "Kyu-ru-ru!!!"
 
-Shimosaki proudly chirped, and although some rust stuck to its feathers, there seemed to be no injury. It looked wide due to fluffy fur and feathers, but the body of the young dragon in reality was still small.
+Shimosaki proudly chirped, and although some rust stuck to his feathers, there seemed to be no injury. It looked wide due to fluffy fur and feathers, but the body of the young dragon in reality was still small.
 
 "Good grief, what a self-esteem......."
 
@@ -707,7 +707,7 @@ Since the door was opened, they had to find out what was in the basement, but on
 
 *I do not like the disjunctive way the high-priority iron grid key was hanging just out of reach. I do not think it is a trap to lure an intruder into the basement — but if so, they wouldn’t have to lock it, to start with — and I cannot predict what is inside so far.*
 
-Ronye lifted the line of sight from Tsukigake, rubbing its body against the feet as if sharing the owner's anxiety, to Tiese, and suggested:
+Ronye lifted the line of sight from Tsukigake, rubbing her body against the feet as if sharing the owner's anxiety, to Tiese, and suggested:
 
 "Hey, Tiese. I will check it down, so you can stay here..."
 
@@ -759,7 +759,7 @@ After this exchange, two people with two animals began tiptoeing south along the
 
 Up ahead, the yellow light was vaguely trembling. Concentrating on the musty smell, it could be noticed that it contained a burning aroma unique to oil lanterns. And some faint different smell, too.
 
-Tsukigake, still held under the left arm, also pointed out twitching snout. While feeling as though it was a smell smelt somewhere, they kept tiptoeing on.
+Tsukigake, still held under the left arm, also protruded the twitching snout. While feeling as though it was a smell smelt somewhere, they kept tiptoeing on.
 
 Eventually, turned out the light was produced by two oil lanterns attached to the wall on the right. The passage was a dead end, but just before it, there seemed to be something on the left wall. It was another grate shinning dully up ahead in the light of the lanterns — no, it was rather…
 
@@ -855,11 +855,11 @@ That was exactly right. If you cannot hide, the only remaining option is to figh
 
 Ronye and Tiese simultaneously pulled out swords from their left hips and held them with both hands.
 
-On the floor, widely spreading the wings, just in front of Ronye's feet — apparently preparing to fight defending his owner — Tsukigake, and next to him, at Tiese's feet, Shimosaki stood quickly.
+On the floor, widely spreading the wings, just in front of Ronye's feet — apparently preparing to fight defending her owner — Tsukigake, and next to her, at Tiese's feet, Shimosaki stood quickly.
 
 "Tsukigake, Shimosaki, get into the cell now and stay quiet!"
 
-Young dragons leaked unhappy "Ku-ru-ru......", but obeyed the order. First, Tsukigake squeezed through the gap in the iron grid. Rattling the grating with both legs, it bent the body to go through the gap, and rolled up in the center of the cell. Mountain goblins let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
+Young dragons leaked unhappy "Ku-ru-ru......", but obeyed the order. First, Tsukigake squeezed through the gap in the iron grid. Rattling the grating with both legs, she bent the body to go through the gap, and rolled up in the center of the cell. Mountain goblins let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
 
 Next, Shimosaki tried to go through the grid. The hidden door was already half-lifted, and white-smoke-cold air flowed out of the darkness on the other side. The darkness was too dense, it wasn’t possible to see the appearance of the one who was behind the door, but the presence felt somehow familiar.
 
@@ -1080,7 +1080,7 @@ Whether because he got tired struggling, Shimosaki was looking limp, and only th
 
 But she made herself to hold any loud sound.
 
-Tsukigake was hiding in the neighboring cell separated only with a stone wall. He is now following the previously received instructions of staying quiet, but if Ronye gave vent to the feelings Tsukigake would not be able to endure as well. He might even jump out of the prison and try to save his brother dragon<sup><a href="#Prim8">8</a></sup> from the man in the black robe. The situation seems to be already bad, but if Tsukigake is caught, the possibility of escape would be considerably lower.
+Tsukigake was hiding in the neighboring cell separated only with a stone wall. She is now following the previously received instructions of staying quiet, but if Ronye gave vent to the feelings Tsukigake would not be able to endure as well. She might even jump out of the prison and try to save her brother-dragon<sup><a href="#Prim8">8</a></sup> from the man in the black robe. The situation seems to be already bad, but if Tsukigake is caught, the possibility of escape would be considerably lower.
 
 *── So please remain quiet, Tsukigake.*
 
@@ -1128,7 +1128,7 @@ The emperor nodded and lifted the oil lantern from the wall and directed it towa
 
 Tsukigake was hiding in the dark in the corner, but if illuminated with a lantern, pale yellow feathers will be seen instantly. She could distract them somehow, but calling them would probably result in a negative effect only earning several tens of seconds, which would be meaningless.
 
-*──Tsukigake, If you’re found, do your best to get to the door at the ground and run away!*
+*──Tsukigake, if you’re found, do your best to get to the door at the ground and run away!*
 
 Ronye clenched fists hoping her thoughts reach the addressee.
 
@@ -1160,7 +1160,7 @@ For quite a while silence continued, but eventually a similar whispering voice w
 
 "...... Tiny dragon, cannot find."
 
-That's right — there was only one reason why emperor Krueger could not find Tsukigake in a small cell. The mountain goblins who gave frightened voice when Tsukigake got into the cell, hid him from the eyes of the emperor using their bodies.
+That's right — there was only one reason why emperor Krueger could not find Tsukigake in a small cell. The mountain goblins who gave frightened voice when Tsukigake got into the cell, hid her from the eyes of the emperor using their bodies.
 
 "Thank you very much……"
 
@@ -1176,7 +1176,7 @@ But that moment, Tsukigake was the only hope remaining. It was probably impossib
 
 While suffering from strong anxiety, she wrapped Tsukigake's body with both hands thrusted through the gaps in the grid. The young dragon chirped "Please leave it to me" or perhaps something alike in response.
 
-He retreated back from Ronye’s hands, flapped the wings twice, and then started running north along the aisle. Soon his figure disappeared and the clinking footsteps tailed away.
+She retreated back from Ronye’s hands, flapped the wings twice, and then started running north along the aisle. Soon her figure disappeared and the clinking footsteps tailed away.
 
 "...... I’m sorry...... but please, Tsukigake."
 
