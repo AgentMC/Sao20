@@ -56,9 +56,11 @@
 
 Услышав это имя, сидящие рядом Ронье и Тейза мгновенно застыли.
 
-Они никогда не смогли бы забыть это. Райос Антинос был элитным мечником-стажёром when they were valets of Kirito and Yujio. He treated his valet Frenica terribly, and when Ronye and Tiese protested about that case, he almost raped them, covering with the “aristocratic judgment” privilege given to the nobility.
+Они никогда не смогли бы забыть это. Райос Антинос был элитным мечником-стажёром в то время когда они были камердинерами Кирито и Юдзио. Он ужасно обращался со своим камердинером Френикой, и когда Ронье с Тейзой попытались пресечь это, он практически изнасиловал их, прикрываясь “правом аристократического наказания”, данного знати.
 
-Кирито и Юдзио jumped into the room in a critical moment и saved the two of them, but Raios who lost both arms slashed by Кирито's blow, died in a strange way that still gave them shivers when the scene was remembered.
+# Продолжение следует...
+
+<!-- Кирито и Юдзио jumped into the room in a critical moment и saved the two of them, but Raios who lost both arms slashed by Кирито's blow, died in a strange way that still gave them shivers when the scene was remembered.
 
 He did not lose the whole Life by massive bleeding. Rather, he let out a bizarre scream that cannot be thought of as a human’s one, then he collapsed on the floor as if the very soul of him had disappeared... и died. In the subsequent Войны с Внешним Миром, Ронье и the other one witnessed many times people и sub-people losing their lives, but never have seen such a death.
 
@@ -456,12 +458,12 @@ As Кирито said “Umm” submerging in his thoughts, Тейза asked Ас
 
 Асуна's answer surprised a lot not just Ронье и Тейза but even such an unreasonable и reckless person as Премьер-Мечник himself.
 
-"Ayuha-сан's past reflection technique. If you really can see past events и you use it in an inn where the incident happened, you should be able to see the culprit."
+"Ayuha-сан's past reflection technique. If you really can see past events и you use it in an inn where the incident happened, you should be able to see the culprit." -->
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
+<!--1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
 2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here и below. As for the next passage, it’s also 2 words of a similar kind.)
 3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
 4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ронье”, but that’s not true as Тейза only has heard about the kidnapping an hour ago or so, и we’ve been following them almost without interruptions since then.
-5. <a name="Prim5"></a>Not sure if it matters, Ронье says the name here in Sacred Language.
+5. <a name="Prim5"></a>Not sure if it matters, Ронье says the name here in Sacred Language.-->
