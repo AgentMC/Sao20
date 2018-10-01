@@ -46,7 +46,7 @@ After obtaining the manufacturing method, she would surely want to go to the pap
 
 The left through the front door of the first floor, and the afternoon sun gently caressed the skin. It was February so the wind was still cold but they almost could feel how it gets warmer little by little every day.
 
-Away from the front square neatly decorated with pure white tiles, cutting through the front grass lawn in the southwest direction. Usually, they would go to Tsukigaki and Shimosaki in the dragon stables and stay with them till evening, but that day dragons had to wait a little more. Because they two of them had an important task to do.
+Away from the front square neatly decorated with pure white tiles, cutting through the front grass lawn in the southwest direction. Usually, they would go to Tsukigake and Shimosaki in the dragon stables and stay with them till evening, but that day dragons had to wait a little more. Because they two of them had an important task to do.
 
 Proceeding ahead, one could see as the spacious front yard is changed to orchards, with lined-up trees. Although most of the trees have dropped leaves in this season and the middle of winter is not rich in fruit, still there were many seasonal black apples and ice figs, spreading around faint sweet scent.
 
