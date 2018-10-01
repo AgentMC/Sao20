@@ -1,62 +1,62 @@
-# Part 2
+# Часть 2
 
-"Ah...... that reaction was so wrong............"
+"Ааа...... та моя реакция............"
 
-Ронье, Тейза и Асуна smiled at the same time, looking at the Премьер-Мечник who held his head with both hands и sighed deeply.
+Ронье, Тейза и Асуна одновременно улыбнулись, взглянув на тяжко вздыхающего Премьер-Мечника, обхватившего голову обеими руками.
 
-When the long meeting had finally finished, Ронье who returned little Berchie to Фанатио tried to head to the big dining room at the tenth floor to have lunch but was stopped by Асуна on the verge of rushing down the stairs. *How about lunch together?* Certainly, there was no reason to refuse if invited, и the two people immediately accepted it, so Веце-Премьер-Мечник took them to the Центрального Собора’s Ninety-fifth floor, the "Наблюдательный пост Утренней Звезды".
+Когда долгое собрание, наконец, завершилось, Ронье, вернув малыша Берчи в руки Фанатио, собралась было пойти пообедать в большую столовую на десятом этаже, но прямо перед тем как броситься вниз по лестнице она была остановлена Асуной. *Как насчёт вместе пообедать?* Естественно, от такого предложения отказываться причин не было, так что эти двое приняли  его, а Вице-Премьер-Мечник поднялась с ними на 95-й этаж Центрального Собора, "Обзорную Площадку Утренней Звезды".
 
-There were only pillars on the four sides of wind-blown platform, while most of the floor was a beautiful flower garden with a clean waterway, и at that time the floor was effectively the Собора’s top. The stairway rising to the ninety-sixth floor was sealed with an indestructible door created by Асуна with her divine power, и not only Рыцарь Целостностиs but also Премьер-Мечник Кирито could not pass through.
+Со всех четырёх сторон продуваемой всеми ветрами платформы стояло лишь несколько колонн, а красивый сад с цветами и прозрачным родником занимал большую часть поверхности, которая, по сути, являлась на тот момент вершиной Собора. Лестница, поднимающаяся на 96-й этаж, была запечатана неразрушимой дверь, созданной Асуной с помощью её божественной силы, так что не только Рыцари Целостности, но и сам Премьер-Мечник Кирито не мог пройти туда.
 
-A white table was set in a corner of the garden, и Кирито who appeared three minutes later than the three people groaned in a miserable voice sitting on the chair. "That reaction" was, of course, the scream he let out as soon as he heard the name of Selka Zuberg.
+В уголке сада примостился белый столик, и  Кирито, появившийся на 3 минуты позже остальных трёх, простонал несчастным голосом, усаживаясь на стул. "Та реакция" была, конечно, восклицанием, что он издал, как только прозвучало имя Селки Шуберг.
 
-Ронье и Тейза also exclaimed the moment the Frenica’s name was read aloud, but since they were friends with her at the first year at Академии Искусства Меча, it was not unnatural for two of them to be surprised.
+Ронье с Тейзой тоже вскрикнули в тот момент, когда зачитали имя Френики, но поскольку они с ней были друзьями на первом году обучения в Академии Искусства Меча, не было ничего необычного в их удивлении.
 
-But in the case of Кирито, the situation was somewhat... or rather, it was quite complicated.
+Но вот в случае с Кирито, ситуация была немного... нет, пожалуй, намного сложнее.
 
-Ронье и her friend have heard story of how Кирито и Юдзио left the village Rulid of the Northern borderlands и survived a number of trials in the neighborhood to finally become Академии Искусства Меча's students, but that story was not disclosed in Собора.
+Ронье и её подруга знали историю того, как Кирито и Юдзио покинули деревню Рулид в северном приграничье и пережили немало испытаний в её окрестностях, прежде чем наконец стать студентами Академии Мастеров Меча, но эта история не была известна внутри Собора.
 
-Because the reason Кирито with his partner aimed at Центория was to retrieve the golden Рыцарь Целостности Алиса Синтез Thirty, who was born in Rulid village и has already become a legend, from Axiom Church.
+По той  причине, что Кирито со своим напарником направлялись в Центорию чтобы спасти из Церкви Аксиом золотого Рыцаря Целостности Алису Синтезис Сёти, рождённую в деревне Рулид и уже успевшую стать легендой.
 
-In the present situation where many knights still believe the Highest Priest's tale that the Рыцарь Целостности is an ambassador of gods summoned from the gods’ world, the information relating to "the Рыцарь Целостности’s birthplace" must be kept in secret. In addition, it was Дюсольберт Синтез Seven who during his many years of service, that included the Объединённого Совета Мира Людей, took young Алиса from Rulid when she violated the Taboo Index, и he didn’t have memory of such event anymore. Дюсольберт himself seemed to recognize the truth of "Синтез ritual" to some extent, but considering young knights, he wouldn’t deliberately develop the topic.
+В текущей ситуации, когда много Рыцарей Целостности всё ещё верили росказням Первосвященника Администратор о том, что Рыцарь Целостности — это священный посланник призванный из мира богов, информация о "месте рождения Рыцаря Целостности" должна была храниться в секрете. К тому же, это ведь именно Дюсольберт Синтезис Севен в один из долгих лет своей службы, которая теперь включала работу в Объединённом Совете Мира Людей, забрал маленькую Алису из Рулида когда она нарушила Индекс Табу, но воспоминаний об этом у него не осталось. Сам Дюсольберт до определённых пределов осознавал правду о "Ритуале Синтеза", но беспокоясь о молодых рыцарях, он сознательно не касался этой темы.
 
-Although Кирито explained that the reason why he was surprised with Selka Zuberg's name in the morning meeting was "Because it resembled a person who helped me way back", it wasn’t quite convincing и Фанатио и others did not appear to buy it immediately.
+Хотя Кирито и пояснил, что причина его удивления именем Селки Шуберг на утреннем совещании была в том, что "Я помню, она помогала мне по дороге", прозвучало это не сильно убедительно, и Фанатио с остальными не выглядели так, как будто они на это купились.
 
-Асуна smiled и said in a comforting voice to Кирито who was keeping his head atop of the desk.
+Асуна улыбнулась и сказала Кирито, уткнувшемуся лбом в стол, успокаивающим голосом:
 
-"Well, there's nothing you can do to it, Кирито-kun. When Selka-сан reaches the Центрального Собора, everyone will understand that you know her."
+"Ну, с этим ничего не поделать,  Кирито-кун. Когда Селка-сан доберётся до Собора, все поймут, что вы знакомы."
 
-"Oh yeah, but.... Я wanted to prepare as much as possible before everyone starts questioning..."
+"Ну да, но.... Хотелось бы подготовиться как следует, прежде чем все начнут спрашивать..."
 
-"If you talk preparations, it probably worth having arranged that both you и Selka-сан give identical impression, right? That’s what Я was thinking about......."
+"Говоря о подготовке, пожалуй, стоит подготовить вам с Селкой-сан идентичные версии событий, да? Я об этом думала......."
 
-"Ugh, makes sense......."
+"Угу, пожалуй......."
 
-After Кирито nodded without trying to raise his face, Тейза expressed a slight hesitation:
+После того как Кирито попытался кивнуть, так и не подняв лица, Тейза сказала сомневающимся тоном:
 
-"Um...... Кирито-сенпай."
+"Эм...... Кирито-сенпай."
 
-"What is it, Тейза?"
+"Что такое, Тейза?"
 
-Премьер-Мечник finally raised his head и looked at Тейза. и then her redhead best friend, after some more hesitation, said such a thing that surprised even Ронье.
+Премьер-Мечник, наконец, поднял голову и посмотрел на Тейзу. А затем даже Ронье удивилась тому,Ю что сказала её рыжая подруга после короткого колебания:
 
-"Я think that it would be better to not to hide the truth anymore...... To explain Рыцарь Целостностиs that they were born in Мира Людей just like everyone else was."
+"Мне кажется, будет лучше больше не скрывать правду...... а объяснить Рыцарям Целостности, что они были рождены в Мире Людей, так же как и все остальные."
 
-"Wa-wait a sec, Тейза......."
+"П-погоди-ка, Тейза......."
 
-Ронье hurriedly tried to block her best friend's words. "Синтез ritual" of current Рыцарь Целостностиs was the biggest secret of the Объединённого Совета Мира Людей, и that’s why she did not think that it was a good thing for an apprentice knight to say.
+Ронье попыталась спешно прервать свою подругу. "Ритуал Синтеза" нынешних Рыцарей Целостности был величайшей тайной Объединённого Совета Мира Людей, так что её не казалось что подобное прозвучит адекватно из уст ученика рыцаря.
 
-But Кирито waved his hand to stop Ронье, then smiled и looked at Тейза again.
+Но Кирито махнул рукой, останавливая Ронье, улыбнулся и снова взглянул на Тейзу.
 
-"Yeah, Я also basically agree. Summoned from the gods’ world...... there are too many reasons for that fairy tale to come out as senseless. Among the old knights, Фанатио-сан и Дюсольберт-сан, perhaps Шейта-сан all have noticed the truth to a considerable extent already, и one day...... no, as soon as possible, Я think Я have to explain the real thing to all Рыцарь Целостностиs.………… However……"
+"Да, в целом я согласен. Призванные из мира богов...... слишком уж много причин, по которым эта сказочка кажется чушью. Из рыцарей старшего поколения, Фанатио-сан и Дюсольберт-сан, наверное ещё Шейта-сан, все они в значительной мере осознают истину, и однажды...... даже как можно скорее, я думаю, что стоит объяснить правду и остальным.………… Однако……"
 
-Having said that, Кирито hesitated for a moment having a look like he is worrying for Ронье и the other one.
+Сказав это, Кирито какое-то время сомневался, стоит ли продолжать, беспокоясь за Ронье с Тейзой.
 
-"...... Sorry, Я am about to recollect the bad things... but both of you remember, right? The last moments of Raios Antinous'..."
+"...... Простите, я собираюсь вспомнить кое-что плохое... но вы же обе помните, да? Последние моменты жизни Райоса Антиноса..."
 
-As soon as they heard that name, Ронье и Тейза sitting side by side both froze on the spot.
+Услышав это имя, сидящие рядом Ронье и Тейза мгновенно застыли.
 
-Two of them could never forget it. Raios Antinous was an elite Мечник-in-training when they were valets of Кирито и Юдзио. He treated his valet Frenica terribly, и when Ронье и Тейза protested about that case, he almost raped them, covering with the “aristocratic judgment” privilege given to the nobility.
+Они никогда не смогли бы забыть это. Райос Антинос был элитным мечником-стажёром when they were valets of Kirito and Yujio. He treated his valet Frenica terribly, and when Ronye and Tiese protested about that case, he almost raped them, covering with the “aristocratic judgment” privilege given to the nobility.
 
 Кирито и Юдзио jumped into the room in a critical moment и saved the two of them, but Raios who lost both arms slashed by Кирито's blow, died in a strange way that still gave them shivers when the scene was remembered.
 
