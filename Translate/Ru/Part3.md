@@ -204,7 +204,7 @@ He raised his head и looked at the eastern side of the wall again.
 
 "Oh, probably it's on the north side of that junction. **Thank you**, Асуна."
 
-To his gratitude in Sacred Language, she answered "You are welcome" in Мира Людей language. After that Веце-Премьер-Мечник folded the map back into the cloak.
+To his gratitude in Sacred Language, she answered "You are welcome" in Мира Людей language. After that Вице-Премьер-Мечник folded the map back into the cloak.
 
 They have clarified the location of the destination, but there was still a problem. From the wall 50 mel high they were standing on, they had to go down to the ground without being noticed by residents. If the same aerial elements technique as before when they ascended would be used, it will definitely be spotted by someone.
 
@@ -304,7 +304,7 @@ According to the explanation given by the receptionist, when one wanted hot wate
 
 It was the basic technique of Sacred Art to heat water, but there still was a catch. When the generated thermal element is simply dropped into water, it reacts immediately with the water surface, creating a lot of steam, but the temperature of the water does not rise much. It is necessary to convey all the heat of the thermal element to water, which requires a bit of fiddling.
 
-Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Southern Empire и put it in water so that it gradually gave the power of heat element. Simply lifting the container и holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Веце-Премьер-Мечник doing with a show-me-what-you-have-there anticipation, Асуна continued with producing of two metal elements.
+Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Southern Empire и put it in water so that it gradually gave the power of heat element. Simply lifting the container и holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Вице-Премьер-Мечник doing with a show-me-what-you-have-there anticipation, Асуна continued with producing of two metal elements.
 
 It was a nice way to make steel ball with metal element as a substitute for a fire sponge stone, but unlike fire sponge stones which could absorb thermal energy instantaneously, metal ball would not get hot so easily. And, of course, the metal ball does not float in the air like pure elements, so one needs something to support it during heating.
 
@@ -336,7 +336,7 @@ However, if you can make a hollow sphere from the very beginning, you can confin
 
 "It was ‘**Ho...**’... ‘**Hollow**’? Did Асуна-сама discover such an expression......?"
 
-To this admiration и question, Веце-Премьер-Мечник gently shook her head.
+To this admiration и question, Вице-Премьер-Мечник gently shook her head.
 
 "No, Алиса-сан was good at the creation of hollow spheres, she said that she only told Ayuha-сан that, и Я was taught by Ayuha-сан."
 
@@ -410,7 +410,7 @@ At first sight, there was no difference in appearance compared to their room. Pe
 
 — Кирито said with a worried tone. Ронье as well as Тейза shared the same feeling.
 
-Sacred Art department head Ayuha Furia mentioned that the load of the past reflection art discovered yesterday was too big. In Мира Людей she was one of the best practitioner, и if she says so, it might not be easy to use even for Веце-Премьер-Мечник Асуна having the God power.
+Sacred Art department head Ayuha Furia mentioned that the load of the past reflection art discovered yesterday was too big. In Мира Людей she was one of the best practitioner, и if she says so, it might not be easy to use even for Вице-Премьер-Мечник Асуна having the God power.
 
 But Асуна nodded again with her usual gentle smile.
 
@@ -480,7 +480,7 @@ Four people quickly left the room 211 where the darkness faded и hurriedly flew
 
 She ran over to the cupboard и poured some cold water that remained in the jug into the glass и brought it back. Кирито who took the glass slightly raised Асуна's body, bringing the glass closer to her mouth.
 
-AS she slowly drank three gulps of water, Веце-Премьер-Мечник smiled at Ронье with a somewhat alive face.
+AS she slowly drank three gulps of water, Вице-Премьер-Мечник smiled at Ронье with a somewhat alive face.
 
 "Thank you, Ронье-сан."
 
@@ -558,7 +558,7 @@ This was also true, come to think of it.
 
 Асуна interrupted, и the three turned their gazes to bed.
 
-Веце-Премьер-Мечник appearing almost recovered said while looking at the faces of three people with her tea-with-milk-colored eyes.
+Вице-Премьер-Мечник appearing almost recovered said while looking at the faces of three people with her tea-with-milk-colored eyes.
 
 "...... Я think, the words of the criminal who killed Yazen... Я think that's why he could kill him."
 
@@ -602,7 +602,7 @@ When Ронье said so, Кирито gently shrugged his shoulders.
 
 "If that’s decided, let's move right away."
 
-Кирито tried to quickly support Асуна who got up from the bed, but it seemed unnecessary. Even so, Веце-Премьер-Мечник smiled with quiet "thank you" but quickly returned to a resolute expression.
+Кирито tried to quickly support Асуна who got up from the bed, but it seemed unnecessary. Even so, Вице-Премьер-Мечник smiled with quiet "thank you" but quickly returned to a resolute expression.
 
 "So... do you know the room where the mountain гоблинов are staying?"
 

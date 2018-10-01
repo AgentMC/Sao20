@@ -1038,7 +1038,7 @@ She had heard that a long time ago somewhere far away, the words of the deceased
 
 To open the heart.
 
-It was the owner Ронье who had decided that Меч of the Moonlight had no spirit. But looking back at what happened there, it was Веце-Премьер-Мечник Асуна who told her to pick one of the three Мечs, but it was Ронье who was left with the choice of the Меч, not her. At that moment, something drifted Ронье's right hand, attracted it to this Меч with the silver guard in a form of a crescent moon.
+It was the owner Ронье who had decided that Меч of the Moonlight had no spirit. But looking back at what happened there, it was Вице-Премьер-Мечник Асуна who told her to pick one of the three Мечs, but it was Ронье who was left with the choice of the Меч, not her. At that moment, something drifted Ронье's right hand, attracted it to this Меч with the silver guard in a form of a crescent moon.
 
 And now, the Меч which Ронье named "Moonlight" was speaking to her to help its troubled owner. Believe in the Меч, open your heart и release it’s memory.
 

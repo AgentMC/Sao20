@@ -232,7 +232,7 @@ As Асуна proudly declared this, Ронье и Тейза opened their eyes 
 
 "What, paper, real paper? White hemp paper......?"
 
-Веце-Премьер-Мечник nodded with a smile to this mistrustful question.
+Вице-Премьер-Мечник nodded with a smile to this mistrustful question.
 
 "Я got some paper that was burned during the drying process from the paper plants of Собора и tried it."
 
@@ -380,7 +380,7 @@ When Ронье shouted that loudly, Тейза who seemed to have reached the s
 
 "Altogether... Асуна-сама, really sorry."
 
-When she lowered her head on behalf of her best friend, Веце-Премьер-Мечник chuckled и swung a hand gently.
+When she lowered her head on behalf of her best friend, Вице-Премьер-Мечник chuckled и swung a hand gently.
 
 "No worries, Я would have said something should if Я was concerned of it. Well... и what Я wanted to ask...?"
 
@@ -460,9 +460,9 @@ As Кирито said “Umm” submerging in his thoughts, Тейза asked Ас
 
 "Ayuha-сан's past reflection technique. If you really can see past events и you use it in an inn where the incident happened, you should be able to see the culprit." -->
 
-## Footnotes:
+<!--## Footnotes:
 
-<!--1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
+1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
 2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here и below. As for the next passage, it’s also 2 words of a similar kind.)
 3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
 4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ронье”, but that’s not true as Тейза only has heard about the kidnapping an hour ago or so, и we’ve been following them almost without interruptions since then.

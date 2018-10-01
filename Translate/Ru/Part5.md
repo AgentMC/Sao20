@@ -56,7 +56,7 @@ While asking a question she removed the towel и watched him with a serious look
 
 "Is that so? Here, sit on the sofa. "
 
-She pushed his shoulders down и made him sit at the end of the large sofa in the middle of the living room. Асуна took up the brush she was using until a while ago from the low table и carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Eastern Empire — not a Western style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Фанатио for the celebration of Веце-Премьер-Мечник's 1st anniversary, и she sincerely appreciated it since then.
+She pushed his shoulders down и made him sit at the end of the large sofa in the middle of the living room. Асуна took up the brush she was using until a while ago from the low table и carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Eastern Empire — not a Western style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Фанатио for the celebration of Вице-Премьер-Мечник's 1st anniversary, и she sincerely appreciated it since then.
 
 Кирито, whose head was entrusted to Асуна’s hands, suddenly said to himself:
 

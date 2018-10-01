@@ -5,7 +5,7 @@
 
 "Тейза-сан, Ронье-сан. How is your injuries’ condition?"
 
-When Веце-Премьер-Мечник asked, they nodded at the same time.
+When Вице-Премьер-Мечник asked, they nodded at the same time.
 
 "Yes, we’ve completely healed."
 
@@ -350,7 +350,7 @@ Actually, she did not want to let it go so quickly, but she wouldn’t be able t
 
 "Ah, hey Кирито-kun, please take me along!"
 
-— shouted Асуна, leaping at him from behind и falling together with him outside. Премьер-Мечник и Веце-Премьер-Мечник disappeared in a blink of an eye, и when Ронье again looked back at Тейза, she grinned.
+— shouted Асуна, leaping at him from behind и falling together with him outside. Премьер-Мечник и Вице-Премьер-Мечник disappeared in a blink of an eye, и when Ронье again looked back at Тейза, she grinned.
 
 "Hey Цукигаке, Шимосаки, Nuts, let’s go!"
 

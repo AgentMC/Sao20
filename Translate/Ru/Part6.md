@@ -116,7 +116,7 @@ And of course, after a loud cooing, Цукигаке again jumped into the water
 
 From that point on, the progress of the dragons significantly advanced ahead. Instead of chasing independently, one chased a school of trout и the other went on ahead. At the moment when the flock was caught between the two of them и got disoriented, they simultaneously caught prey.
 
-By the time the flock ran away to a deep place, Цукигаке и Шимосаки caught five trouts together, ate three of them и gave two of them to Ронье и her friend. The trout simply roasted by the bonfire burnt of some dry branches had pretty much artless flavor compared to handmade paper wrapping cooking of Веце-Премьер-Мечник they enjoyed the other day, but they felt it was as tasty, either because the product itself was fresh or because Цукигаке и the other one got it.
+By the time the flock ran away to a deep place, Цукигаке и Шимосаки caught five trouts together, ate three of them и gave two of them to Ронье и her friend. The trout simply roasted by the bonfire burnt of some dry branches had pretty much artless flavor compared to handmade paper wrapping cooking of Вице-Премьер-Мечник they enjoyed the other day, but they felt it was as tasty, either because the product itself was fresh or because Цукигаке и the other one got it.
 
 ***
 
