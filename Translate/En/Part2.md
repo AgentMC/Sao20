@@ -70,7 +70,7 @@ When the two of them began to tremble badly, both Kirito and Asuna sitting acros
 
 Kirito instantly shook his head.
 
-"No, there is no direct relationship. But...... people who live in Underworld are can become like Raios when one's mind is subjected to extreme loads."
+"No, there is no direct relationship. But...... people who live in Underworld can end it like Raios when one's mind is subjected to extreme loads."
 
 "Eh……"
 
@@ -104,7 +104,7 @@ Ronye, deeply depressed, heard a trembling voice of Asuna.
 
 It was Tiese who interrupted. Kirito answered with a sort of embarrassed expression.
 
-"Even though I've planned to be careful, somehow **Eng**... a sacred word came out. Loop is ring, or something of that shape, it included the meaning of "never-ending" or "repeating"...... Good explanation?"
+"Even though I've planned to be careful, somehow **Eng**... a sacred word came out. Loop is ring, or something of that shape, it included the meaning of 'never-ending' or 'repeating'...... Good explanation?"
 
 Kirito gazed at Asuna who smiled and nodded.
 
@@ -112,7 +112,7 @@ Kirito gazed at Asuna who smiled and nodded.
 
 "Uhu, uhu, thank you very much!"
 
-Having thanked him, Tiese took out of a compartment of her uniform ─ there was a sacred word for it, seemingly "pocket" ─ a small square book of white hemp paper bundled with yarn threads and a copper pen. She quickly turned over sheets of paper already filled with small letters and arrived at a blank sheet, where she wrote the meaning of "loop".
+Having thanked him, Tiese took out of a compartment of her uniform ─ there was a sacred word for it, seemingly "**pocket**" ─ a small square book of white hemp paper bundled with yarn threads and a copper pen. She quickly turned over sheets of paper already filled with small letters and arrived at a blank sheet, where she wrote the meaning of "loop".
 
 "Wai... wait, Tiese, what's that?"
 
@@ -152,7 +152,7 @@ For a while Kirito was flying around the Human World to find the material for th
 
 It was much cheaper than parchment only sixty cen of which can be made from a single sheep and its durability is high enough to compete with parchment, but it took more effort than regular paper, which is made by knitting White-thread grass vertically and horizontally and then hitting it with a mallet, and the material, snow-white hemp, was not available around the central capital. At that time, a field of snow-white hemp has been opened in the rocky production area, four manufactures were also completed in Centoria, and sales of white hemp paper for the residents of the central capital has been started, but it still was higher priced than the regular paper. Even new to that all Ronye understood how hard it was to make this a cheap produce for children of Dark Territory as well as Human World.
 
-However, for Kirito and Asuna the mass production of white hemp was not the final goal. It seemed that they wanted to make a massive number of textbooks in which Human World languages, mathematics, and methods of learning techniques would be described.
+However, for Kirito and Asuna the mass production of white hemp paper was not the final goal. It seemed that they wanted to make a massive number of textbooks in which Human World language, mathematics, and Sacred Art learning techniques would be described.
 
 "...... If textbooks get distributed to one person each, children can study at any time..."
 
@@ -180,7 +180,7 @@ Asuna nodded with a somewhat mischievous smile.
 
 When hearing that, Tiese smiled and chuckled. However, her laughter seemed to include emotions other than joy, and Ronye could only slightly open her mouth, without saying a word.
 
-Asuna who has a consoling smiling smile, looked at the blue sky visible between the columns and an expression of vexation blinked across her face.
+Asuna who has a consoling smile, looked at the blue sky visible between the columns and an expression of vexation blinked across her face.
 
 "Anyway, both of you are probably hungry. Let’s have lunch, can you help me to carry it?"
 

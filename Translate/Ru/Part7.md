@@ -37,9 +37,9 @@ Without that Yui’s actions, the Мира Людей Defense Forces led by Ас
 
 Кирито muttered as if feeling Асуна's thoughts. He tapped her back with the hand that was stroking the hair, took some nuts и fruit from the wooden tray, opened the mouth wide и crunched them. Underworld was a virtual world, but unlike Incrad, when the hungry state lasts, Life level begins to decrease и the lack of nutrition eventually leads to a disease, so food was as important as in the real world.
 
-The on-the-spot survey in the Southern Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Taboo Index which forbids the faking of any signs и signatures, of course.
+The on-the-spot survey in the Southern Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Индекс Табу which forbids the faking of any signs и signatures, of course.
 
-However, the man who killed the old Yazen with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Taboo Index. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
+However, the man who killed the old Yazen with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Индекс Табу. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
 
 Investigation in the administration ended after the noon, и as a result Southern Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Southern Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
 
@@ -107,7 +107,7 @@ She stared at the face of Кирито who quickly responded with another questi
 
 Even Асуна who have seen a number of virtual worlds, could not help feeling awe in front of monstrous everlasting и unbreakable structure extending in total for 3000 kilometers и dividing Центория и the whole country of Мира Людей into four parts.
 
-They said, Highest Priest Administrator had made it appear overnight with Sacred Art, but even with the unlimited terrain manipulation ability granted to the Stacia account, it was absolutely impossible to imitate the same. The enormous amount of data flowing into the fluctlight could not be tolerated, it would result in unconsciousness after making a wall of about only ten kilometers.
+They said, Первосвященник Администратор had made it appear overnight with Sacred Art, but even with the unlimited terrain manipulation ability granted to the Stacia account, it was absolutely impossible to imitate the same. The enormous amount of data flowing into the fluctlight could not be tolerated, it would result in unconsciousness after making a wall of about only ten kilometers.
 
 Because of that perception, Асуна has never imagined someone could be able to trespass the Timeless Wall, of walking on top of it like Кирито did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain гоблинов passed the wall.
 
@@ -169,7 +169,7 @@ In addition to Ayuha и Фанатио, knight Renri, knight Nergius и knight E
 
 It was Entokia, which was surprisingly talkative as for the senior knight, who began first:
 
-"Well, that is difficult, is not it? To pass the "Four Seasons’ Gates", you need a pass with the Axiom Church insignia, which is supposed to be made in Church by the Highest Priest-сама using Sacred Art."
+"Well, that is difficult, is not it? To pass the "Four Seasons’ Gates", you need a pass with the Axiom Church insignia, which is supposed to be made in Church by the Первосвященник-сама using Sacred Art."
 
 "Eh… Is that so? Well, then, at present situation, it would be impossible to produce new ones?"
 
@@ -187,9 +187,9 @@ The knight nodded the head with bluish short hair to Кирито's question:
 
 — Ayuha pointed out, both Кирито и Асуна nodded at the same time. Nergius, who had kept silent till now, said after other knights also expressed agreement:
 
-"......In other words, the insurgent forged not only the transfer order of the administration, but also the gate permit? How much Taboo Index violation will you put on them...?"
+"......In other words, the insurgent forged not only the transfer order of the administration, but also the gate permit? How much Индекс Табу violation will you put on them...?"
 
-"No need to burn like that, Negi-boy. It's obvious that they are not worried about the Taboo Index at all, as the insurgents already killed people with their own hands."
+"No need to burn like that, Negi-boy. It's obvious that they are not worried about the Индекс Табу at all, as the insurgents already killed people with their own hands."
 
 Nergius abruptly breathed in, perhaps, intending to protest the way Фанатио addressed him, but barely sighed as if he had given up. Instead, Ренри spoke after raising his hand:
 

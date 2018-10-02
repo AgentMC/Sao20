@@ -280,7 +280,7 @@ From there to the mansion there was a single road. After they walked for some ti
 
 Moreover, the wine the Император drank was made only from the best grapes from these grape shrubs, so regardless such a vast number of shrubs, vine made on this vineyard did not reach the mouth of the general public because they brew only a small amount.
 
-Hana said that when she was the exclusive cook of the Highest Priest Administrator, the Highest Priest did not care much about the luxury of drinking и eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, Император Norlangarth was secretly proud that he was drinking superior wine than the Highest Priest.
+Hana said that when she was the exclusive cook of the Первосвященник Администратор, the Первосвященник did not care much about the luxury of drinking и eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, Император Norlangarth was secretly proud that he was drinking superior wine than the Первосвященник.
 
 "...... What will happen to this vineyard...?"
 
@@ -495,7 +495,7 @@ That was when Кирито was awakened from a long sleep и fiercely fought the
 
 At the moment when a huge hatchet held by a black mantle man stroke sparkles from Кирито's Меч и even cut his shoulder a little, Тейза gripped both hands и prayed. *Please, Юдзио-сенпай. Help Кирито-сенпай......* и then.
 
-And as if responding to that voice, a transparent golden arm emerged, supporting the Меч Ночного Неба Кирито was holding. With the help of that hand, Кирито pushed back the crowd и triumphantly fought against the black mantle man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Кирито's best friend, Тейза’s mentor, an elite Мечник-in-training Юдзио.
+And as if responding to that voice, a transparent golden arm emerged, supporting the Меч Ночного Неба Кирито was holding. With the help of that hand, Кирито pushed back the crowd и triumphantly fought against the black mantle man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Кирито's best friend, Тейза’s mentor, an elite мечник-стажёр Юдзио.
 
 "....... Тейза............ you............"
 
@@ -525,7 +525,7 @@ Even if the gossip is true, Я cannot believe that ghost is a Тейза's love.
 
 And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. 
 
-Because it is only those who oppose the authority of the church и the Taboo Index who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Axiom Church.
+Because it is only those who oppose the authority of the church и the Индекс Табу who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Axiom Church.
 
 Ронье thought that she should return to Собора now и report it to Кирито or Фанатио, but Тейза moved before she was able to suggest it. She began running towards the South along the walls of the house, apparently planning to go around the back of the building. Шимосаки followed her, jumping behind.
 
@@ -1042,9 +1042,9 @@ Then the Император picked a sharp chin beard with his fingertips и nod
 
 The aristocrat judgement right was a privilege given only to the Император и the senior aristocrats, to punish those who misconducted at their own discretion. Although only the lower aristocrats и the private territory commoners were the subject to punishment, Ронье's father, who was the sixth-class nobleman, seemed to have been humiliated several times due to punishment caused by higher aristocrats’ accusations.
 
-But even aristocrats could not violate the Taboo Index, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Рыцарь Целостностиs, who had been granted the greatest rights in Мира Людей, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
+But even aristocrats could not violate the Индекс Табу, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Рыцарь Целостностиs, who had been granted the greatest rights in Мира Людей, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
 
-"...... The punishment that makes the floor dyed so much would be a violation of the Taboo Index."
+"...... The punishment that makes the floor dyed so much would be a violation of the Индекс Табу."
 
 When Ронье pointed that out in hoarse voice, the Император laughed again:
 
@@ -1052,7 +1052,7 @@ When Ронье pointed that out in hoarse voice, the Император laughed
 
 The moment she heard the words, the abominable memory ripped her mind like a lightning flash in the dark night.
 
-Former elite Мечник-in-training Raios Antinous tried to trap Ронье и Тейза at the time when they were students, и then disgrace them using aristocratic judgment right as shield. This way his father, 3rd-class aristocrat brought him up, и the father of his father, и it can only be imagined how sneaky и unscrupulous acts were happening in their private territories.
+Former elite мечник-стажёр Raios Antinous tried to trap Ронье и Тейза at the time when they were students, и then disgrace them using aristocratic judgment right as shield. This way his father, 3rd-class aristocrat brought him up, и the father of his father, и it can only be imagined how sneaky и unscrupulous acts were happening in their private territories.
 
 Especially, if a person is the Император Norlangarth, standing above all the aristocrats ──
 
@@ -1068,7 +1068,7 @@ With the faint smile burning under the thin mustache, the Император sai
 
 — Тейза shouted. She rushed to the grid with the full speed her body allowed for и grasped the steel rods with both hands.
 
-A wave of anger run through the whole body of Ронье. The man in front of her ── or rather whole his family, since long ago had been confining their private territory dwellers to this prison, slipped around the Taboo Index и tortured them, taking life after life.
+A wave of anger run through the whole body of Ронье. The man in front of her ── or rather whole his family, since long ago had been confining their private territory dwellers to this prison, slipped around the Индекс Табу и tortured them, taking life after life.
 
 The metal grating on the ground found by the two people was not to prevent intrusion from the outside. That door was opened to bring out the corpses of innocent people from the underground dungeon from the inside. That is why the key was hanging in an unusual place. Because if you think about it, there is no chance someone would sneak with mАлиса into the Император's house within the Император’s territory.
 
@@ -1104,7 +1104,7 @@ That moment Император Крюгер has turned his sharp glance at her a
 
 While staring at the Император laughing gutturally “Ku! Ku! Ku!”, Ронье had to endure her fierce anger once again.
 
-Certainly, violations of the Taboo Index и Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the Император was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ронье и Тейза to be able to apply the aristocratic judging right.
+Certainly, violations of the Индекс Табу и Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the Император was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ронье и Тейза to be able to apply the aristocratic judging right.
 
 After a long laughing, the Император turned his gaze away.
 

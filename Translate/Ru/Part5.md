@@ -70,7 +70,7 @@ She pushed his shoulders down и made him sit at the end of the large sofa in th
 
 A nod, и ponderingly:
 
-"... Wait, I’ll ask Фанатио-сан. Certainly, in the past there was a clock in this Собора, right? The Highest Priest-сан made Bercouli-сан’s Меч out of it. So, who made it?"
+"... Wait, I’ll ask Фанатио-сан. Certainly, in the past there was a clock in this Собора, right? The Первосвященник-сан made Bercouli-сан’s Меч out of it. So, who made it?"
 
 "Ehm…well, Я guess, it was in the Underworld from the very beginning. The place where this Центрального Собора is located was a small village three hundred years ago, where the staff of RATH brought up the first generation artificial fluctlights. It was just an object they set up in the village. "
 

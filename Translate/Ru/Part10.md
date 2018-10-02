@@ -150,7 +150,7 @@ When Тейза asked, Кирито groaned after drinking a gulp of apple tea.
 
 Having instantly answered, Ронье looked at the eastern sky.
 
-The Great Eastern Gate, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
+The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
 
 But after the old Yazen was killed, the door was closed again. In that sense, the black Императорs’ conspiracy has already had certain effects. Besides, the incident had not been solved at all.
 
@@ -222,11 +222,11 @@ When Кирито said so, Тейза shivered with the whole body. She grasped 
 
 Then Кирито closed the eyes for a moment и slowly shook his head:
 
-"...... Even if Я can hear Юдзио's voice because of some form of an art, it cannot be said that it would be the real Юдзио. Just like Император Крюгер who revived as a minion was not the real Император....... Five floors above this place, on the top floor of the Собора, Юдзио died by the hand of the Highest Priest while attacking her. His soul, along with the Алиса’s soul consisting of her childhood memories taken away during the Синтез ritual, are now gone. After that Юдзио’s memory stayed in the Меч which helped me a number of times, but... in the battle with Император Vector, it finally burned out......"
+"...... Even if Я can hear Юдзио's voice because of some form of an art, it cannot be said that it would be the real Юдзио. Just like Император Крюгер who revived as a minion was not the real Император....... Five floors above this place, on the top floor of the Собора, Юдзио died by the hand of the Первосвященник while attacking her. His soul, along with the Алиса’s soul consisting of her childhood memories taken away during the Синтез ritual, are now gone. After that Юдзио’s memory stayed in the Меч which helped me a number of times, but... in the battle with Император Vector, it finally burned out......"
 
 Кирито's words were comforting but cruel at the same time. Тейза slowly dropped her shoulders и muttered:
 
-"Well... then, there are no memories of senpAI left anywhere in this world..."
+"Well... then, there are no memories of Сенпай left anywhere in this world..."
 
 "No, it’s not like this."
 
@@ -238,7 +238,7 @@ Then Кирито closed the eyes for a moment и slowly shook his head:
 
 But after a few seconds her hands fell down to the knees.
 
-"............ I...... Я only had about a month around Юдзио-сенпай. Я could not travel together with him like Кирито-сенпай did, nor could we fight together in the Axiom Church. Moreover...... it was basically because of me that Юдзио-сенпай was taken to the Church. My senpAI left the academy и now is gone....... Я cannot hear Юдзио-сенпай’s voice..."
+"............ I...... Я only had about a month around Юдзио-сенпай. Я could not travel together with him like Кирито-сенпай did, nor could we fight together in the Axiom Church. Moreover...... it was basically because of me that Юдзио-сенпай was taken to the Church. My Сенпай left the academy и now is gone....... Я cannot hear Юдзио-сенпай’s voice..."
 
 Having said so, Тейза pushed both hands against her face и began to cry; Шимосаки rubbed his neck against her leg while raising an anxious voice. Цукигаке и Nuts also watched the situation side by side.
 
@@ -272,7 +272,7 @@ The Меч Кирито put in the middle of the table was definitely the Меч
 
 Тейза was just slightly shaking her head. Ронье could also understand the inexpressible feeling that she experienced.
 
-Кирито had shut his heart since fighting the Highest Priest till the end of the Войны с Внешним Миром, и for a long time could not speak or walk, but he never let go of the Меч Ночного Неба и the Меч Синей Розы. But Кирито smiled и said with a voice full of a strong will:
+Кирито had shut his heart since fighting the Первосвященник till the end of the Войны с Внешним Миром, и for a long time could not speak or walk, but he never let go of the Меч Ночного Неба и the Меч Синей Розы. But Кирито smiled и said with a voice full of a strong will:
 
 "I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but at least you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
 
@@ -286,7 +286,7 @@ Since Юдзио и Кирито entered the Академии Искусства
 
 The divine object resonated with Тейза’s spirit, did not refuse her hands. Firmly holding the Меч with both hands, Тейза gently gripped the handle, и a small smile appeared on her face instead of drying tears.
 
-"....... Кирито senpai, Я will do my best to take care of the Меч Синей Розы. Я will polish it every day и practice my training more seriously... и someday, I’ll become a strong senior knight able to swing this Меч!"
+"....... Кирито Сенпай, Я will do my best to take care of the Меч Синей Розы. Я will polish it every day и practice my training more seriously... и someday, I’ll become a strong senior knight able to swing this Меч!"
 
 "……Uhu."
 
@@ -330,7 +330,7 @@ That time the gate, normally closed, opened wide, и large four-horse carriage c
 
 — Ронье и Тейза shouted out loudly и looked at the faces of Кирито и Асуна.
 
-"Oh, hey, senpai, we..."
+"Oh, hey, Сенпай, we..."
 
 "Ah, are you going to welcome her? Я will deliver the Меч Синей Розы to your room later then."
 

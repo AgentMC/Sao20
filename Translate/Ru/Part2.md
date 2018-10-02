@@ -58,143 +58,143 @@
 
 Они никогда не смогли бы забыть это. Райос Антинос был элитным мечником-стажёром в то время когда они были камердинерами Кирито и Юдзио. Он ужасно обращался со своим камердинером Френикой, и когда Ронье с Тейзой попытались пресечь это, он практически изнасиловал их, прикрываясь “правом аристократического наказания”, данного знати.
 
-# Продолжение следует...
+В последний момент Кирито и Юдзио ворвались в комнату и этих двоих, но при этом Райос, которому Кирито отрубил обе руки, умер так странно, что их била дрожь, стоило этому воспоминанию прийти на ум.
 
-<!-- Кирито и Юдзио jumped into the room in a critical moment и saved the two of them, but Raios who lost both arms slashed by Кирито's blow, died in a strange way that still gave them shivers when the scene was remembered.
+Он не потерял всю Жизнь от массивного кровотечения. Вместо этого, он испустил жуткий крик, даже не похожий на человеческий, затем упал на пол, в этот миг его душа распалась... и он умер. В последовавшей за тем Войне с Внешним Миром, им с Ронье пришлось неоднократно присутствовать при смертях как людей так и суб-людей, но подобной смерти им больше видеть не приходилось.
 
-He did not lose the whole Life by massive bleeding. Rather, he let out a bizarre scream that cannot be thought of as a human’s one, then he collapsed on the floor as if the very soul of him had disappeared... и died. In the subsequent Войны с Внешним Миром, Ронье и the other one witnessed many times people и sub-people losing their lives, but never have seen such a death.
+Когда эти двое начали сильно дрожать, Кирито и Асуна, сидящие напротив, одновременно наклонились и потянули руки Ронье и Тейзы на середину стола, и затем накрыли их своими ладонями. Руки двоих, что пришли в этот мир из Реального Мира, были теплее, чем у кого бы то ни было, и холод, окутавший Ронье, быстро растворился.
 
-When the two of them began to tremble badly, both Кирито и Асуна sitting across the table simultaneously leaned ahead, pulled the hands of Ронье и Тейза to the middle of the table и wrapped them firmly with their own hands. The hands of two humans who came to this world from the Real World were warmer than anyone else’s, и the cold wrapping Ронье quickly disappeared.
+*Спасибо большое*, промолчав эти слова, она просто кивнула, и тогда те двое с улыбками вернули кивок и уселись обратно. Глубоко вдохнув, Ронье снова спросила:
 
-*Thank you very much*, she did not say these words but simply nodded, the two across nodded with a similar smile и returned to their seats. After breathing deeply, Ронье asked again.
+"....... Есть ли какая-то связь между последними моментами элитного мечника-стажёра Антиноса и Ритуалом Синтеза...?"
 
-"....... Is there a relationship between the last moments of elite Мечник-in-training Antinous и the Синтез Ritual...?"
+Кирито тут же замотал головой.
 
-Кирито instantly shook his head.
+"Нет, прямой связи нет. Но...... люди, живущие в Подмирье, могут закончить как Райос, если их разум подвергается экстремальным нагрузкам."
 
-"No, there is no direct relationship. But...... people who live in Underworld are can become like Raios when one's mind is subjected to extreme loads."
+"Э……"
 
-"Eh……"
+Ронье и Тейза распахнули глаза, но Кирито снова быстро замахал руками:
 
-Ронье и Тейза opened both eyes wide, but Кирито waved quickly again.
+"Вам двоим нечего беспокоиться, с вами всё в порядке, ведь этот феномен происходит только с теми, кто ограничен закостеневшими скрепами."
 
-"You do not need to be afraid, you two are all right because that phenomenon only happens to those who are bound by a very rigid ideology."
+"Закостеневшими...... скрепами?"
 
-"Rigid...... ideology?"
+"Ага, в тот раз Райос положил на чаши весов свою Жизнь против Индекса Табу. Для Райоса, буквально сотканного из самодовольства, его существование должно было цениться превыше всего на свете. Но при этом Индекс Табу — это абсолютный закон, который нельзя нарушить, что бы не случилось. Нарушить Индекс Табу или покориться Индексу Табу и умереть... ни один из вариантов не был приемлемым, и душа Райоса разрушилась."
 
-"Yeah, at that time, Raios put his Life on the scales against Taboo Index. For Raios who seemed to be made of self-esteem, his life should be given priority above everything else. But at the same time the Taboo Index is the absolute law that should not be violated no matter what happens. To violate the Taboo Index or to comply with the Taboo Index и die... neither of them could be chosen, и the Raios’ soul has collapsed."
+Когда Кирито умолк, у Асуны, которая уже слышала эту историю раньше, на лице отразились обида и страх. Кирито продолжил, слегка прикоснувшись к лежащей	на столе руке Асуны:
 
-When Кирито became silent, Асуна who would have already heard that story also had a look of mixed fear и resentment. Кирито kept on talking after lightly touching the hands of Асуна laying on the table.
+"А ещё есть история, что я слышал от Фанатио, дескать в битве за защиту Великих Восточных Врат даже бывший вождь гигантов потерял рассудок и издал такой же крик, как и Райос. Гиганты стремятся поддерживать свою силу духа, уверяя себя, что они являются сильнейшими изо всех рас... Я думаю, что в тот миг, когда этот стереотип был готов рухнуть, он и сошёл с ума. Проблема в том, что... возможно, для некоторых Рыцарей Целостности, вера в то, что они были призваны из мира богов, может в равной степени являться основой их душ."
 
-"Besides, there is a story Я heard from Фанатио, that in the defense battle by the Great Eastern Gate even the giants’ former chief lost his mind и then screamed the same way like Raios. The giants tend to stabilize themselves by believing that they are the strongest among all the races... Я think that stereotype was about to be destroyed и he had gone mad. The problem... perhaps, for some Рыцарь Целостностиs, believing that they were summoned from gods’ world may be the foundation of their soul of equal importance."
+Ронье, ежедневно наблюдавшую силу и благородство Рыцарей Целостности каждый день, ввергли в полное совершенное недоумение опасения Кирито.
 
-For Ронье who witnessed the strength и the nobility of Рыцарь Целостностиs every day, Кирито's fearful words gave totally perplexed feeling.
+Конечно, тот факт, что всё про "Ритуал Синтеза" — это враньё, тот факт, что Первосвященник Администратор обманывала Рыцарей Целостности, был бы для них страшным ударом.
 
-Of course, the fact that everything about "Синтез ritual" is lies — the fact that the Highest Priest Administrator had deceived all Рыцарь Целостностиs, would mean terrible shock to them.
+Но рыцари, бесстрашные, не зависящие ни от кого кроме самих себя, они смогут это пережить. Они не такие, как Райос Антинос, они не дадут своим душам разрушиться.
 
-But knights, fearless, depending on nobody but themselves, they can endure even that. Not like Raios Antinous, they won’t let their soul collapse.
+Или это её так хотелось бы? Даже став учеником рыцаря, Ронье продолжала с радостью ощущать наплыв искреннего уважения и восхищения Рыцарями Целостности, в том числе, при ежедневных разговорах про Инкарнацию и при обучении Навыкам Мечника и Священному Искусству. Для неё они были абсолютной сущностью, которой ничего не способно навредить ─ так она их воспринимала, но было ли это так на самом деле...?
 
-Or was this just a wish? Even after becoming a knight apprentice, Ронье continued embracing heartfelt respect и admiration for Рыцарь Целостностиs even when it came to talking about Incarnation и teaching Меч skills и Sacred Art on a daily basis. She wanted them to be an absolute existence that cannot be hurt by anything ─ this way she felt, but was this really the truth...?
+Ронье, глубоко опечаленная, услышала дрожащий голос Асуны:
 
-Ронье, deeply depressed, heard a trembling voice of Асуна.
+"Эй, Кирито-кун. Я тут подумала... Индекс Табу абсолютен для жителей Мира Людей, так ведь? То есть стоит попытаться его нарушить, и твоя душа разрушится."
 
-"Hey, Кирито-kun. Я wondered for a moment... Taboo Index is absolute for people of Мира Людей, is it not? So that just as one tries to break it, their soul would collapse."
+"А... не совсем. Обычно, перед тем, как душа разрушится,  активируется ‘печать правого глаза’, и она не позволит продолжать думать о нарушении.... Причина, почему печать не активировалась для Райоса, была в том, что он и не пытался ничего нарушить, а действовал в полной уверенности в своей правоте, и я думаю, из-за этого он и зациклился выбирая между жизнью и Индексом и одновременно пытаясь защитить и Индекс Табу, и свою Жизнь."
 
-"Ah... not really. Usually, the ‘Seal of the right eye’ will be activated before the soul collapses, и they will not be able to continue thinking of violation.... The reason why the seal did not activate for Raios was that he never tried to commit an offense but acted from an absolute confidence, Я think because of that he fell into a **loop** of choosing between two taboos, that he must protect both Taboo Index и his life."
+"Сенпай, что значит ‘зациклиться’?"
 
-"Senpai, what is ‘**loop**’?"
+Это Тейза прервала объяснения. Кирито ответил со слегка смущённым выражением лица:
 
-It was Тейза who interrupted. Кирито answered with a sort of embarrassed expression.
+"Хоть я и стараюсь, иногда англ... священные слова проскакивают. Зациклиться значит идти по кольцу, или подобной фигуре, в том смысле, что действие 'никогда не закончится' или 'повторяется'...... Норм объяснил?"
 
-"Even though I've planned to be careful, somehow **Eng**... a sacred word came out. Loop is ring, or something of that shape, it included the meaning of "never-ending" or "repeating"...... Good explanation?"
+Кирито глянул на Асуну, которая улыбнулась и кивнула:
 
-Кирито gazed at Асуна who smiled и nodded.
+"Я полагаю, хорошо, есть и другие подобные значения."<sup><a href="#Prim1">1</a></sup>
 
-"Я think it was pretty good, the remaining meanings would be "to tie up" or "to wind around"<sup><a href="#Prim1">1</a></sup>.
+"Угу, угу, большое спасибо!"
 
-"Uhu, uhu, thank you very much!"
+Поблагодарив их, Тейза достала из отделения на своей униформе ─ на священном языке, вроде как, называющегося "по́кет" ─ меленькую квадратную книжечку из листов белой конопляной бумаги, стянутых пряжей и угольную ручку. Она быстро пролистала страницы, заполненные меленькими буквами, и достигнув чистой страницы, записала значение слова "зациклится".
 
-Having thanked him, Тейза took out of a compartment of her uniform ─ there was a sacred word for it, seemingly "pocket" ─ a small square book of white hemp paper bundled with yarn threads и a copper pen. She quickly turned over sheets of paper already filled with small letters и arrived at a blank sheet, where she wrote the meaning of "loop".
+"Пог... погоди, Тейза, что это?"
 
-"Wai... wait, Тейза, what's that?"
+"Хе-хе, я достала бумажные обрезки в отделе управления и сделала её. Если я запишу вот так, то уже не забуду священные слова, которым нас научили."
 
-"He-he, Я got paper scraps at the management department и made it. If Я write it down this way, Я will not forget the sacred words that you have taught us."
+"Т-тайно, такую штуку..."
 
-"Se… secretly, such a thing..."
+Ронье слегка запаниковала, удивившись неожиданной сообразительности и старанию Тейзы, которая должна была бы ненавидеть учёбу ещё больше, чем она сама. Она пихнула свою лучшую подругу в бок и прошептала:
 
-Ронье panicked a little to the surprising acumen и effort of Тейза who was supposed to hate studying even more than herself. She poked the flank of her best friend и whispered.
+"Пожалуйста, расскажи мне потом как такую сделать."
 
-"Please tell me how to make one later."
+"Ху-ху-ху, знаешь, мне иногда приходит мысль, а не съесть ли медовый пирог из павильона ‘Прыгающий Олень’."
 
-"Hu-hu-hu, you know Я occasionally want to eat a honey pie from the ‘Jumping Deer’ pavilion."
+"Я поняла, само собой..."
 
-"Я understand, surely..."
+Кирито, наблюдавший за этим диалогом, откинулся на спинку и заметил:
 
-Кирито watching the exchange between the two of them leaned against the backrest и said:
+"Да, я надеюсь, что система позволит нам увеличить производство белой конопли. Я теперь думаю собирать три урожая… или даже пять."
 
-"Well, Я hope the system will allow us to increase the production of white hemp. Я want three harvests now… or even five ones."
+"При том, что даже десятка и близко не будет достаточно."
 
-"Even tenfold would not be even closely enough."
+— внезапно добавила Асуна.
 
-Suddenly added Асуна.
+"В идеале, все в Мире Людей...... нет, во всём Подмирье, должны иметь возможность свободно использовать такие блокноты и угольные ручки."
 
-"Ideally, everyone in Мира Людей...... no, in all Underworld should be able to use notebooks и copper pens freely."
+"Было бы здорово, случись такое..."
 
-"That would be great if that happened..."
+— сказала Тейза, похоже, внезапно осознавшая все прелести учёбы, уставившись в свой блокнот:
 
-Said Тейза who seemed to have unexpectedly recognized the pleasure of studying, staring at her small book.
+"Пергамент так дорог, что дети низших классов вроде нас с Ронье писали с помощью растворимых чернил из листьев лотоса, потом смывали и использовали снова и снова. Обычная бумага, получающаяся когда обмолотят белонитную траву, дешёвая, но её Жизнь истощается всего за неделю и она рассыпается.... Я думаю, все дети будут рады учиться если эта белая бумага станет доступной бесплатно."
 
-"Since parchment is so expensive, children of lower classes like me и Ронье wrote in water-soluble lotus leaves ink, then washed it away и reused over и over. The regular paper made by hitting White-thread grass is cheap, but in just one week it’s life is exhausted и it will crumble.... Я think that any child will love to learn if this white paper becomes available for free."
+"Ну, или по крайней мере сделать столько учебников, сколько получится..."
 
-"Well, afterwards Я hope to make as many textbooks as possible..."
+Ронье уверенно кивнула после этих слов Асуны.
 
-Ронье also nodded deeply this time to Асуна's words.
+Довольно долго Кирито летал по Миру Людей, пытаясь найти материал для производства бумаги, который совмещал бы в себе долговечность пергамента и доступность обычной бумаги. Наконец, он нашёл белоснежную коноплю, чисто-белое растение, растущее только в скалистых горах северо-западной части Северной Империи. Листья и стебли мелко нарезают и варят в большой кастрюле, и когда масса приготовится, её разливают тонким слоем по плоской поверхности, и прежде чем её Жизнь начнёт уменьшатся, сушат с помощью термальных и воздушных элементов чтобы изменить её состояние с низкопрочной “пластины” на долговечную “ткань”, а затем, в качестве финиша, многократно разглаживают, проходясь по поверхности большой скалкой — так делают эту белую бумагу.
 
-For a while Кирито was flying around the Мира Людей to find the material for the paper which would combine the durability of parchment paper и the accessibility of regular paper. Finally, he found snow-white hemp, a pure white plant growing only on the rocky mountain in the northwestern part of the Northern Empire. Cutting its leaves и stems finely и stewing in a large pan, и when ready, pouring the thin layer of a goo over a flat surface, и before it’s Life begins to decrease, drying with thermal и aerial elements to change its current state from low-durability “plate” to high-durability “cloth”, и then rolling a large rolling pin many times over it to finish и smooth it — this way one can make white paper.
+Она была намного дешевле пергамента, на всего шестьдесят ценов которого уходила целая овца, а долговечность её могла сравниться с таковой у пергамента, но она требовала намного больше усилий, чем обычная бумага, которая получалась, когда стебли белонитной травы переплетали крест-накрест, а затем били молотом, да и материал, снежно-белая конопля, не был доступен вокруг центральной столицы. В то время на производственной территории в скалистых горах уже были созданы поля снежно-белой конопли, а в Центории подготовлены четыре мануфактуры, и для жителей центральной столицы запустили продажу, но она всё равно стоила дороже, чем обычная бумага. Даже будучи новичком во всём этом, Ронье понимала, насколько сложно будет сделать это дешёвым продуктом, чтобы им пользовались как дети Тёмной Территории, так и Мира Людей.
 
-It was much cheaper than parchment only sixty cen of which can be made from a single sheep и its durability is high enough to compete with parchment, but it took more effort than regular paper, which is made by knitting White-thread grass vertically и horizontally и then hitting it with a mallet, и the material, snow-white hemp, was not available around the central capital. At that time, a field of snow-white hemp has been opened in the rocky production area, four manufactures were also completed in Центория, и sales of white hemp paper for the residents of the central capital has been started, but it still was higher priced than the regular paper. Even new to that all Ронье understood how hard it was to make this a cheap produce for children of Тёмной Территории as well as Мира Людей.
+Однако, для Кирито и Асуны массовое производство белой конопляной бумаги не было конечной целью. Они, казалось, хотели сделать большое количество учебников, объясняющих язык, математику, и техники изучения Священного Искусства Мира Людей.
 
-However, for Кирито и Асуна the mass production of white hemp was not the final goal. It seemed that they wanted to make a massive number of textbooks in which Мира Людей languages, mathematics, и methods of learning techniques would be described.
+"...... если такие учебники станут доступны каждому, дети смогут учиться в любое время..."
 
-"...... If textbooks get distributed to one person each, children can study at any time..."
+— продолжила Тейза слова Ронье.
 
-It was Тейза who took over Ронье's words.
+"Говорят, даже на книжку по начальному Священному искусству у сноровистого мастера уходит месяц. И конечно, это очень дорого...... Мой отец купил такой учебник, поскольку Священное Искусство было вступительным экзаменом в Академии Искусства Меча, но всё же получилось купить только раннюю копию, в которой, к огромному сожалению, символы уже потеряли свою форму. И всё равно она была моим сокровищем."
 
-"Even for the textbook of the elementary Sacred Art, they say, it takes skillful craftsman a month to copy a single book. Of course, it is very expensive...... My father bought a textbook because Sacred Art was an entrance exam subject of Академии Искусства Меча, still it was only possible to buy an early copy where characters had lost their shapes, which seemed to be a terrible regret. It is still my treasure."
+На самом деле, Ронье прошла через то же.
 
-Actually, Ронье shared the same experience.
+Высококлассные книги в Мире Людей, копии, выполненные тем же "шрифтом аксиом", какой использовался в Индексе Табу, оценивались более чем в 1 миллион широв, и аристократы низших классов не могли их себе позволить, не говоря уже про обычных людей. Так называемые "быстрые копии" учебников, получавшиеся когда неопытный ремесленник ошибался в форме символов, ценились значительно ниже, но это всё равно была элитная покупка.
 
-The highest-class books at Мира Людей, textbooks carefully copied with the same "axiom typeface" as used in the Taboo Index, were priced at more than 1 million shears, и lower-ranking aristocrats could not buy it, not to mention ordinary people. So-called "quick-copy" textbooks, appearing if a young craftsman copied it with some misshaped letters, would fall in price much, but it was still elite shopping.
+"Да, этим можно заняться. И тогда, однажды..."
 
-"This is something to take care of. Then, someday..."
+— сказал Кирито, улыбаясь, потом прервался и тяжко вздохнул:
 
-Кирито said that while smiling, then he paused и heavily sighed.
+"...... Массовое производство учебников будет во много раз тяжелее, чем самой белой конопляной бумаги, но что же, мы терпеливо будем этим заниматься, потому что у нас достаточно времени..."
 
-"...... Mass production of textbooks will be many times harder than white hemp paper, but well, we’ll take care of it patiently, because there is plenty of time..."
+"...Именно так."
 
-"...That's right."
+— кивнула Асуна с хитрой ухмылкой:
 
-Асуна nodded with a somewhat mischievous smile.
+"Так что, Кирито-кун, значит на вступительных в Академии Искусства Меча проверяли не только навыки обращения с мечом, но и знание Священного Искусства."
 
-"So, Кирито-kun, it was not only the Меч skill but also the Sacred art test, when you took the entrance exams of Академии Искусства Меча."
+"А, это, я был среди двенадцати лучших, вот...... хотел бы я сказать. Но меня учил Священному Искусству Юдзио, ревностно следящий, чтобы я учил только то, что следует."
 
-"Ah, that, Я was among the top twelve...... Я wish Я could say. But Я learned Sacred Art from Юдзио fervently supervising that Я learn only stuff Я should."
+Услышав это, Тейза улыбнулась и засмеялась. Однако, в её смехе чувствовались, помимо радости, и другие эмоции, и Ронье только слегка приоткрыла рот, но ни слова не смогла сказать.
 
-When hearing that, Тейза smiled и chuckled. However, her laughter seemed to include emotions other than joy, и Ронье could only slightly open her mouth, without saying a word.
+Асуна с сочувствующей улыбкой посмотрела на видимое за колоннами синее небо и по её лицу пронеслась тень досады.
 
-Асуна who has a consoling smiling smile, looked at the blue sky visible between the columns и an expression of vexation blinked across her face.
+"Ладно, вы обе наверное проголодались. Давайте пообедаем, поможете принести?"
 
-"Anyway, both of you are probably hungry. Let’s have lunch, can you help me to carry it?"
+Конечно, Кирито подскочил одновременно с поднявшимися Ронье и Тейзой. С тех самых дней, когда она была его камердинером, Ронье всегда твердила "Позвольте мне это сделать" в подобных обстоятельствах, но даже пусть и так, Кирито не сидел без дела, ожидая пока его обслужат. *Сенпай совсем не изменился*... подумала она, идя позади Асуны, в то время как Тейза вытащила ручку и блокнот и спросила:
 
-Of course, Кирито also got upright immediately as Ронье и Тейза who stood up at the same time. From the time she was his valet, Ронье always said "Let me do it" at such times, but even at that time Кирито would not sit down и wait for service. *SenpAI really did not change*... as she was thinking so walking behind Асуна, Тейза took out the pen и the notebook again и said:
+"Так, Асуна-сама, ‘блокнот’ это какой-то вид книги для записей?"
 
-"So, Асуна-сама, ‘notebook’ is some sort of book for records?"
-
-**Grrr** — it was Ронье who could not help clenching her fists.
+**Гррр** — это Ронье не смогла ничего с собой поделать и сжала кулаки.
 
 ![Image](/Translate/Img/p067.jpg)
 
-***
+## Продолжение следует...
+
+<!--***
 
 On the first floor beneath the "Наблюдательный пост Утренней Звезды", on the ninety-fourth floor of the Собора, there was a kitchen, not as wide as the large kitchen on the tenth floor, but convenient и a well-equipped one.
 
@@ -268,7 +268,7 @@ While Ронье и Тейза stood speechless, Асуна shook away a shadow 
 
 "... So, Я decided to give up looking for the moment of baking и let it pass through as it is. But, instead Я asked Hana if there is a way to retain the moisture even if one cooks it over time, и she told me that if you put it in a bowl with a lid и bake it in the oven, it will be somewhat different."
 
-"Heeeh...... Я also learned a variety of dishes, but Я have never thought of such a recipe. You are truly an exclusive chef of the Highest Priest."
+"Heeeh...... Я also learned a variety of dishes, but Я have never thought of such a recipe. You are truly an exclusive chef of the Первосвященник."
 
 As Тейза showed her admiration, a woman named Hana shrugged her shoulders.
 
@@ -326,7 +326,7 @@ As Hana suggested so, Асуна turned her face to her.
 
 While the two cooks were exchanging opinions, Кирито remained silent ── he was completely absorbed by the dish и kept moving the fork. Ронье worried that he would not say anything till the very end, и involuntary whispered to the right Кирито.
 
-"Ehm, senpai, what impression of taste do you......"
+"Ehm, Сенпай, what impression of taste do you......"
 
 "……Hmm?"
 
@@ -352,7 +352,7 @@ The number of Мира Людей people who lose their lives in accidents or ep
 
 Ронье thought it was wonderful for the world to progress into a better state by the advancements that the two of them can bring. At the same time, however, she felt something like a faint anxiety.
 
-Мира Людей had hardly changed within the three hundred years under the rule of the Highest Priest Administrator — in particular the establishment of a governing system dividing in the four empires. It is because the Highest Priest wanted the "permanent stagnation" state for the world, as a result Мира Людей neither did solve the problem of great aristocracy as well as the gap between the central capital и the frontier, nor had the world got worse any more.
+Мира Людей had hardly changed within the three hundred years under the rule of the Первосвященник Администратор — in particular the establishment of a governing system dividing in the four empires. It is because the Первосвященник wanted the "permanent stagnation" state for the world, as a result Мира Людей neither did solve the problem of great aristocracy as well as the gap between the central capital и the frontier, nor had the world got worse any more.
 
 Кирито и Асуна, on contrary, continued to make constant efforts to further develop both Мира Людей и the whole Underworld. Even taking this one thing, that the general people who were oppressed by the great aristocrats due to the private ownership of the territory were released, the world has definitely improved.
 
@@ -364,13 +364,13 @@ The voice of Тейза sounding next to her pulled Ронье's consciousness b
 
 "What is it, is Тейза-сан?"
 
-"Come to think of it, Я guess Я interfered in what you were saying before the meals? Certainly, it was about the Taboo Index?"
+"Come to think of it, Я guess Я interfered in what you were saying before the meals? Certainly, it was about the Индекс Табу?"
 
 "Was it so……"
 
 At the same time as Асуна tilted her head, Ронье rewound her memory.
 
-Indeed, it seemed that Асуна had asked Кирито something about Taboo Index after the talk of whether to reveal the truth of "Синтез ritual" to the upper Рыцарь Целостностиs и others. Afterwards, Кирито talked about the mental loop of choosing between two taboos that Raios Antinous caught, и Тейза asked something about the meaning of the sacred word loop, from which the topic diverted to the increase of production of white papers и Тейза’s notebook. Which means ──.
+Indeed, it seemed that Асуна had asked Кирито something about Индекс Табу after the talk of whether to reveal the truth of "Синтез ritual" to the upper Рыцарь Целостностиs и others. Afterwards, Кирито talked about the mental loop of choosing between two taboos that Raios Antinous caught, и Тейза asked something about the meaning of the sacred word loop, from which the topic diverted to the increase of production of white papers и Тейза’s notebook. Which means ──.
 
 ".... hey Тейза, Асуна-сама's topic was changed in the middle, it's not your fault!"
 
@@ -386,23 +386,23 @@ When she lowered her head on behalf of her best friend, Вице-Премьер-
 
 With a smile, Асуна turned her eyes to the left.
 
-"......Uh, Кирито-kun, for the people of Мира Людей the Taboo Index is absolute, trying to break it would trigger a ‘seal on the right eye’ or in the worst case the mind would collapse... is that the understanding?"
+"......Uh, Кирито-kun, for the people of Мира Людей the Индекс Табу is absolute, trying to break it would trigger a ‘seal on the right eye’ or in the worst case the mind would collapse... is that the understanding?"
 
 Кирито, once again questioned, nodded while adding some milk, that was just obtained this morning at the stables of the Собора, to his kohiru tea:
 
 "Yeah, Я think that's the case in principle."
 
-"So then... The criminal who killed Yazen-сан, a cleaner at the inn in Southern Центория, either broke the seal of the right eye, or avoided contraindication in some way, or he was not bound by the Taboo Index from the very beginning?"
+"So then... The criminal who killed Yazen-сан, a cleaner at the inn in Southern Центория, either broke the seal of the right eye, or avoided contraindication in some way, or he was not bound by the Индекс Табу from the very beginning?"
 
-"... Yeah, Я think it's one of the three....... About the third one...... if that is correct, the criminal will be a Тёмной Территории person rather than a Мира Людей person, but even in that case, it is still necessary to break the ‘Law of the Strongest’ of Тёмной Территории as much absolute as the Taboo Index. Isukan, the strongest person within present Тёмной Территории, has issued a documental order to prohibiting of doing bad things in Мира Людей..."
+"... Yeah, Я think it's one of the three....... About the third one...... if that is correct, the criminal will be a Тёмной Территории person rather than a Мира Людей person, but even in that case, it is still necessary to break the ‘Law of the Strongest’ of Тёмной Территории as much absolute as the Индекс Табу. Isukan, the strongest person within present Тёмной Территории, has issued a documental order to prohibiting of doing bad things in Мира Людей..."
 
 Ронье who heard these words timidly lifted the right hand after recollecting some of Асуна's earlier words.
 
-"Ehm, senpai, may I.......?"
+"Ehm, Сенпай, may I.......?"
 
 "Go ahead, Ронье."
 
-"It is in the past now... but the man in the black robe who kidnapped Isukan-сама’s и Шейта-сама’s baby at Obsidia Castle was obviously ignoring the law of power, was he not? Because he took Lisa-chan as a hostage и ordered Isukan-сама to kill my senpai......."
+"It is in the past now... but the man in the black robe who kidnapped Isukan-сама’s и Шейта-сама’s baby at Obsidia Castle was obviously ignoring the law of power, was he not? Because he took Lisa-chan as a hostage и ordered Isukan-сама to kill my Сенпай......."
 
 Upon hearing that, Асуна, who should have received detailed reports, и Тейза, who learned details directly from Ронье<sup><a href="#Prim4">4</a></sup>, hardened their expressions. However, Кирито himself only vaguely nodded и answered.
 
@@ -416,7 +416,7 @@ Upon hearing that, Асуна, who should have received detailed reports, и Т�
 
 As Ронье said so, Кирито sighed folding arms on his chest.
 
-"Well... it depends on the strength of the thought....... At the time of the "Rebellion of Four Empires", the four Императорs rebelled against the Axiom Church by breaking the first Article of Taboo Index which they should have been bound by. The belief that the Объединённого Совета Мира Людей overtook the Axiom Church justified the right to regain the Church from us for the Highest Priest to the degree when it exceeded the control of the Taboo Index. If there is something that generates a thought as strong, it may be possible to break the Law of the Strongest without fighting directly with Isukan."
+"Well... it depends on the strength of the thought....... At the time of the "Rebellion of Four Empires", the four Императорs rebelled against the Axiom Church by breaking the first Article of Индекс Табу which they should have been bound by. The belief that the Объединённого Совета Мира Людей overtook the Axiom Church justified the right to regain the Church from us for the Первосвященник to the degree when it exceeded the control of the Индекс Табу. If there is something that generates a thought as strong, it may be possible to break the Law of the Strongest without fighting directly with Isukan."
 
 To that words, Ронье’s back lightly trembled, as she recalled Император Крюгер Norlangarth VI’s self-esteem almost physically seeping into the space surrounding him. Next to her, Тейза also pulled her neck in before speaking in a quiet voice.
 
@@ -424,7 +424,7 @@ To that words, Ронье’s back lightly trembled, as she recalled Импер�
 
 The answer to Тейза came from Асуна, whom she interrupted already for the second time.
 
-"Sure, that's true, Taboo Index or the Law of Power — one needs a good **backbone** to break through with beliefs и self-justifications. Oh, the **backbone** means the spine, support, the spiritual kernel."
+"Sure, that's true, Индекс Табу or the Law of Power — one needs a good **backbone** to break through with beliefs и self-justifications. Oh, the **backbone** means the spine, support, the spiritual kernel."
 
 "Y-yes."
 
@@ -460,10 +460,10 @@ As Кирито said “Umm” submerging in his thoughts, Тейза asked Ас
 
 "Ayuha-сан's past reflection technique. If you really can see past events и you use it in an inn where the incident happened, you should be able to see the culprit." -->
 
-<!--## Footnotes:
+## Footnotes:
 
-1. <a name="Prim1"></a>Keep in mind, we’re not talking English word meaning here, but rather katakana ループ.
-2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here и below. As for the next passage, it’s also 2 words of a similar kind.)
+1. <a name="Prim1"></a>В оригинале, речь про ループ, loop, петля. Асуна приводит альтернативные значения японского я rupu, не имеющие отношения как к английскому, так и, в ещё большей степени, к переводу на русский.
+<!--2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here и below. As for the next passage, it’s also 2 words of a similar kind.)
 3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
 4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ронье”, but that’s not true as Тейза only has heard about the kidnapping an hour ago or so, и we’ve been following them almost without interruptions since then.
 5. <a name="Prim5"></a>Not sure if it matters, Ронье says the name here in Sacred Language.-->

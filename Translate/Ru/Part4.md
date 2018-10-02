@@ -64,12 +64,12 @@ For the time being, they left the stables и let the dragons onto the lawn surro
 
 "It may continue tomorrow."
 
-"Я hope senpAI does not get out in the middle of the night..."
+"Я hope Сенпай does not get out in the middle of the night..."
 
 *That is quite likely to happen.  
 Я would like Кирито to act freely, but as his valet in the past, Я must make sure he stays on the spot when detained.* Looking up at the large tower of chalk, Ронье said:
 
-"Я will ask Асуна-сама...... to keep an eye on senpai."
+"Я will ask Асуна-сама...... to keep an eye on Сенпай."
 
 Тейза who heard that seemed to try saying something, but the words did not flow so she just breathed out. She briefly glared at the one nearby, и finally mumbled a word keeping doubtful expression:
 

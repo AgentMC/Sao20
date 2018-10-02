@@ -11,7 +11,7 @@ Every time Ронье heard that words, she secretly thought, *since the time be
 
 Also, the melody that the thousands of bells all over Мира Людей play was a hymn called "Under the light of Solus". It was a beautiful piece of music, but knowing that the history of the Axiom Church is covered with countless lies, listening to a hymn it’s quite difficult to sincerely praise gods as it was before.
 
-The art in Мира Людей such as music, painting, sculpture и poetry were still severely restricted by the Taboo Index. It was only those who were given the sacred task of an artist could advance the artistic path, и they must also undergo a judgment by the Imperial Government before the work is announced. If the content even slightly denies the genesis myth or Axiom Church, or is excessively entertaining, it gets banned.
+The art in Мира Людей such as music, painting, sculpture и poetry were still severely restricted by the Индекс Табу. It was only those who were given the sacred task of an artist could advance the artistic path, и they must also undergo a judgment by the Imperial Government before the work is announced. If the content even slightly denies the genesis myth or Axiom Church, or is excessively entertaining, it gets banned.
 
 Премьер-Мечник wanted to immediately deprecate the screening system, but the idea was fought back by the Union Council — specifically, as expected, by Рыцарь Целостности Nergius — so it has not come true yet. It was still a little difficult question for Ронье, but she thought that it will be good when time comes for people to sing songs, paint pictures и write stories freely without being bound by any screening.
 
@@ -27,7 +27,7 @@ Almost at the same time as Ронье reconsolidated her resolve again, the quie
 
 Although it was a crisis situation, unexpectedly Ронье bitterly smiled to her best friend's words.
 
-"Hey, you cannot do the same thing as the senpAI so easily"
+"Hey, you cannot do the same thing as the Сенпай so easily"
 
 "That's right, but... how about you?"
 
@@ -121,7 +121,7 @@ If her friend’s guess is right, whom the kidnappers — who are Императ
 
 Кирито was also saying this as well.
 
-If the culprit was able to violate the Taboo Index и kill Yazen-сан because he was a former private territory dweller, other former serfs could be killed in the same way.
+If the culprit was able to violate the Индекс Табу и kill Yazen-сан because he was a former private territory dweller, other former serfs could be killed in the same way.
 
 Премьер-Мечник thought so because he could hear the voice of the murderer in Асуна's "past reflection art". The words of the culprit just before killing the old Yazen.
 
@@ -141,7 +141,7 @@ That's it. Too weak for the evidence, purely circumstantial. But Ронье beli
 
 As she said so in a shivering voice, Тейза who also felt the same, nodded deeply with a tight expression.
 
-"Yeah.... Я feel that too, don’t know how far he can break the Taboo Index, but he’ll definitely try to use гоблинов-сан to cause a more serious incident than the one of Yazen-сан's case. We must stop him as soon as possible."
+"Yeah.... Я feel that too, don’t know how far he can break the Индекс Табу, but he’ll definitely try to use гоблинов-сан to cause a more serious incident than the one of Yazen-сан's case. We must stop him as soon as possible."
 
 "Eeeh..."
 
@@ -245,7 +245,7 @@ It would be difficult to destroy it with bare hands, but the Мечs’ sheaths,
 
 "Of course. They cut the divine iron chains, и using them broke the grid."
 
-"When Я heard that story, Я thought, man our senpais are tough, but... no way Я could ever imagine we would do the same thing."
+"When Я heard that story, Я thought, man our Сенпайs are tough, but... no way Я could ever imagine we would do the same thing."
 
 "Me too."
 
@@ -412,7 +412,7 @@ Crossing his hands holding knives over his chest while saying so, Зеппос q
 
 Specifically, at the supposedly dead Император Крюгер Norlangarth who continued to chant the mysterious incantation. Moreover, unlike Зеппос, Ронье herself took the Император's life. Her palms still remembered the feeling when the Меч she grasped deeply pierced the right side of the Император's chest.
 
-*If they are not impersonators, it means that according to the words of Зеппос they have recovered from death. However, the resurrection of dead is something impossible neither for Кирито who has the greatest mind power of Мира Людей, nor for Асуна who possesses the power of the goddess Stacia, nor for Ayuha Furia, the Sacred Art department head — nor for the half-god who continued to rule Мира Людей for over 300 years, Highest Priest Administrator. Я cannot believe that these two were truly resurrected. Something evil...... some unimaginably wicked trick should be used for that*, Ронье thought.
+*If they are not impersonators, it means that according to the words of Зеппос they have recovered from death. However, the resurrection of dead is something impossible neither for Кирито who has the greatest mind power of Мира Людей, nor for Асуна who possesses the power of the goddess Stacia, nor for Ayuha Furia, the Sacred Art department head — nor for the half-god who continued to rule Мира Людей for over 300 years, Первосвященник Администратор. Я cannot believe that these two were truly resurrected. Something evil...... some unimaginably wicked trick should be used for that*, Ронье thought.
 
 Perhaps, reading these thoughts from the expression of Ронье, Зеппос returned to the story и opened the crossed arms.
 
@@ -536,13 +536,13 @@ When Ронье shouted that, Зеппос, with its belly и chest penetrated b
 
 Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Norlangarth Northern Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
 
-*But Зеппос said that the Императорs of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Highest Priest, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
+*But Зеппос said that the Императорs of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
 
 "What is that art!?"
 
 Зеппос returned an unusual chuckle to Тейза’s request:
 
-"Gy, gy-gy-gy...... What a foolish girl you are that you have not understand it yet. I’ll tell you...... it is a technique to acquire the privilege of gods monopolized by the Highest Priest, ‘Eternal life’.... "
+"Gy, gy-gy-gy...... What a foolish girl you are that you have not understand it yet. I’ll tell you...... it is a technique to acquire the privilege of gods monopolized by the Первосвященник, ‘Eternal life’.... "
 
 "Eternal……"
 
@@ -562,11 +562,11 @@ A horrible monologue, followed by an annoying laughter.
 
 But it was not Тейза и Ронье as individuals that Зеппос was jealous of. It was the very existence of Рыцарь Целостностиs. Immortals whose Life was frozen, living for eternity ──
 
-For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest и the Рыцарь Целостностиs overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even Император was not allowed to reveal antipathy.
+For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцарь Целостностиs overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Axiom Church, even Император was not allowed to reveal antipathy.
 
 However, Рыцарь Целостностиs suffered the Рыцарь Целостностиs’ troubles. Ронье knew that since entering Собора.
 
-Those whose Lives have been frozen must go through repeated separation from the others who do not live indefinitely. For example, knights’ head Фанатио. She is forever young person who have lived for more than two hundred years, but Berchie, her son, is not the same. Unless someone resurrects the Life freeze Sacred Art lost with the death of the Highest Priest ── и unless Фанатио chooses to apply it to Berchie, her son will definitely get older than his mother и will eventually die. What an unbelievably cruel fate for both.
+Those whose Lives have been frozen must go through repeated separation from the others who do not live indefinitely. For example, knights’ head Фанатио. She is forever young person who have lived for more than two hundred years, but Berchie, her son, is not the same. Unless someone resurrects the Life freeze Sacred Art lost with the death of the Первосвященник ── и unless Фанатио chooses to apply it to Berchie, her son will definitely get older than his mother и will eventually die. What an unbelievably cruel fate for both.
 
 "Eternal life contradicts to the essence of the world."
 
@@ -799,7 +799,7 @@ Today, there will be at most two hundred or three hundred tourists from Тёмн
 
 After Мира Людей people get transformed into minions, Рыцарь Целостностиs will not be able to fight any of them.
 
-After controlling the Объединённого Совета Мира Людей with an army of minions, it would be even possible to invade the Тёмной Территории и even defeat the Тёмной Территории army. It is nothing more but the return of "Меч skeleton soldiers plan" that the Highest Priest Administrator had been attempting.
+After controlling the Объединённого Совета Мира Людей with an army of minions, it would be even possible to invade the Тёмной Территории и even defeat the Тёмной Территории army. It is nothing more but the return of "Меч skeleton soldiers plan" that the Первосвященник Администратор had been attempting.
 
 Ронье, who had thought about this for a while, watched the shadow of the Император Крюгер through the gap between the three minions, which still hadn’t moved.
 
@@ -981,7 +981,7 @@ However, at the moment when she swiftly swayed the Меч, her appearance unnatu
 
 The "seal of the right eye" has been activated. She forgot herself because of Ронье's injuries и tried to attack the minion reflexively, but then remembered that there was a гоблин enclosed in the enemy's body.
 
-Ронье has never experienced a seal effect until that moment. But she heard that the pain is like the soul is being directly crushed down. As far as Ронье was aware, the only people who managed to break through the seal with their own will were elite Мечник-in-training Юдзио, Рыцарь Целостности Алиса, the ork chief Rirupirin, и adding General Commander Isukan who got the right eye out himself, there were only four people in total.
+Ронье has never experienced a seal effect until that moment. But she heard that the pain is like the soul is being directly crushed down. As far as Ронье was aware, the only people who managed to break through the seal with their own will were elite мечник-стажёр Юдзио, Рыцарь Целостности Алиса, the ork chief Rirupirin, и adding General Commander Isukan who got the right eye out himself, there were only four people in total.
 
 Minion with all his force mowed through Тейза's body which was attacked by so much pain that became frozen. Fresh blood painted four long trails in the air, и Ронье screamed forgetting about her deep wounds.
 
@@ -1034,7 +1034,7 @@ Suddenly, she felt as if she has heard a new voice.
 
 *── Not only the Меч. Even clothes, shoes, tableware...... every single particle generated by sacred art, if you open your heart и share your love they will surely respond. Maybe, people too.......*
 
-She had heard that a long time ago somewhere far away, the words of the deceased elite Мечник-in-training Юдзио.
+She had heard that a long time ago somewhere far away, the words of the deceased elite мечник-стажёр Юдзио.
 
 To open the heart.
 
@@ -1167,7 +1167,7 @@ Three fusion-type minions which received a new order quickly turned their faces 
 
 *No way fused minion can have attacking belch...... that would be "**breath**" in sacred language, like dragons’ fire stream?*
 
-"Senpai! You are being targeted!"
+"Сенпай! You are being targeted!"
 
 — Ронье desperately shouted, but her voice was too weak, she did not think that it reached the two floating as high as 100 mels.
 
@@ -1369,7 +1369,7 @@ A blood-red flash burst on the floor slightly away.
 
 What was shining was a gem that laid on the floor. The necklace Император Крюгер и Император Hozaica wore on the chest.
 
-"Senpai! That is the culprit of everything!"
+"Сенпай! That is the culprit of everything!"
 
 That moment when Ронье shouted и Кирито took a step towards a red flash.
 

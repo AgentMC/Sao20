@@ -124,19 +124,19 @@ Speaking of the height, it was about the tenth floor of Собора — at most
 
 Тейза whispered that, и Кирито silently nodded.
 
-Timeless wall. It was a large white marble wall that divided all the territory of Центория in the eastern, western, northern и southern parts — и further into the vast four imperial territories. It was built not by piling cut out the stone, but rather The Highest Priest Administrator made it to appear during just one night.
+Timeless wall. It was a large white marble wall that divided all the territory of Центория in the eastern, western, northern и southern parts — и further into the vast four imperial territories. It was built not by piling cut out the stone, but rather The Первосвященник Администратор made it to appear during just one night.
 
-It is said that this wall, which lasts as much as 750 kilometers from the outer wall of Центрального Собора up to the "Mountain Range at the Edge" that encloses the Мира Людей far away, is impossible to destroy, hence the name of "timeless". It was forbidden to climb it or damage it by the Taboo Index, и although there would be no one who tried to break it, Ронье understood that she just violated the second mentioned prohibition. Even if she was released from the Taboo Index binding when she became an Рыцарь Целостности trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ронье looked at her feet she understood she instinctively began tiptoeing.
+It is said that this wall, which lasts as much as 750 kilometers from the outer wall of Центрального Собора up to the "Mountain Range at the Edge" that encloses the Мира Людей far away, is impossible to destroy, hence the name of "timeless". It was forbidden to climb it or damage it by the Индекс Табу, и although there would be no one who tried to break it, Ронье understood that she just violated the second mentioned prohibition. Even if she was released from the Индекс Табу binding when she became an Рыцарь Целостности trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ронье looked at her feet she understood she instinctively began tiptoeing.
 
 The marble that was assembled without any gaps in one millis, which should have been exposed to the weather for several hundred years, shined smoothly just as it was newly polished. Behind them, the corner of the wall nearby was sharp like a blade, preventing anyone from climbing.
 
 At that time, a light noise was heard. Two light-blue birds flew down on the top of the wall from the sky. They jumped a little over the marble и watched Ронье with black eyes.
 
-"...... Hu-hu, the Taboo Index truly has no effect on small birds."
+"...... Hu-hu, the Индекс Табу truly has no effect on small birds."
 
 With these words, Асуна gently touched their shoulders, и Ронье smiled at once looking at Тейза. She enjoyed the view once more и then understood it.
 
-"Oh, is it that... SenpAI is going to move on this wall until reaching the Inn in Southern Центория’s 4th district?"
+"Oh, is it that... Сенпай is going to move on this wall until reaching the Inn in Southern Центория’s 4th district?"
 
 As she asked, Кирито turned around и finally laughed.
 
@@ -174,13 +174,13 @@ As he muttered this he looked around the streets of South Центория. Ро
 
 *Inn, inn.......* after viewing the city for a while repeating that in her mind, Ронье understood she has never been to the inn that was the scene of the incident. Four days ago, when a message arrived at Собора, the mountain гоблин Орои who was already considered the criminal was imprisoned in the Guards office, so Кирито went straight there.
 
-"...... Um, senpai, did you come here without knowing the location of the inn?"
+"...... Um, Сенпай, did you come here without knowing the location of the inn?"
 
 Ронье whispered that, и Кирито nodded to her turning his face to the right.
 
 "Err, um, well. You see, there should be a signboard ‘**INN**’ by the inn, but it’s not that easy to notice looking from the top..."
 
-"Look senpai, these buildings are so big like mountains, it’s unlikely they will have a signboard conveniently visible!"
+"Look Сенпай, these buildings are so big like mountains, it’s unlikely they will have a signboard conveniently visible!"
 
 To Тейза's fair remark, Кирито nodded "right......" turning to the left. Асуна sighed watching it и took out a folded piece of paper from her cloak.
 
@@ -228,7 +228,7 @@ Even after waiting a few seconds there was no sound similar to collision so Ро
 
 Their bodies were gently raised — for a moment, и them three people immediately began to fall straight down. The wind groaned violently in their ears. The wish to cry out loudly was overflowing, but somebody might notice that, so she clenched teeth и kept silent.
 
-No matter if one is an учениками Рыцарей Целостности, they won’t be alive after falling from a height of 50 mel to a hard cobblestone. *Я believe in you, senpai!* In her mind Ронье cried without saying a sound aloud.
+No matter if one is an учениками Рыцарей Целостности, they won’t be alive after falling from a height of 50 mel to a hard cobblestone. *Я believe in you, Сенпай!* In her mind Ронье cried without saying a sound aloud.
 
 Кирито standing near the falling point lifted both hands into a bowl-like shape.
 
@@ -236,7 +236,7 @@ The feeling of something soft и transparent wrapped around their bodies. The fa
 
 Even the senior Рыцарь Целостностиs are limited to as much as moving a single dagger with this technique, it must be a terrible power of mind to allow to slow down the falling of three at the same time. When the ground approached just under ten centimeters, Кирито opened his hands и three people landed steadily. After letting out several nervous и long breathes, Ронье asked their leader.
 
-"....... Um, senpai, if you can do such thing, wouldn’t it be simpler to use just incarnation instead of aerial elements when we climbed the wall…?"
+"....... Um, Сенпай, if you can do such thing, wouldn’t it be simpler to use just incarnation instead of aerial elements when we climbed the wall…?"
 
 "Well, getting down и climbing jump straight up has different difficulty level of the **imagi**... of the concentration of consciousness. Even when it’s just one person Я need to transform clothes into wings when flying with incarnation......"
 
@@ -290,7 +290,7 @@ As soon as the receptionist who finished the short tour deeply bowed и left, Т
 
 After hurriedly shutting up her best friend, she turned to Кирито.
 
-"...... Um, senpai, what are you planning to do from now on? This room is not the crime scene, is it...?"
+"...... Um, Сенпай, what are you planning to do from now on? This room is not the crime scene, is it...?"
 
 "Yup, it’s the different one. But there are ways to find out which room it was. So far, let's have some rest."
 
@@ -344,7 +344,7 @@ To this admiration и question, Вице-Премьер-Мечник gently shoo
 
 Ронье lost her words.
 
-At the time of Войны с Внешним Миром Ронье got an opportunity to exchange words with Алиса Синтез Thirty several times. The most impressive thing was that night in the tent with unconscious Кирито when they were exchanging memorable stories with Асуна и Мира Людей Defense Army general Selrut,0 but Алиса's terrible large-scale light attack that had annihilated the great army of Тёмной Территории in a blink of an eye at the defense battle by the Great Eastern Gate was also burnt in her memory.
+At the time of Войны с Внешним Миром Ронье got an opportunity to exchange words with Алиса Синтез Thirty several times. The most impressive thing was that night in the tent with unconscious Кирито when they were exchanging memorable stories with Асуна и Мира Людей Defense Army general Selrut,0 but Алиса's terrible large-scale light attack that had annihilated the great army of Тёмной Территории in a blink of an eye at the defense battle by the Великих Восточных Врат was also burnt in her memory.
 
 Ронье и others low-grade clerics tried to guess what kind of technique would produce such a power. Of course, it is not where the knowledge of an apprentice knight reaches, but it can still be imagined that it would require to accumulate a huge number of light elements in some way и release them at the same time later. If that secret technique is based on a hollow sphere, it is no wonder Алиса conveyed it to Ayuha alone.
 
@@ -362,7 +362,7 @@ At the time of Войны с Внешним Миром Ронье got an opportu
 
 "It’s still pretty slow...... about making hot water. Maybe if you cast 2-3 ‘fire arrows’ into the basin....... "
 
-"Ah no, senpai, if you do that, it will get pure white in the room because of steam!"
+"Ah no, Сенпай, if you do that, it will get pure white in the room because of steam!"
 
 It was Тейза who suddenly replied, и Асуна и Ронье laughed together aloud.
 
@@ -384,7 +384,7 @@ Having answered using sacred word "Я heard it at **check-in**" to Асуна's 
 
 Премьер-Мечник reached for a brass grip, but for some reason stopped moving. He brought the hand in front of his eyes и carefully peered at his fingertips.
 
-"... What are you doing, senpai?"
+"... What are you doing, Сенпай?"
 
 To Ронье’s quiet question, Кирито merely muttered something like "No, nothing......" not saying anything clear. However, as soon as Асуна said "It's safe, no way could they reproduce unique fingerprints", he finally nodded и moved his hand to the handle again.
 
@@ -392,7 +392,7 @@ He twisted it to the left и right, but of course, it was locked и stopped half
 
 A few seconds later, the sound of an open lock sounded.
 
-"Wow... Senpai, you can do even that with incarnation?"
+"Wow... Сенпай, you can do even that with incarnation?"
 
 To that Тейза’s voice reverbing with the mix of shock и admiration, Кирито answered, shrugging:
 
@@ -442,7 +442,7 @@ Suddenly the crystal disc lying on the table floated up in the air without any s
 
 ![Image](/Translate/Img/p109.jpg)
 
-Looking at her painful expression, Ронье also shrieked her lips. *Я would like to help Асуна, but this technique is only for masters. Besides, she is challenging the gods’ work itself peeking at the past events. The secret the Highest Priest Administrator built, securely sealed in the deeps of the Elders Council ──*
+Looking at her painful expression, Ронье also shrieked her lips. *Я would like to help Асуна, but this technique is only for masters. Besides, she is challenging the gods’ work itself peeking at the past events. The secret the Первосвященник Администратор built, securely sealed in the deeps of the Elders Council ──*
 
 Асуна, whose whole body was now constantly trembling, moved her hands to the disk. She rapidly moved thin fingers, и the overflowing purple light followed, flickering irregularly.
 
@@ -502,7 +502,7 @@ As Кирито quickly said this, Асуна completely raised her upper body.
 
 Кирито tightened his profile to these words, и Ронье also gazed at Тейза.
 
-"...... What did you see? Have you understood how the murderer killed Yazen by avoiding the Taboo Index?"
+"...... What did you see? Have you understood how the murderer killed Yazen by avoiding the Индекс Табу?"
 
 As a question to jump in, Асуна made a long blinking as if to verify his memory и gave a slightly hoarse voice.
 
@@ -542,13 +542,13 @@ She slightly opened her mouth и blinked as if searching for words, but quickly 
 
 Said Кирито, coming close to Асуна и gently hugging her.
 
-"Even though Я could not see the criminal directly, Я could hear the voice, и Я understood many other things. For example, ...... the culprit who killed Yazen-сан did not utilize a complicated **trick**...... did not avoided the Taboo Index somehow, it just seems that he normally stabbed his heart..."
+"Even though Я could not see the criminal directly, Я could hear the voice, и Я understood many other things. For example, ...... the culprit who killed Yazen-сан did not utilize a complicated **trick**...... did not avoided the Индекс Табу somehow, it just seems that he normally stabbed his heart..."
 
 This was also true, come to think of it.
 
 Асуна took risk и used Past Reflection art to find out both "how" и "why" the criminal killed the old Yazen. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
 
-"The culprit is not bound by the Taboo Index......."
+"The culprit is not bound by the Индекс Табу......."
 
 Кирито confirmed Ронье’s muttering with a heavy voice:
 
@@ -564,7 +564,7 @@ This was also true, come to think of it.
 
 "Words ...... 『Serfs of my territory belong to my territory』...?"
 
-"Yes...... The reason why the culprit could ignore the Taboo Index was because Yazen-сан belonged to the aristocrat’s private territory и was a subject to the decision right of the one..."
+"Yes...... The reason why the culprit could ignore the Индекс Табу was because Yazen-сан belonged to the aristocrat’s private territory и was a subject to the decision right of the one..."
 
 "……Indeed!"
 
@@ -594,11 +594,11 @@ Next to Кирито who speculated using unfamiliar words, Асуна also kept
 
 "Yes...... Я actually thought of coming to this inn either today or tomorrow. To invite Oroi’s fellows who are waiting here to come и visit the Собора. Oroi's **homesick**...... hometown missing illness, Я think, should be aided for a while with that......."
 
-"But senpai, there are lots of tourists from Тёмной Территории......."
+"But Сенпай, there are lots of tourists from Тёмной Территории......."
 
 When Ронье said so, Кирито gently shrugged his shoulders.
 
-"Surely. Fortunately, their numbers и accommodations are recorded properly, so the search is easier than for the former private peasants. As expected, it is impossible for all of them to stay in the Собора, so Я think that we need to plan to schedule their return a little earlier beginning today so that they return home in order. If you construct a carriage formation with an escort getting them to the Great Eastern Gate, the criminal cannot mess around it."
+"Surely. Fortunately, their numbers и accommodations are recorded properly, so the search is easier than for the former private peasants. As expected, it is impossible for all of them to stay in the Собора, so Я think that we need to plan to schedule their return a little earlier beginning today so that they return home in order. If you construct a carriage formation with an escort getting them to the Великих Восточных Врат, the criminal cannot mess around it."
 
 "If that’s decided, let's move right away."
 
