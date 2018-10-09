@@ -8,7 +8,7 @@
 
 Со всех четырёх сторон продуваемой всеми ветрами платформы стояло лишь несколько колонн, а красивый сад с цветами и прозрачным родником занимал большую часть поверхности, которая, по сути, являлась на тот момент вершиной Собора. Лестница, поднимающаяся на 96-й этаж, была запечатана неразрушимой дверь, созданной Асуной с помощью её божественной силы, так что не только Рыцари Целостности, но и сам Премьер-Мечник Кирито не мог пройти туда.
 
-В уголке сада примостился белый столик, и  Кирито, появившийся на 3 минуты позже остальных трёх, простонал несчастным голосом, усаживаясь на стул. "Та реакция" была, конечно, восклицанием, что он издал, как только прозвучало имя Селки Шуберг.
+В уголке сада примостился белый столик, и Кирито, появившийся на 3 минуты позже остальных трёх, простонал несчастным голосом, усаживаясь на стул. "Та реакция" была, конечно, восклицанием, что он издал, как только прозвучало имя Селки Шуберг.
 
 Ронье с Тейзой тоже вскрикнули в тот момент, когда зачитали имя Френики, но поскольку они с ней были друзьями на первом году обучения в Академии Искусства Меча, не было ничего необычного в их удивлении.
 
@@ -408,7 +408,7 @@ With a smile, Асуна turned her eyes to the left.
 
 Upon hearing that, Асуна, who should have received detailed reports, и Тейза, who learned details directly from Ронье<sup><a href="#Prim4">4</a></sup>, hardened their expressions. However, Кирито himself only vaguely nodded и answered.
 
-"That is so. In other words, that kidnapper believes that he is stronger than Isukan, or he obeys orders from someone who is…  or he believes they are."
+"That is so. In other words, that kidnapper believes that he is stronger than Isukan, or he obeys orders from someone who is… or he believes they are."
 
 "That's what Я mean, there’s something...... slightly wrong with this story. First of all, how do people of Тёмной Территории confirm that the one to follow is stronger than oneself? No doubt, there must be ways other than a fight."
 
