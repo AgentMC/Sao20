@@ -248,11 +248,11 @@ While removing the leather gloves, Asuna continued:
 
 That was the first thing any girl learns has from her mother when she is taught cooking. *Rather than half-baked or burned, proper fire should be turned* ─ they listened to Asuna's words automatically remembering the saying from the past.
 
-"The only problem is that the dish becomes the most delicious at the moment when it changes from ‘heating’ to ‘cooked’, right? It the heating continues, the more it goes on, the more it moisture gets lost, the dish gets harder, and the taste of ingredients dissolves out of stewed dishes as well. In the case of stewing, there is also a way to saturate the taste of the soup by continuing heating with a low heat while adding ingredients, but it takes too much time and trouble."
+"The only problem is that the dish becomes the most delicious at the moment when it changes from ‘heating’ to ‘cooked’, right? If the heating continues, the more it goes on, the more it moisture gets lost, the dish gets harder, and the taste of ingredients dissolves out of stewed dishes as well. In the case of stewing, there is also a way to saturate the taste of the soup by continuing heating with a low heat while adding ingredients, but it takes too much time and trouble."
 
 "Y-yes......."
 
-As Ronye nodded again, the unique taste of the mysterious ‘Obsidia boil’ she ate in the capital city of Obsidia was about to revive in her mouth, so move quickly said:
+As Ronye nodded again, the unique taste of the mysterious ‘Obsidia boil’ she ate in the capital city of Obsidia was about to revive in her mouth, so she quickly said:
 
 "...... but, how is this related to paper used in cooking?"
 

@@ -142,7 +142,7 @@ When Ронье murmured that, Тейза, who was drinking tea from a bottle ne
 
 Ронье raised the gaze when she heard it.
 
-The Norlangarth Northern Empire spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the northern gate of Центория they were in, the timeless wall separating the land between the West и the East was still clearly visible.
+The Норлангарт Northern Empire spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the northern gate of Центория they were in, the timeless wall separating the land between the West и the East was still clearly visible.
 
 *Император's domain monopolized the land on the west side of the high road running straight north from Центория, и the territories of nobility were lined up on the east side of the road. In other words, because the location of this territory is relatively close, there was no reason for onlookers to ignore it.*
 
@@ -158,7 +158,7 @@ Then Тейза coughed a little и pointed to the other side of Lake Norkia.
 
 Small nod.
 
-On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Norlangarth dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Empires, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
+On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Норлангарт dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Empires, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
 
 "The Император's house? What's wrong with it?"
 
@@ -266,7 +266,7 @@ In order to move from the east bank of Lake Norkia to the west bank where the se
 
 The south side of the lake appeared to be wetlands, so the two of them headed north. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
 
-It took them more than ten minutes to reach the northern end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the northern extremum of the Norlangarth Northern Empire, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
+It took them more than ten minutes to reach the northern end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the northern extremum of the Норлангарт Northern Empire, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
 
 When they were at the Академии Искусства Меча, Кирито и Юдзио told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Тейза pointed out that if they would have made a small boat и sailed down the river they could reach Центория without having any hardships —Кирито и his friend were both silent for a while и then said simultaneously "Я could not think of it".
 
@@ -280,7 +280,7 @@ From there to the mansion there was a single road. After they walked for some ti
 
 Moreover, the wine the Император drank was made only from the best grapes from these grape shrubs, so regardless such a vast number of shrubs, vine made on this vineyard did not reach the mouth of the general public because they brew only a small amount.
 
-Hana said that when she was the exclusive cook of the Первосвященник Администратор, the Первосвященник did not care much about the luxury of drinking и eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, Император Norlangarth was secretly proud that he was drinking superior wine than the Первосвященник.
+Hana said that when she was the exclusive cook of the Первосвященник Администратор, the Первосвященник did not care much about the luxury of drinking и eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, Император Норлангарт was secretly proud that he was drinking superior wine than the Первосвященник.
 
 "...... What will happen to this vineyard...?"
 
@@ -323,7 +323,7 @@ She blinked и raised the face to see a beautiful black steel-made gate rising i
 
 After quickly walking the final hundred mels, the two stopped in front of the gate.
 
-In the center of the gate consisting of thin steel bars, there was the huge emblem of the Norlangarth Northern Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Axiom Church, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
+In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Northern Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Axiom Church, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
 
 In addition, the gates were severely blocked with a sturdy chain, и the chain stretched to the left и right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Мира Людей able to try to break the blockade after looking at such a sign.
 
@@ -417,7 +417,7 @@ She lifted the right hand и pointed at the big front door.
 
 "Yup……"
 
-Because there was an emblem of the Norlangarth family on the iron gate at the entrance to the forest и on the door of the manor, there was no doubt that this was the Император's villa.
+Because there was an emblem of the Норлангарт family on the iron gate at the entrance to the forest и on the door of the manor, there was no doubt that this was the Император's villa.
 
 "... Let’s go..."
 
@@ -625,7 +625,7 @@ Another glance at the footpath revealed that the footprints of light had already
 
 Just after a few mels on the dark path the air became freezingly cold. That day was warm manifesting the soon coming of spring, but the air the darkness exhaled seemed to be colored midwinter-white.
 
-*Я have bad feeling*, thought Ронье. The throne in the Norlangarth castle to which they rushed together with Тейза at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls и floor for a long time somehow deprived the warmth.
+*Я have bad feeling*, thought Ронье. The throne in the Норлангарт castle to which they rushed together with Тейза at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls и floor for a long time somehow deprived the warmth.
 
 The two-thirty bell haven’t rung yet, but the darkness was steadily increasing as they proceeded. Both sides of the path were blocked by a hedge with sharp thorns, и more и more branches of old trees overlapped above their heads.
 
@@ -725,7 +725,7 @@ Embracing Цукигаке with the left arm, she raised the newly-created torch
 
 The descending stairs were longer than could be imagined. There was a landing after they descended thirty steps, и then it went for another thirty, where it finally turned into a flat aisle. Since the height of one step was about 20 cen, it could be counted as about 12 mels underground. For Собора, that would be equal to a height of a third floor.
 
-The air was somewhat warmer than outside, but also damp и moldy. In truth, they first thought that there might be a hidden treasure chest of the Император Norlangarth stored in the basement, but if someone keeps it in such a place, the treasure box will lose its Life in a few years и it will decay into trash.
+The air was somewhat warmer than outside, but also damp и moldy. In truth, they first thought that there might be a hidden treasure chest of the Император Норлангарт stored in the basement, but if someone keeps it in such a place, the treasure box will lose its Life in a few years и it will decay into trash.
 
 After about 50 meters, the long underground passageway turned to the right. Finally, they saw a weak light ahead. But it was not a relief. Whatever the light source was, there must be someone who ignited it.
 
@@ -934,7 +934,7 @@ A fierce и violent appearance reminiscent of a bird of prey. Gray mustache и b
 
 Ронье also wanted to say exactly the same.
 
-Norlangarth Northern Empire Sixth Император, Крюгер Norlangarth....
+Норлангарт Northern Empire Sixth Император, Крюгер Норлангарт....
 
 A bursting with flames decoration hanging on the jet-black wall, distant sounds of Меч fight — the memories revived vividly.
 
@@ -1054,7 +1054,7 @@ The moment she heard the words, the abominable memory ripped her mind like a lig
 
 Former elite мечник-стажёр Raios Antinous tried to trap Ронье и Тейза at the time when they were students, и then disgrace them using aristocratic judgment right as shield. This way his father, 3rd-class aristocrat brought him up, и the father of his father, и it can only be imagined how sneaky и unscrupulous acts were happening in their private territories.
 
-Especially, if a person is the Император Norlangarth, standing above all the aristocrats ──
+Especially, if a person is the Император Норлангарт, standing above all the aristocrats ──
 
 "... Didn’t you wonder, girl? Why is there an underpass to the forest in the back yard while there is also a door leading to the mansion?"
 

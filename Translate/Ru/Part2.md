@@ -192,117 +192,119 @@
 
 ![Image](/Translate/Img/p067.jpg)
 
-## Продолжение следует...
+***
 
-<!--***
+Одним этажом ниже "Наблюдательного поста Утренней Звезды", на девяносто четвёртом этаже Собора, располагалась кухня, не столь просторная, как большая кухня на десятом этаже, но удобная и достойно оснащённая.
 
-On the first floor beneath the "Наблюдательный пост Утренней Звезды", on the ninety-fourth floor of the Собора, there was a kitchen, not as wide as the large kitchen on the tenth floor, but convenient и a well-equipped one.
+Как только Асуна открыла двойные двери, Ронье окутал сладкий запах мёда и аромат расплавленного сыра, и её желудок резко сжался.
 
-As soon as Асуна opened the double door, the sweet scent of honey и the fragrant aroma of burned cheese stroke her, и the Ронье’s stomach shrunk tightly.
+Вдоль трёх стен кухни, обладавшей мраморным полом и белым потолком, расположились несколько высоких буфетов, подчёркивающих её яркость разнообразием плотно втиснутых ингредиентов и цветных вазочек и бутылочек. На последней стене была полка с кухонной утварью и большая печь; широкий рабочий стол белого дерева располагался в центре обширного помещения.
 
-The kitchen was built with marble floor и white ceiling, there were many tall cupboards on the walls on three sides, brightening its appearance with the variety of tightly packed ingredients и colorful vases и bottles. On the remaining wall there was a shelf with cooking utensils и a large furnace; a large white wooden workbench was placed in the center of the wide room.
+Когда четверо зашли в кухню, худая фигура за рабочим столом подняла голову.
 
-As four people entered the kitchen, a slender figure behind the workbench lifted the head.
+Это была молодая женщина, облачённая в поварской китель без единого пятнышка и цилиндрический колпак поверх коротких волос. Если точнее, её можно было описать как 'очень молодую'.
 
-It was a young woman wearing a white cook’s coat with no stain on it и a cylindrical hat above the short hair. To be exact, she should be referred to as 'very young'.
+Сидевшая на стуле и точившая кухонный нож девушка поднялась и окинула взглядом Ронье и остальных. Коротко поклонившись Асуне, она сказала:
 
-The woman who was sitting on a chair и grinding a large kitchen knife stood up looking at Ронье и others. Briefly bowed to Асуна, she said:
+"Асуна-сама, я оставила его завёрнутым в печи, чтобы не остыло. Салат и хлеб тоже готовы."
 
-"Асуна-сама, Я left it wrapped in the oven to keep it warm. Salad и bread will be there as well."
+"Спасибо, Хана, прости, что я опоздала."
 
-"Thank you, Hana, Я am sorry to be late."
+Извинившись, Асуна подошла к большой разогретой печи встроенной в дальнюю стену кухни. Это кухонное приспособление, в котором огонь разводили под плотно закрывающимся коробом, сделанном из камня и кирпича, и позволявшим равномерно разогревать содержимое, называлось "тэнпи" на языке Мира Людей, и чтобы как-то отличать его от "тэнпи", означавшего свет Солуса, чаще его называли "обун" на Общеупотребительном Священном Языке.<sup><a href="#Prim2">2</a></sup>
 
-Асуна, after saying the apology, walked up to a large hot oven set on the wall at the back of the kitchen. This cooking utensil, which burns the fire under the tightly sealed box made of stone и bricks и heats the contents equally, was called "**tenpi**" in Мира Людей language, to distinguish it from "**tenpi**" meaning the light of Solus, it was more common to call it an **oven** in the Common Sacred Language.<sup><a href="#Prim2">2</a></sup>
+Конечно, "салат" и "хлеб" тоже были общеупотребительными священными словами, так что на этот раз Тейза не полезла за блокнотом.
 
-Of course, both **salad** и **bread** were common sacred words too, so this time Тейза did not took the notebook out.
+Надев толстые кожаные рукавицы, Асуна открыла дверцу печи и вытянула наружу большую накрытую крышкой ёмкость. От ёмкости исходил аромат сыра.
 
-Асуна, who opened the door of the oven after fitting thick leather gloves, pulled out a large container with lid from inside. The container seemed to emit the smell of cheese.
+Говоря о том, что представляла из себя эта ёмкость, то это был обычный неглубокий горшок, используемый для запекания нескольких ингредиентов, завернутых в тесто, но вот то, что этот горшок использовали для готовки в печи, было весьма необычным. В основном, печь использовалась для выпекания хлеба. С выражением радостного возбуждения на лице, Асуна передвинула эллиптическую ёмкость на рабочий стол и осторожно убрала крышку.
 
-Speaking of what enclosed the cooking, it was a simple shallow pot used to cook various ingredients in a flour dough baked around them, but it was unheard that someone will be cooking by putting such a pot in the oven. In the first place the oven was used for baking bread. With the look of excitement, Асуна moved the elliptical container to the workbench, и carefully removed the lid.
+"Ух ты, чт… что это... такое...?"
 
-"Wow, wha… what is... this ...?"
+Той, кто громко вслух удивилась, была Тейза. Ронье тоже вопросительно наклонила голову.
 
-It was Тейза who said this loudly. Ронье also bent her neck.
+И тогда из горшка показалось что-то, края немного обожжены, белое и тонкое, словно кусок бумаги....
 
-And then it appeared from the container, the edge burnt a little, white и thin, like a piece of paper....
+"Ху-ху, это — ‘запекание в бумаге’."
 
-"Hu-hu, this is a ‘paper wrapped bake’."
+Когда Асуна гордо это провозгласила, Ронье и Тейза, издав вопросительное "Эээ..?", широко открыли глаза.
 
-As Асуна proudly declared this, Ронье и Тейза opened their eyes wide with "Eeeh…".
+"Что, бумага, прям бумага-бумага? Белая конопляная бумага......?"
 
-"What, paper, real paper? White hemp paper......?"
+Вице-Премьер-Мечник с улыбкой кивнула на этот недоверчивый вопрос:
 
-Вице-Премьер-Мечник nodded with a smile to this mistrustful question.
+"Я достала немного бумаги, обожжённой во время процесса сушки в мануфактуре Собора и испытала её."
 
-"Я got some paper that was burned during the drying process from the paper plants of Собора и tried it."
+"Но если её запекать в печи, бумага ведь быстро сгорит, разве нет?"
 
-"But, if you bake it in the oven, the paper will burn quickly, will it not?"
+"Сгорела бы, будь это обычная бумага. Я не пробовала с пергаментом, уж слишком он дорог, чтобы в готовке использовать. Но вот белая конопляная бумага, получившая высокую Долговечность, как и ожидалось, достойно выполнила свои обязанности."
 
-"It would burn if it is ordinary paper. Я have not tried parchment, it’s too precious to be used in cooking. But white hemp paper, which as expected gained high durability, has properly fulfilled its duty."
+Сказав так, Асуна кончиками пальцев вытащила свёрток из белой бумаги. Он издавал сухой хрустящий звук, но не рассыпался. Несмотря на воздействие высокой температуры раскалённой печи, похоже, Жизнь бумаги не снизилась.
 
-As she said so, Асуна pulled the folded white hemp paper with her fingertips. It made a dry rustling sound but did not collapse. Despite being exposed to the high temperature of the heated oven, paper seemed to keep the Life intact.
+Снимая кожаные рукавицы, Асуна продолжала:
 
-While removing the leather gloves, Асуна continued:
+"Кухня Мира Людей...... да и в целом Подмирья довольно проста, но она подчиняется строгим законам. Печёшь ли ты или варишь, ‘пища’ не становится ‘блюдом’, если её не разогревать определённое время или больше. Если греть слишком мало, она обретает статус...... она становится ‘недожаренной’ или ‘с кровью’ и если такое съесть, живот разболится, и наоборот, если готовить слишком долго, она становится ‘сгоревшей’ и будет жёсткой и горькой."
 
-"The cuisine of Мира Людей...... of Underworld is simple, but it is ruled by strict laws. Whether you bake it or simmer, ‘food’ does not become ‘dish’ unless it is heated for a certain time or more. If there is not enough heating it gains the **status**...... it becomes ‘half-baked’ or ‘rare’ и the stomach will hurt if you eat it, и on the contrary if you heat too much, it becomes ‘burned’ и it will be hard и bitter."
+"Д-да......."
 
-"Y-yes......."
+Это было самое первое, что девочки узнавали от своих матерей, когда те учили их готовить. *Слишком скоро — недожаришь, а забудешь — подгорит, ставь огонь такой как надо и за временем следи* ─ они слушали слова Асуны, автоматически вспоминая пословицу из прошлого.
 
-That was the first thing any girl learns has from her mother when she is taught cooking. *Rather than half-baked or burned, proper fire should be turned* ─ they listened to Асуна's words automatically remembering the saying from the past.
+"И единственная проблема в том, что блюдо наиболее вкусно в тот момент, когда оно переходит от ‘разогреваемого’ в ‘приготовленное’, так? Если продолжать разогревать, то чем дальше, тем больше влаги теряется, блюдо становится жёстче, а из тушёных блюд выветривается и вкус ингредиентов. Что касается тушения, то можно, конечно, насытить вкус бульона, долго нагревая на слабом огне, продолжая добавлять ингредиенты, но на это уходит слишком много времени и сил."
 
-"The only problem is that the dish becomes the most delicious at the moment when it changes from ‘heating’ to ‘cooked’, right? It the heating continues, the more it goes on, the more it moisture gets lost, the dish gets harder, и the taste of ingredients dissolves out of stewed dishes as well. In the case of stewing, there is also a way to saturate the taste of the soup by continuing heating with a low heat while adding ingredients, but it takes too much time и trouble."
+"Д-да......."
 
-"Y-yes......."
+Ронье снова кивнула, в то время как удивительный вкус ‘Варёного по-Обсидийски’, которое она попробовала в столице Обсидии, практически заполнил её рот, так что она быстро сказала:
 
-As Ронье nodded again, the unique taste of the mysterious ‘Obsidia boil’ she ate in the capital city of Obsidia was about to revive in her mouth, so move quickly said:
+"...... но, как это связано с бумагой, используемой в готовке?"
 
-"...... but, how is this related to paper used in cooking?"
+"Ну, сперва я пыталась определить момент, когда блюдо начнёт подгорать, но Хана остановила меня..."
 
-"Well, at first, Я tried to figure out the moment when the ingredients burned up, but Hana stopped me..."
+Асуна перевела взгляд, и девушка в белом колпаке произнесла, не меняя выражения лица:
 
-When Асуна shifted her gaze, a white hat woman said without changing her expression:
+"Это ошибка, которую постоянно совершают и новички, и эксперты. Сотни лет даже умелым шеф-поварам не удавалось определить идеальный момент. Когда-то давно, человека, обладавшего выдающимся навыком определения такого момента, шефа, которого называли гением, рождающимся раз в сотню лет, пригласили в имперский дворец готовить для Императора Норлангарт. И закуска, и суп были шедевральны, но вот основное блюдо, большой стейк из краснорогой коровы, был снят с огня всего за мгновение раньше нужного. У императора, съевшего его, разболелся живот, и, пользуясь правом аристократического суда, он отрубил повару руки."
 
-"It is a trap that beginners и experts both fall every now и then. It wasn’t possible even for skilled chefs to figure out the perfect moment in hundreds of years. A long time ago, a person with an outstanding skill of determining, a chef called a genius of a kind being born once in one hundred years was invited to the Imperial Palace и cooked for the Император Norlangarth. Both the appetizer и the soup were masterpieces but the main dish, a big red-horned cow steak was taken from the fire only a moment earlier than needed. The Император who ate it got stomachache и exercised aristocratic judgement privilege to cut off the cook’s arms."
+Ронье и Тейза стояли, не зная что и сказать, а Асуна прогнала с лица тень печали и сказала:
 
-While Ронье и Тейза stood speechless, Асуна shook away a shadow of sadness и said.
+"... так вот, я решила бросить попытки определить момент готовности и позволить готовке идти как полагается. Вместо этого, я спросила у Ханы, есть ли способ сохранить влагу даже в передержанных блюдах, и она сказала, что если положить в продукты в ёмкость с крышкой и запекать в печи, всё пойдёт немного по-другому."
 
-"... So, Я decided to give up looking for the moment of baking и let it pass through as it is. But, instead Я asked Hana if there is a way to retain the moisture even if one cooks it over time, и she told me that if you put it in a bowl with a lid и bake it in the oven, it will be somewhat different."
+"Хееех...... Я, конечно, много блюд повидала, но о таком рецепте и не слыхала вовсе. Вы точно эксклюзивный повар Первосвященника."
 
-"Heeeh...... Я also learned a variety of dishes, but Я have never thought of such a recipe. You are truly an exclusive chef of the Первосвященник."
+Пока Тейза восхищалась, девушка по имени Хана пожала плечами:
 
-As Тейза showed her admiration, a woman named Hana shrugged her shoulders.
+"Это теперь в прошлом. ── В общем, нужна высокоприоритетная утварь, что не сломается при нагревании в печи, но даже в этом Соборе готовка в печи не идеальна... вместо свободной циркуляции, вода собирается в горшке, и блюдо становится недотушенным, а вкус ингредиентов разбавляется."
 
-"It is in the past already. ── Anyway, you need hardware with high priority that cannot be broken even if heated in an oven, и even in this Собора oven baking is not perfect... instead of getting out freely, the water accumulates in the bowl и the dish gets half-braised и the taste of ingredients is diluted."
+"Так что, перво-наперво я попытала счастья с традиционным оборачиванием, я обернула ингредиенты в тесто, положила в горшок и запекла. Но в результате, вкус и влага пропали из ингредиентов...... Если есть с тем тестом, в котором оно пеклось, то вкус ещё был куда ни шло, но так или иначе, а сами по себе ингредиенты вкус потеряли. Так что, в попытках сохранить влагу в перегретом блюде, я пыталась найти что-то, что будет способно сопротивляться жару, и в конце концов остановилась на конопляной бумаге."
 
-"So, at first, Я tried traditional wrap, Я wrapped the ingredients in dough, then put it in the bowl и baked it. But after all, the taste и moisture were gone out of the ingredient...... It was still OK if you eat it with the baked dough, but after all, the taste of the ingredient alone was bad. So, to preserve the moisture of the wrapped food from being lost, Я was considering whether there is something that can resist heat, и eventually Я came up with this white paper."
+"Хееех....... Так вот, значит, что вы имели в виду под ‘запеканием в бумаге’?"
 
-"Heeeh....... So, that’s what you mean by a ‘paper wrapped bake’?"
+— пробормотала Ронье, уставившись на содержимое горшка.
 
-Ронье muttered that while staring at the contents of the vessel.
+"Так ты сейчас будешь разворачивать, или...?"
 
-"So, is it now that you are going to unwrap it...?"
+Это Премьер-Мечник, молчавший до этого момента, спросил тихим несчастным голосом. Наверное, он боролся с голодом, но уже был на пределе.
 
-It was Премьер-Мечник who had been silent till now who said that with a faint miserable voice. Apparently, he endured the hunger but the limit seems to have come.
+Асуна хихикнула и ухватила тонкими пальцами слегка обожжённый уголок бумаги.
 
-Асуна giggled и picked the slightly scorched edge of paper with slender fingers.
+"Если честно, сегодня это первая попытка. Так что если это будет провал, на обед остаётся только салат с хлебом, вы уж простите."
 
-"Actually, today is the first time to try. So if it fails you can only have salad и bread for lunch, sorry for that."
+"Э-ээээ?!"
 
-"E-eeeh?!"
+Этот возглас пришёл не только от Кирито, но и от Тейзы. Конечно, и Ронье чувствовала то же самое. Наблюдая за руками Асунаы, она молилась богине земли Террарии, которая также была покровительницей всей пищи.
 
-That exclamation came not only from Кирито but also Тейза. Of course, Ронье felt the same as well. While watching Асуна's hand, she prayed to the goddess of earth Terraria who also controlled the food.
+Бумага по очереди разворачивалась с каждой из сторон, и как только она открылась по бокам, Ронье почувствовала невероятно насыщенный сочный аромат, заполнивший всё вокруг.
 
-The paper unfolded from all sides one by one, и as soon as it was opened on the left и right, Ронье felt an incredibly saturated mellow aroma spreading all around.
+Основными ингредиентами были филе белой рыбы, грибы, овощи и множество трав, всё это покрывала шуба из расплавленного сыра. С первого взгляда было понятно, что нагрева было достаточно, но в отличие от готовки в горшке, содержимое не было обожжено и не съёжилось. Похоже, большинство влаги осталось на месте.
 
-The main ingredients were white fish fillets, mushrooms, vegetables и plenty of herbs, with cheese melting on top. It is understood at first sight that the heating was proper, but unlike baking in a pot, it did not burn or shrink at all. It seemed that most of the moisture was preserved.
+"Выглядит неплохо, что скажете?"
 
-"Looks good, is it not?"
+Асуна кивнула в ответ на голос Ханы:
 
-Асуна also nodded to Hana's voice.
-
-"Well, let's enjoy it while it's hot. Кирито-kun, please help me to get five plates."
+"Ну-с, налетайте, пока горячее. Кирито-кун, помоги мне принести пять тарелок."
 
 ***
+
+## Продолжение следует
+
+<!--
 
 In the end, five people including Hana persuaded by Асуна had lunch consisting of white paper wrapped fish, bread и salad at the table at the 95th floor.
 
@@ -418,7 +420,7 @@ As Ронье said so, Кирито sighed folding arms on his chest.
 
 "Well... it depends on the strength of the thought....... At the time of the "Rebellion of Four Empires", the four Императорs rebelled against the Axiom Church by breaking the first Article of Индекс Табу which they should have been bound by. The belief that the Объединённого Совета Мира Людей overtook the Axiom Church justified the right to regain the Church from us for the Первосвященник to the degree when it exceeded the control of the Индекс Табу. If there is something that generates a thought as strong, it may be possible to break the Law of the Strongest without fighting directly with Isukan."
 
-To that words, Ронье’s back lightly trembled, as she recalled Император Крюгер Norlangarth VI’s self-esteem almost physically seeping into the space surrounding him. Next to her, Тейза also pulled her neck in before speaking in a quiet voice.
+To that words, Ронье’s back lightly trembled, as she recalled Император Крюгер Норлангарт VI’s self-esteem almost physically seeping into the space surrounding him. Next to her, Тейза also pulled her neck in before speaking in a quiet voice.
 
 "...... Certainly, the Император seemed to never consider the Union Council at all. But that was because the Император has dominated the empire for hundreds of years...... is it possible for a human without such a background to rebel against his superiors only by his beliefs?"
 
@@ -463,7 +465,7 @@ As Кирито said “Umm” submerging in his thoughts, Тейза asked Ас
 ## Footnotes:
 
 1. <a name="Prim1"></a>В оригинале, речь про ループ, loop, петля. Асуна приводит альтернативные значения японского я rupu, не имеющие отношения как к английскому, так и, в ещё большей степени, к переводу на русский.
-<!--2. <a name="Prim2"></a>Welcome to the Japanese class. So, the native name for an oven would be 天火 which is pronounced “tenpi”. The “sunlight” would be 天日 which is also pronounced “tenpi”. But in Japanese it’s common to use “imported” word “oven”: オーブン, “o-bun”, which is used here и below. As for the next passage, it’s also 2 words of a similar kind.)
-3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
+2. <a name="Prim2"></a>Приветствую на уроке японского. Итак, обычно печь называется 天火, что произносится как “тэнпи”. “Солнечный свет” будет 天日, что также произносится “тэнпи”. Но, поскольку для японского привычно использовать заимствованные слова, то здесь и далее в качестве "печи" в оригинале используется английское “oven”: オーブン, произносимое на японском “o-bun”. Что касается следующего абзаца, то это ещё два слова, аналогично скопипастеных из английского.
+<!--3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
 4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ронье”, but that’s not true as Тейза only has heard about the kidnapping an hour ago or so, и we’ve been following them almost without interruptions since then.
 5. <a name="Prim5"></a>Not sure if it matters, Ронье says the name here in Sacred Language.-->

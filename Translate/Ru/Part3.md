@@ -152,7 +152,7 @@ And Кирито began energetically walking ahead, followed by girls along with
 
 There was an informal nickname given to each of the four of timeless walls dividing the Мира Людей into four parts.
 
-The northeast wall separating the Norlangarth North Empire и the Eastabarieth East Empire was the "Spring Wall". The southeast wall separating the East Empire и Southacroith South Empire was the "Summer Wall". The southwest wall separating the Southern Empire и the Wesdarath West Empire was the "Autumn Wall". и the northwest wall separating the Empire и the North Empire was the "Winter Wall".
+The northeast wall separating the Норлангарт North Empire и the Eastabarieth East Empire was the "Spring Wall". The southeast wall separating the East Empire и Southacroith South Empire was the "Summer Wall". The southwest wall separating the Southern Empire и the Wesdarath West Empire was the "Autumn Wall". и the northwest wall separating the Empire и the North Empire was the "Winter Wall".
 
 It seemed that even the oldest knights Фанатио и Дюсольберт did not know the reason why the four walls were called with names of seasons. Until the Объединённого Совета Мира Людей was proclaimed, the timeless wall was an absolutely inviolable border, the Центория citizens from the east, west, north и south did not have freedom of exchange in principle, и it was not possible to pass through the gate in each wall with the exception for merchants or wealthy tourists given passes of exchange.
 

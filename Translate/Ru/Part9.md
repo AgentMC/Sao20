@@ -396,13 +396,13 @@ There was no single hair on the man's head. The elongated face was also blue-and
 
 The all skin-and-bones man produced a thin smile to Ронье's question:
 
-"Oh, certainly. Would you think that Император Norlangarth house's great chamberlain, being me, can allow for something as bad as forgetting to close the door?"
+"Oh, certainly. Would you think that Император Норлангарт house's great chamberlain, being me, can allow for something as bad as forgetting to close the door?"
 
 "Great chamberlain......!?<sup><a href="#Prim3">3</a></sup>"
 
 As Ронье opened both eyes wide, Зеппос deepened his little smile.
 
-Since she has never met a person who is Император Norlangarth house's great chamberlain before or after the battle for the Imperial Palace, it was no wonder she didn’t recognize his face. But Ронье knew what happened to him. She surely heard what Мира Людей Defense Army General Selrut had reported at the meeting after the chaos was suppressed.
+Since she has never met a person who is Император Норлангарт house's great chamberlain before or after the battle for the Imperial Palace, it was no wonder she didn’t recognize his face. But Ронье knew what happened to him. She surely heard what Мира Людей Defense Army General Selrut had reported at the meeting after the chaos was suppressed.
 
 "The Император house's great chamberlain... should be dead. He refused to break up with the leaders of great aristocrats и was eliminated by the Мира Людей army, that’s what Я heard. "
 
@@ -410,7 +410,7 @@ Since she has never met a person who is Император Norlangarth house's g
 
 Crossing his hands holding knives over his chest while saying so, Зеппос quickly glanced at the black robe man standing in the center of the hall.
 
-Specifically, at the supposedly dead Император Крюгер Norlangarth who continued to chant the mysterious incantation. Moreover, unlike Зеппос, Ронье herself took the Император's life. Her palms still remembered the feeling when the Меч she grasped deeply pierced the right side of the Император's chest.
+Specifically, at the supposedly dead Император Крюгер Норлангарт who continued to chant the mysterious incantation. Moreover, unlike Зеппос, Ронье herself took the Император's life. Her palms still remembered the feeling when the Меч she grasped deeply pierced the right side of the Император's chest.
 
 *If they are not impersonators, it means that according to the words of Зеппос they have recovered from death. However, the resurrection of dead is something impossible neither for Кирито who has the greatest mind power of Мира Людей, nor for Асуна who possesses the power of the goddess Stacia, nor for Ayuha Furia, the Sacred Art department head — nor for the half-god who continued to rule Мира Людей for over 300 years, Первосвященник Администратор. Я cannot believe that these two were truly resurrected. Something evil...... some unimaginably wicked trick should be used for that*, Ронье thought.
 
@@ -534,7 +534,7 @@ When Ронье shouted that, Зеппос, with its belly и chest penetrated b
 
 — this time Тейза exclaimed in surprise.
 
-Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Norlangarth Northern Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
+Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Northern Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
 
 *But Зеппос said that the Императорs of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
 
@@ -668,7 +668,7 @@ At the very least, in order to delay the circulation of the poison, Ронье g
 
 The sharp metal sound **Kiin**! overlapped the dull sound something made of clay could produce. Зеппос’ head, which was split in two from the crown to the chin, apparently, had completely lost the Life this time, lost its shape и smoothly melted. The lower body that was kneeling nearby also turned into black mucus, и after it spread around the floor it quickly started to evaporate.
 
-There was a strange thing falling in the place where Зеппос’ head disappeared. Silvery ring<sup><a href="#Prim4">4</a></sup> with petals of lily и feathers of a bird of prey ─ an emblem given to those serving Император Norlangarth house, petals и feathers representing the top-ranking ones.
+There was a strange thing falling in the place where Зеппос’ head disappeared. Silvery ring<sup><a href="#Prim4">4</a></sup> with petals of lily и feathers of a bird of prey ─ an emblem given to those serving Император Норлангарт house, petals и feathers representing the top-ranking ones.
 
 The ring was cut in two pieces. The Тейза’s Меч has broken it. A sort of purple smoke was rising from the cut, и soon it disappeared with a sound resembling a faint scream.
 
@@ -873,7 +873,7 @@ As he said so, satisfied Крюгер stroked Minion's powerful arm with his lef
 
 *Katashiro, that badge that came out from the head of Зеппос. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
 The Император Hozaica, whose arms were cut off by ambassador Шейта и Ронье, threw himself out of the window on the top floor of Obsidia Castle. The corpse was not found not because he flew away or ran, the katashiro was destroyed when he fell, и the clay body melted.  
-But if we believe in Крюгер's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Norlangarth empire и gave Крюгер the memory и knowledge of Hozaica ──  
+But if we believe in Крюгер's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Норлангарт empire и gave Крюгер the memory и knowledge of Hozaica ──  
 If the guess so far is correct.  
 That red gemstone is the heart of a gigantic conspiracy intertwining Мира Людей и Тёмной Территории.*
 
@@ -1229,7 +1229,7 @@ Some of the light elements wrapped around Ронье и Тейза и healed the
 
 At the same time as the three fusion-type minions completely disappeared и Ронье's и Тейза’s injuries was healed, the sky also regained the sunset color.
 
-Most of the huge number of light elements played their role и extinguished, but the last few hundreds were floating slightly above the floor forming ten rings. It was the Император Крюгер Norlangarth, of course, trapped in this slender cage created with those rings placed one above another. The rings sizes were just enough not touch the robe's cloth, и if he had moved just a little, the light elements would penetrate the clay body и decompose it in the same way as minions’ ones.
+Most of the huge number of light elements played their role и extinguished, but the last few hundreds were floating slightly above the floor forming ten rings. It was the Император Крюгер Норлангарт, of course, trapped in this slender cage created with those rings placed one above another. The rings sizes were just enough not touch the robe's cloth, и if he had moved just a little, the light elements would penetrate the clay body и decompose it in the same way as minions’ ones.
 
 Under the sunset which got a little more reddish than before, the face of the man was completely shaded и the expression in the back of the hood could not be seen. However, it was unlikely that a person as arrogant as Император would have chosen to quietly become a prisoner.
 
@@ -1257,7 +1257,7 @@ When two people stepped on the floor three meters from in the cage, black robe s
 
  — sticky stifled laugh reached ears. A point of a Меч quickly aimed at him, but Император did not stop laughing.
 
-"....... Крюгер Norlangarth. Your plans are already over, so please be quiet this time."
+"....... Крюгер Норлангарт. Your plans are already over, so please be quiet this time."
 
 She spoke as severe as possible, и laughter finally stopped, but in spite of this, words came after, arrogant as usual:
 
