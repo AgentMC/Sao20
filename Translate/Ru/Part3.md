@@ -50,7 +50,7 @@ Away from the front square neatly decorated with pure white tiles, cutting throu
 
 Proceeding ahead, one could see as the spacious front yard is changed to orchards, with lined-up trees. Although most of the trees have dropped leaves in this season и the middle of winter is not rich in fruit, still there were many seasonal black apples и ice figs, spreading around faint sweet scent.
 
-They just had a good lunch, but still unusual transparent light blue fig fruits sparkled a desire to eat at least one... и as they passed through the orchard withstanding the temptation, a huge wall became visible up ahead. This marble wall divided the grounds of the Axiom Church Центрального Собора from the outside world.
+They just had a good lunch, but still unusual transparent light blue fig fruits sparkled a desire to eat at least one... и as they passed through the orchard withstanding the temptation, a huge wall became visible up ahead. This marble wall divided the grounds of the Церковь Аксиом Центрального Собора from the outside world.
 
 There were already figures of Кирито и Асуна near the corner where the south wall met the west wall.
 
@@ -156,7 +156,7 @@ The northeast wall separating the Норлангарт North Empire и the Easta
 
 It seemed that even the oldest knights Фанатио и Дюсольберт did not know the reason why the four walls were called with names of seasons. Until the Объединённого Совета Мира Людей was proclaimed, the timeless wall was an absolutely inviolable border, the Центория citizens from the east, west, north и south did not have freedom of exchange in principle, и it was not possible to pass through the gate in each wall with the exception for merchants or wealthy tourists given passes of exchange.
 
-Although the passage requirements of the gates have been eased considerably by that time, complete free passage had yet to be allowed. That was because the aftermath of the Rebellion of Four Empires was not quite completed. There was a possibility that the remnants of the Konoe Knight Order who raised the weapons at the Axiom Church might be hiding somewhere in the Мира Людей и still obey the order of the Император. They may also be involved in killing the old Yazen и kidnapping Lisetta.
+Although the passage requirements of the gates have been eased considerably by that time, complete free passage had yet to be allowed. That was because the aftermath of the Rebellion of Four Empires was not quite completed. There was a possibility that the remnants of the Konoe Knight Order who raised the weapons at the Церковь Аксиом might be hiding somewhere in the Мира Людей и still obey the order of the Император. They may also be involved in killing the old Yazen и kidnapping Lisetta.
 
 While thinking this way, Ронье walked on the "Autumn Wall".
 

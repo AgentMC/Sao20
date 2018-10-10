@@ -368,7 +368,7 @@ The voice of Tiese sounding next to her pulled Ronye's consciousness back from a
 
 At the same time as Asuna tilted her head, Ronye rewound her memory.
 
-Indeed, it seemed that Asuna had asked Kirito something about Taboo Index after the talk of whether to reveal the truth of "Synthesis ritual" to the upper Integrity Knights and others. Afterwards, Kirito talked about the mental loop of choosing between two taboos that Raios Antinous caught, and Tiese asked something about the meaning of the sacred word loop, from which the topic diverted to the increase of production of white papers and Tiese’s notebook. Which means ──.
+Indeed, it seemed that Asuna had asked Kirito something about Taboo Index after the talk of whether to reveal the truth of "Synthesis ritual" to the upper Integrity Knights. Afterwards, Kirito talked about the mental loop of choosing between two taboos that Raios Antinous caught, and Tiese asked something about the meaning of the sacred word loop, from which the topic diverted to the increase of production of white papers and Tiese’s notebook. Which means ──.
 
 ".... hey Tiese, Asuna-sama's topic was changed in the middle, it's not your fault!"
 
@@ -418,7 +418,7 @@ As Ronye said so, Kirito sighed folding arms on his chest.
 
 To that words, Ronye’s back lightly trembled, as she recalled emperor Krueger Norlangarth VI’s self-esteem almost physically seeping into the space surrounding him. Next to her, Tiese also pulled her neck in before speaking in a quiet voice.
 
-"...... Certainly, the emperor seemed to never consider the Union Council at all. But that was because the emperor has dominated the empire for hundreds of years...... is it possible for a human without such a background to rebel against his superiors only by his beliefs?"
+"...... Certainly, the emperor seemed to never consider the Union Council at all. But that was because the emperors have dominated the empire for hundreds of years...... is it possible for a human without such a background to rebel against his superiors only by his beliefs?"
 
 The answer to Tiese came from Asuna, whom she interrupted already for the second time.
 

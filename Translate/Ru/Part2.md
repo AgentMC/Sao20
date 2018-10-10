@@ -18,7 +18,7 @@
 
 По той причине, что Кирито со своим напарником направлялись в Центорию чтобы спасти из Церкви Аксиом золотого Рыцаря Целостности Алису Синтезис Сёти, рождённую в деревне Рулид и уже успевшую стать легендой.
 
-В текущей ситуации, когда много Рыцарей Целостности всё ещё верили росказням Первосвященника Администратор о том, что Рыцарь Целостности — это священный посланник призванный из мира богов, информация о "месте рождения Рыцаря Целостности" должна была храниться в секрете. К тому же, это ведь именно Дюсольберт Синтезис Севен в один из долгих лет своей службы, которая теперь включала работу в Объединённом Совете Мира Людей, забрал маленькую Алису из Рулида когда она нарушила Индекс Табу, но воспоминаний об этом у него не осталось. Сам Дюсольберт до определённых пределов осознавал правду о "Ритуале Синтеза", но беспокоясь о молодых рыцарях, он сознательно не касался этой темы.
+В текущей ситуации, когда много Рыцарей Целостности всё ещё верили росказням Первосвященника Администратор о том, что Рыцарь Целостности — это священный посланник призванный из мира богов, информация о "месте рождения Рыцаря Целостности" должна была храниться в секрете. К тому же, это ведь именно Дюсольберт Синтезис Севен в один из долгих лет своей службы, которая теперь включала работу в Объединённом Совете Мира Людей, забрал маленькую Алису из Рулида когда она нарушила Индекс Табу, но воспоминаний об этом у него не осталось. Сам Дюсольберт до определённых пределов осознавал правду о "Синтезис Ричуал", но беспокоясь о молодых рыцарях, он сознательно не касался этой темы.
 
 Хотя Кирито и пояснил, что причина его удивления именем Селки Шуберг на утреннем совещании была в том, что "Я помню, она помогала мне по дороге", прозвучало это не сильно убедительно, и Фанатио с остальными не выглядели так, как будто они на это купились.
 
@@ -44,7 +44,7 @@
 
 "П-погоди-ка, Тейза......."
 
-Ронье попыталась спешно прервать свою подругу. "Ритуал Синтеза" нынешних Рыцарей Целостности был величайшей тайной Объединённого Совета Мира Людей, так что её не казалось что подобное прозвучит адекватно из уст ученика рыцаря.
+Ронье попыталась спешно прервать свою подругу. "Синтезис Ричуал" нынешних Рыцарей Целостности был величайшей тайной Объединённого Совета Мира Людей, так что её не казалось что подобное прозвучит адекватно из уст ученика рыцаря.
 
 Но Кирито махнул рукой, останавливая Ронье, улыбнулся и снова взглянул на Тейзу.
 
@@ -66,7 +66,7 @@
 
 *Спасибо большое*, промолчав эти слова, она просто кивнула, и тогда те двое с улыбками вернули кивок и уселись обратно. Глубоко вдохнув, Ронье снова спросила:
 
-"....... Есть ли какая-то связь между последними моментами элитного мечника-стажёра Антиноса и Ритуалом Синтеза...?"
+"....... Есть ли какая-то связь между последними моментами элитного мечника-стажёра Антиноса и Синтезис Ричуал...?"
 
 Кирито тут же замотал головой.
 
@@ -88,7 +88,7 @@
 
 Ронье, ежедневно наблюдавшую силу и благородство Рыцарей Целостности каждый день, ввергли в полное совершенное недоумение опасения Кирито.
 
-Конечно, тот факт, что всё про "Ритуал Синтеза" — это враньё, тот факт, что Первосвященник Администратор обманывала Рыцарей Целостности, был бы для них страшным ударом.
+Конечно, тот факт, что всё про "Синтезис Ричуал" — это враньё, тот факт, что Первосвященник Администратор обманывала Рыцарей Целостности, был бы для них страшным ударом.
 
 Но рыцари, бесстрашные, не зависящие ни от кого кроме самих себя, они смогут это пережить. Они не такие, как Райос Антинос, они не дадут своим душам разрушиться.
 
@@ -302,170 +302,166 @@
 
 ***
 
-## Продолжение следует
+В итоге, все пятеро, включая Хану, которую уговорила Асуна, пообедали рыбой, запечённой в белой бумаге, хлебом и салатом за столом на 95-м этаже.
 
-<!--
+Вспомнив свой опыт из прошлого, Кирито с его навыками сервировки<sup><a href="#Prim3">3</a></sup> тоже помог, и стол был накрыт всего за несколько минут. Пять человек подняли стаканы, наполненные тёплой водой Сирал, и взяли в руки ножи и вилки.
 
-In the end, five people including Hana persuaded by Асуна had lunch consisting of white paper wrapped fish, bread и salad at the table at the 95th floor.
+Лежащая на блюде рыба источала приятный аромат, пробуждавший аппетит, но Ронье снова аккуратно принюхалась. Впрочем, аромат овощей, грибов и расплавленного сыра был всё так же совершенен, в нём совсем не чувствовалось привкуса сгоревшей бумаги.
 
-After recollecting his experience of the past era, Кирито also helped with his serving skills и the dining table was set-up in only a few minutes. Five people raised cups with warm shiral water<sup><a href="#Prim3">3</a></sup>, и at the same time picked up knives и forks.
+Рыба светилась эластичностью свежего филе, но стоило дотронуться до неё ножом — и она мгновенно разрезалась. А достигнув рта, кусочек поражал мягкостью продукта. Она была очень сочной, с трудом верилось, что нагрев был доведён до конца.
 
-The fish placed on the dish was still steaming up stimulating a lot of appetite, yet Ронье carefully sniffed the scent for the second time. However, vegetables, mushrooms, и molten cheese fragrance became completely unaffected by a burning white pages smell, which was not present at all.
+"Уф...... так сильно отличается от жарки на открытом огне! Тааак вкусно!"
 
-The fish emanated a fresh fillet elasticity, but it was easily cut through just by touching it with the knife. When brought to a mouth, it amazed with the gentleness of the product. There was plenty of juice, it was hard to believe that heating has been taken to the finish.
+Ронье кивнула, соглашаясь с впечатлением Тейзы. Асуна попробовала, и будто бы выглядя довольной, тоже кивнула, но тут же немного наклонила голову.
 
-"Wow...... It's quite different from direct flame-grilling! It's sooo tasty!"
+"Да, как и планировалось, много влаги удалось сохранить... но в итоге, практически нет аромата самого огня......"
 
-Ронье agreed with Тейза's impression, so she also nodded. Асуна tasted carefully и looked like she was satisfied и nodded, but immediately tilted her neck a little.
+"Что если убрать с горшка крышку и саму конопляную бумагу незадолго до готовности, и затем немного поджарить термальными элементами?"
 
-"Yes, Я managed not to miss a lot of moisture as planned... but after all, there is almost no fragrance of direct fire left......"
+Когда Хана предложила это, Асуна повернулась к ней:
 
-"How about removing the lid of the bowl и the white hemp paper close to the finish, и then roast it a little with thermal elements?"
+"Хорошо, немного поджарить поверхность будет достаточно для аромата. В следующий раз, давай остановим нагрев на 20 секунд и попробуем это."
 
-As Hana suggested so, Асуна turned her face to her.
+Пока двое поваров обменивались мнениями, Кирито оставался безмолвным ── он был полностью поглощён блюдом и продолжал двигать вилкой. Ронье беспокоилась, что он так ничего и не скажет до самого конца, и неосознанно прошептала справа от Кирито.
 
-"All right, it's going to be fairly fragrant by just burning the surface a little. Next time, let's stop heating 20 seconds earlier и try it."
+"Эм, сенпай, что вы думаете про вкус......"
 
-While the two cooks were exchanging opinions, Кирито remained silent ── he was completely absorbed by the dish и kept moving the fork. Ронье worried that he would not say anything till the very end, и involuntary whispered to the right Кирито.
+"……Ммм?"
 
-"Ehm, Сенпай, what impression of taste do you......"
+В тот момент Премьер-Мечник как раз набивал рот рыбой, овощами и грибами, так что подевав немного он смог выдавить только:
 
-"……Hmm?"
+"~куфно!"
 
-That time Премьер-Мечник was stuffing his mouth with fish, vegetables и mushrooms, so after munching for some time, he pushed out a word:
+Асуна безнадёжно тряхнула головой:
 
-"~pasthy!"
+"Я, в общем-то, не надеюсь, что Кирито-кун одарит нас помимо этого комментарием уровня эксперта-гурмана...... но, что-то говорит мне, что ты можешь быть более конкретным."
 
-Асуна helplessly shook her head:
+"Ну… т-тогда... Я бы съел даже обёртку!"
 
-"Except for that, Я do not really expect Кирито-kun to share a comment of a gastronomic critic level...... but something tells me you can be a little more specific."
+Те трое, что были с ним хорошо знакомы, одновременно глубоко вздохнули, а Хана попыталась сохранить выражение спокойствия и отстранённости, но от Ронье не ускользнуло, что она вздрогнула.
 
-"Well… th-then... Я want to eat even the wrapping paper!"
+Счастливый обед закончился за 30 минут, Хана забрала посуду — задача, которой она упорно отстаивала право заниматься самой — и четверо, оставшиеся на девяносто-пятом этаже, какое-то время молчали, чувствуя одинаковое удовлетворение.
 
-Three people who knew him well sighed at the same time, Hana tried to keep abstract и expressionless, but Ронье did not miss that she winced.
+Кирито и Асуна, люди из Реального Мира, привнесли бессчётное множество больших и маленьких изменений в Подмирье. Определённо, величайшей переменой стало реформирование аристократического уклада, но Ронье гораздо важнее были изменения, которые они могли почувствовать на себе в обычной жизни, такие, как разработка белой конопляной бумаги и её применение в качестве обёртки при запекании.
 
-Happy lunch ended in about 30 minutes, и Hana cleaned up dishes, a task she had toughly insisted on leaving to her, и four people who remained on the ninety-fifth-floor shared feeling of satisfaction staying silent for a while.
+Эти двое в то время работали над улучшением системы охраны здоровья в меньших городах и деревнях, поскольку больницы существовали только в крупных городах. На тот момент, в отдалённых деревнях и подобных им поселениях лечением травм и болезней занимались только **систэз** и **бразэс**, и во многих случаях лечение не удавалось провести вовремя, например, когда одновременно появлялось много травмированных людей. К тому же, продвинутые техники лечения на основе световых элементов были значительно более сложными в сравнении с искусством на основе умбра-элементов и ему подобных, и в некоторых случаях неопытные клерики не могли справиться с травмами угрожающими жизни, и даже просто тяжёлыми ранениям.
 
-Кирито и Асуна, real-world humans, made countless big и small changes to Underworld. The biggest one would definitely be an aristocratic system reform, but for Ронье it was much more about the changes that she could experience directly in everyday life, such as the development of white hemp paper и its application in paper wrapped baking.
+Число жителей Мира Людей, потерявших жизни в эпидемиях и при несчастных случаях, можно было бы значительно сократить, если бы у них получилось построить во всех городах и деревнях больницы с работающими там постоянно клериками, специализирующимися на лечебных техниках. К тому же, они с Кирито хотели разработать наборы народных лечебных средств, включающих лекарства, повязки, припарки и т.п. вместо того, чтобы полагаться исключительно на Священное Искусство в тяжёлых случаях.
 
-The two of them were at that time trying to improve the healthcare system in smaller towns и villages, as hospitals existed only in big towns. Currently, in the remote villages и similar settlements, treatment of injuries и diseases is carried out by **sisters** и **brothers** alone, и there were many cases where treatment could not happen in time, such as when a large number of injured people appear simultaneously. In addition, advanced luminous element-based treatment techniques were considerably more difficulty in comparison to dark element art и similar ones, и in some cases less experienced clerics could not cope with life-threatening injury or even major injuries.
+Ронье подумалось, что здорово было бы, чтобы этот мир двинулся вперёд, к лучшему состоянию при помощи всех нововведений, что эти двое могут ему предложить. Но в то же время, однако, она чувствовала нечто, напоминающее слабую тревогу.
 
-The number of Мира Людей people who lose their lives in accidents or epidemies would be drastically reduced if they succeed in building hospitals with full-time clerics specializing in treatment techniques in all towns и villages. In addition, Кирито together with her wanted to develop folk remedies comprising drugs, bandages, poultices, etc. instead of relying solely on Sacred Art for advanced treatment.
+Мир Людей едва ли вообще менялся за три сотни лет под властью Первосвященника Администратор — в особенности его устоявшаяся система управления с разделением на четыре империи. Так было потому что Первосвященник стремилась к тому, чтобы этот мир находился в состоянии "перманентной стагнации", и как результат Мир Людей не был способен ни разрешить проблему старшей аристократии, ни сократить разрыв между центральной столицей и пограничным, но, в то же время, он и не становился хуже.
 
-Ронье thought it was wonderful for the world to progress into a better state by the advancements that the two of them can bring. At the same time, however, she felt something like a faint anxiety.
+Кирито и Асуна, напротив, продолжали прилагать усилия, чтобы развить как Мир Людей, так и всё Подмирье. Даже взять одно только то, что простые люди, угнетаемые знатью благодаря частной собственности на землю, были освобождены, мир определённо изменился к лучшему.
 
-Мира Людей had hardly changed within the three hundred years under the rule of the Первосвященник Администратор — in particular the establishment of a governing system dividing in the four empires. It is because the Первосвященник wanted the "permanent stagnation" state for the world, as a result Мира Людей neither did solve the problem of great aristocracy as well as the gap between the central capital и the frontier, nor had the world got worse any more.
+Но вместе с изменениями мира, ожидания, которые люди возлагают на Объединённый Совет Мира Людей... или скорее на его представителей Кирито и Асуну, определённо будут расти. Даже с точки зрения такого ученика рыцаря как Ронье, эти двое по силе были равны богам, но всё же они ни в коем случае не были всеведущими. Ронье чувствовала себя неуютно, знача как Кирито сожалеет и горюет, что он не смог спасти Юдзио. *В будущем, Подмирье постигнет беда, которую не удастся избежать даже с силой и знаниями Кирито и Асуны — абсолютная катастрофа, превосходящая Войну с Внешним Миром, даже от мысли о том, какие слова полетят в них с Кирито, неизбежно становится жутко....*
 
-Кирито и Асуна, on contrary, continued to make constant efforts to further develop both Мира Людей и the whole Underworld. Even taking this one thing, that the general people who were oppressed by the great aristocrats due to the private ownership of the territory were released, the world has definitely improved.
+“Эм… Асуна-сама?”
 
-But as the world changed, the expectations people impose upon the Объединённого Совета Мира Людей... or rather directly upon its representatives Кирито и Асуна will infinitely expand. From the perspective of an apprentice knight such as Ронье, the two of them have power equal to gods, but still they were never omniscient. Ронье felt uneasy because she knew how much Кирито regrets и grieves that he could not save Юдзио. *In the future, if the crisis that could not be avoided even with the power и knowledge of Кирито и Асуна — an ultimate catastrophe transcending the Войны с Внешним Миром strikes the Underworld, what kind of words will surely be thrown to Кирито и her, it becomes inevitably terrifying....*
+Голос Тейзы, раздавшийся рядом, вытянул сознание Ронье из бездны беспокойных мыслей. Асуна, потягивающая заваренный послеобеденный чай, моргнула и спросила:
 
-“Ehm… Асуна-сама?”
+"Что такое, Тейза-сан?"
 
-The voice of Тейза sounding next to her pulled Ронье's consciousness back from anxious thoughts. Асуна who was drinking tea boiled after meals blinked и asked:
+"Если так подумать, полагаю, я прервала вас, когда вы говорили перед едой? Точно, это было про Индекс Табу?"
 
-"What is it, is Тейза-сан?"
+"Разве…?"
 
-"Come to think of it, Я guess Я interfered in what you were saying before the meals? Certainly, it was about the Индекс Табу?"
+Пока Асуна наклонила голову набок, Ронье покопалась в своей памяти.
 
-"Was it so……"
+И правда, Асуна вроде как спросила Кирито что-то про Индекс Табу после разговора о том, стоит ли раскрывать истинную суть "Синтезис Ричуал" старшим Рыцарям Целостности. После чего Кирито заговорил о мысленной зацикленности в выборе между табу, в которую угодил Райос Антинос, и Тейза тогда спросила про значение слова "зацикленность", из чего разговор перешёл на увеличение производства белой конопляной бумаги и блокнот Тейзы. Что значит ──
 
-At the same time as Асуна tilted her head, Ронье rewound her memory.
+".... эй, Тейза, тема, которую задала Асуна-сама сменилась в середине разговора, ты не виновата!"
 
-Indeed, it seemed that Асуна had asked Кирито something about Индекс Табу after the talk of whether to reveal the truth of "Синтез ritual" to the upper Рыцарь Целостностиs и others. Afterwards, Кирито talked about the mental loop of choosing between two taboos that Raios Antinous caught, и Тейза asked something about the meaning of the sacred word loop, from which the topic diverted to the increase of production of white papers и Тейза’s notebook. Which means ──.
+Когда Ронье громко это выкрикнула, Тейза, которая, по-видимому, и сама пришла к такому решению, высунула язык:
 
-".... hey Тейза, Асуна-сама's topic was changed in the middle, it's not your fault!"
+"А может и виновата."
 
-When Ронье shouted that loudly, Тейза who seemed to have reached the same conclusion slightly put out her tongue.
+"В любом случае... Асуна-сама, нам очень жаль."
 
-"Well, maybe it was."
+Когда она сама склонила голову вместо своей лучшей подруги, Вице-Премьер-Мечник засмеялась и мягко покачала головой:
 
-"Altogether... Асуна-сама, really sorry."
+"Не волнуйтесь, я бы сказала, беспокой это меня. Так... и что же я хотела спросить...?"
 
-When she lowered her head on behalf of her best friend, Вице-Премьер-Мечник chuckled и swung a hand gently.
+С улыбкой, Асуна перевела взгляд влево.
 
-"No worries, Я would have said something should if Я was concerned of it. Well... и what Я wanted to ask...?"
+"......А, Кирито-кун, для жителей Мира Людей Индекс Табу абсолютен, если попытаться его нарушить это обязательно вызовет ‘печать на правом глазу’ или в худшем случае сознание просто развалится... правильно я понимаю?"
 
-With a smile, Асуна turned her eyes to the left.
+Кирито, к которому вдруг снова обратили вопрос, кивнул, добавляя молоко, только этим утром полученное из стойл Собора, в свой чай кохиру:
 
-"......Uh, Кирито-kun, for the people of Мира Людей the Индекс Табу is absolute, trying to break it would trigger a ‘seal on the right eye’ or in the worst case the mind would collapse... is that the understanding?"
+"Да, в целом, по идее, это так."
 
-Кирито, once again questioned, nodded while adding some milk, that was just obtained this morning at the stables of the Собора, to his kohiru tea:
+"Тогда... преступник, убивший Язен-сана, уборщика в таверне в Южной Центории, либо сломал печать на правом глазу, либо каким-то образом избежал противоречия, либо же был с самого начал а не связан Индексом Табу?"
 
-"Yeah, Я think that's the case in principle."
+"... Да, я полагаю, это одно из трёх....... Что касается третьего...... если это так, то преступник должен быть жителем Тёмной Территории, а не Мира Людей, но даже в этом случае, ему всё равно бы пришлось превзойти ‘Право Сильнейшего’ Тёмной Территории, столь же абсолютное, как и Индекс Табу. Исукан, сильнейший человек в Тёмной Территории, издал письменный приказ, запрещающий туристам причинять кому-то вред в Мире Людей..."
 
-"So then... The criminal who killed Yazen-сан, a cleaner at the inn in Southern Центория, either broke the seal of the right eye, or avoided contraindication in some way, or he was not bound by the Индекс Табу from the very beginning?"
+Ронье, услышавшая эти слова, застенчиво подняла праву руку, вспомнив кое-что, что ранее сказала Асуна.
 
-"... Yeah, Я think it's one of the three....... About the third one...... if that is correct, the criminal will be a Тёмной Территории person rather than a Мира Людей person, but even in that case, it is still necessary to break the ‘Law of the Strongest’ of Тёмной Территории as much absolute as the Индекс Табу. Isukan, the strongest person within present Тёмной Территории, has issued a documental order to prohibiting of doing bad things in Мира Людей..."
+"Эм, сенпай, можно я.......?"
 
-Ронье who heard these words timidly lifted the right hand after recollecting some of Асуна's earlier words.
+"Давай, Ронье."
 
-"Ehm, Сенпай, may I.......?"
+"Это уже в прошлом... но когда человек в чёрном плаще похитил ребёнка Исукана-сама и Шейты-сама в замке Обсидия, он, очевидно, игнорировал право сильнейшего, разве нет? Ведь он взял Лизу-чан в заложники и приказал Исукану-сама убить сенпая......."
 
-"Go ahead, Ронье."
+Услышав это, Асуна, которая была знакома с детальными отчётами, и Тейза, узнавшая подробности непосредственно от Ронье<sup><a href="#Prim4">4</a></sup>, нахмурились. Однако, сам Кирито только слабо кивнул и ответил:
 
-"It is in the past now... but the man in the black robe who kidnapped Isukan-сама’s и Шейта-сама’s baby at Obsidia Castle was obviously ignoring the law of power, was he not? Because he took Lisa-chan as a hostage и ordered Isukan-сама to kill my Сенпай......."
+"Это так. Другими словами, похититель вправду верил, что он сильнее Исукана, либо он подчинялся приказам кого-то, кто был сильнее его… ну или он в это верил."
 
-Upon hearing that, Асуна, who should have received detailed reports, и Тейза, who learned details directly from Ронье<sup><a href="#Prim4">4</a></sup>, hardened their expressions. However, Кирито himself only vaguely nodded и answered.
+"Я что хочу сказать, есть что-то...... немного неправильное во всей этой истории. Прежде всего, как люди Тёмной Территории вообще убеждаются, что тот, за кем они следуют, сильнее их? Без сомнений, должны быть и другие способы, кроме драки."
 
-"That is so. In other words, that kidnapper believes that he is stronger than Isukan, or he obeys orders from someone who is… or he believes they are."
+"У клана кулачных бойцов Исукана они определённо должны быть. Игра это или битва....... Но определённо, не все жители дерутся со всеми. Короче говоря, есть механизм, в котором сильнейшие из всех рас, гильдий и кланов избираются в лидеры. До войны лидеры составляли управляющий орган пд названием ‘Конференция Десяти Вождей’, издававший законы. На сегодня, название его сменилось на ‘Конференцию Пяти Кланов’, но сам механизм остался прежним... Исукан среди лидеров, участвующих в Конференции Пяти Кланов, сильнейших в своих областях."
 
-"That's what Я mean, there’s something...... slightly wrong with this story. First of all, how do people of Тёмной Территории confirm that the one to follow is stronger than oneself? No doubt, there must be ways other than a fight."
+"... Тогда, если похититель думал, что он сильнее чем Исукан-сама, это само по себе способно разрушить Право Сильнейшего, разве нет? Разве что он попытается сразиться с Исуканом-сама чтобы доказать это."
 
-"Isukan's fist fighters clan should do it. Whether it's a battle or a game....... But surely, not all the residents are fighting with each other. Briefly, there is a mechanism in which the strongest one among races, guilds, и clans is chosen to be the leader. Prior to the war, the leaders composed a governing body called ‘Ten Lords Conference’ to decide on various laws. Today, the name has been changed to ‘Five Clans Conference’, but the actual mechanism remained the same... Isukan is among the leaders who are participating in the Five Clans Conference, the strongest ones in individual areas of power."
+Когда Ронье это сказала, Кирито вздохнул, складывая руки на груди.
 
-"... Then, even if that kidnapper thinks he is stronger than Isukan-сама, that alone cannot break the Law of the Strongest, can it? Unless he fights Isukan-сама to prove it."
+"Ну... зависит от силы уверенности....... Во время "Восстания Четырёх Империй", четверо Императоров восстали против Церкви Аксиом, нарушив тем самым первую статью Индекса Табу, которым они должны были быть связаны. Их вера в то, что Объединённый Совет Мира Людей сверг Церковь Аксиом, оправдала их право на то, чтобы заставить нас вернуть Церковь Первосвященнику до такой степени, что это превзошло контроль Индекса Табу. Если было что-то, что генерировало идею подобной силы, то вполне возможно превзойти и Право Сильнейшего, не сражаясь с Исуканом непосредственно."
 
-As Ронье said so, Кирито sighed folding arms on his chest.
+При этих слова по спине Ронье пробежали мурашка, когда она вспомнила самоуверенность Императора Крюгера Норлангарта VI, практически физически окутавшую его. Сидящая рядом с ней Тейза тоже втянула голову в плечи и сказала тихим голосом:
 
-"Well... it depends on the strength of the thought....... At the time of the "Rebellion of Four Empires", the four Императорs rebelled against the Axiom Church by breaking the first Article of Индекс Табу which they should have been bound by. The belief that the Объединённого Совета Мира Людей overtook the Axiom Church justified the right to regain the Church from us for the Первосвященник to the degree when it exceeded the control of the Индекс Табу. If there is something that generates a thought as strong, it may be possible to break the Law of the Strongest without fighting directly with Isukan."
+"...... Определённо, Император по-моему, вообще не принимал во внимание Объединённый Совет. Но так было потому что императоры властвовали над империями сотни лет...... возможно ли, что человек без подобного прошлого восстанет против сильнейшего используя исключительно свою веру?"
 
-To that words, Ронье’s back lightly trembled, as she recalled Император Крюгер Норлангарт VI’s self-esteem almost physically seeping into the space surrounding him. Next to her, Тейза also pulled her neck in before speaking in a quiet voice.
+Ответ к Тейзе пришёл от Асуны, которую она прервала уже во второй раз.
 
-"...... Certainly, the Император seemed to never consider the Union Council at all. But that was because the Император has dominated the empire for hundreds of years...... is it possible for a human without such a background to rebel against his superiors only by his beliefs?"
+"Конечно, это верно что Индекс Табу или Право Сильнейшего — нужно иметь сильный **бэкбоун** чтобы прорваться сквозь них чисто на своей вере и самоопределении. А, и **бэкбоун** в смысле позвоночник, хребет, духовный стержень."
 
-The answer to Тейза came from Асуна, whom she interrupted already for the second time.
+"Д-Да."
 
-"Sure, that's true, Индекс Табу or the Law of Power — one needs a good **backbone** to break through with beliefs и self-justifications. Oh, the **backbone** means the spine, support, the spiritual kernel."
+"Так...... это то, о чём я сама хотела Кирито-куна спросить."
 
-"Y-yes."
+Асуна взглянула на него, и Кирито вопросительно моргнул.
 
-"So...... that is what Я myself wanted to ask Кирито-kun about."
+"А……?"
 
-When Асуна turned her gaze to him, Кирито blinked bluntly.
+"Вне зависимости от того, был ли тот, кто убил Язена-сан из Мира Людей или из Тёмной Территории, либо тот, кто отдал приказ убийце, либо сам преступник, обладают таким де сильным и искажённым духом, как когда-то Императоры четырёх империй. Что меня, однако, беспокоит, так это то, что при наличие такого человека, в Мире Людей всё могло быть намного хуже...... В том смысле, что они могли бы организовать какое-то катастрофическое происшествие, на уровне похищения Лизетты-тян в Тёмной Территории. Конечно, жизнь Язена-сан тоже не пустой звук...... что я пытаюсь сказать, так это что если уж убийца планировал посеять раздор между Миром Людей и Тёмной Территорией, то таргетирование... выбор цели мог бы быть более подходящим."
 
-"Huh……?"
+"Значит, социальное положение, да...... Например, аристократия, крупные торговцы, их семьи...... Верно..."
 
-"Regardless of whether the one who killed Yazen-сан was from Мира Людей or Тёмной Территории, either someone who ordered the killer or the murderer himself would have the same strong и distorted spirit as Императорs of the four empires once had. What Я wondered, however, was that if you have such a human being, it could have been even worse in Мира Людей...... Я mean, they could have caused the same catastrophic incident as Lisetta-chan's kidnapping in Тёмной Территории. Of course, Я do not neglect Yazen-сан's life...... but what Я am trying to say, if the criminal aims at the discord between Мира Людей и Тёмной Территории, there are more suitable **targets**... ones to aim at."
+Вглядываясь в лицо бормочущего Кирито, Ронье сказала:
 
-"In other words, they have a social position...... For example, aristocracy, large merchants, their families...... That's right..."
+"П-погодите, но если суть убийства Язена-сан в том, чтобы заставить Кирито-сенпая отправится в **Дарк Территори**<sup><a href="#Prim5">5</a></sup>...... разве не будет достаточным выбрать кого угодно?"
 
-Looking at the face of muttering Кирито, Ронье said:
+"Умм... ну, нет. Будь я виновником, полагаю, я обставил бы всё так, чтобы получить максимальный эффект. Постарался бы увеличить вероятность того, что я отправлюсь в Обсидию..."
 
-"W-wait, but if Yazen-сан's case is to make Кирито-сенпай to go to **Тёмной Территории**<sup><a href="#Prim5">5</a></sup>...... would it not be sufficient to aim just anyone?"
+Пока Кирито, произнеся “Хммм”, погрузился в размышления, Тейза уточнила у Асуны значение "эффекта". Её блокнот, должно быть, пополнился немалым количеством слов в тот день.
 
-"Umm... well, no. If Я were a culprit, Я guess Я would make a case causing more **impact**. I’d try to increase the probability that Я will have to reach Obsidia..."
+*Кстати, название мест, такие как "Обсидия" и "Центория", наверное тоже произошли от священных слов, что-то, им подходящее......* подумала Ронье.
 
-As Кирито said “Umm” submerging in his thoughts, Тейза asked Асуна for the meaning of "**impact**". Must be her notebook was getting substantial update that day.
+Асуна, глотнувшая чай кохиру, в который было добавлено немного сахара, внезапно произнесла, не меняя выражения лица.
 
-*By the way, location names such as "Obsidia" и "Центория" are probably also derived from some sacred word, something corresponding to them......* Ронье thought.
+"Эй, Кирито-кун, я думаю, я попробую."
 
-Асуна, who sipped kohiru with tea with a bit of sugar, said in a flat tone.
+"Э... что попробуешь?"
 
-"Hey Кирито-kun, Я think Я will try it."
+— спросил Кирито с обеспокоенным лицом.
 
-"Eh... you will try what?"
+Ответ Асуны сильно удивил не только Ронье и Тейзу, но даже такого неосторожного и беспечного человека, как сам Премьер-Мечник.
 
-Кирито asked that with a somewhat worried face.
+"Технику отражения прошлого Аюхи-сан. Если она действительно позволяет видеть прошедшие события, и если её использовать в таверне, где произошло убийство, то можно будет увидеть убийцу."
 
-Асуна's answer surprised a lot not just Ронье и Тейза but even such an unreasonable и reckless person as Премьер-Мечник himself.
-
-"Ayuha-сан's past reflection technique. If you really can see past events и you use it in an inn where the incident happened, you should be able to see the culprit." -->
-
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>В оригинале, речь про ループ, loop, петля. Асуна приводит альтернативные значения японского я rupu, не имеющие отношения как к английскому, так и, в ещё большей степени, к переводу на русский.
 2. <a name="Prim2"></a>Приветствую на уроке японского. Итак, обычно печь называется 天火, что произносится как “тэнпи”. “Солнечный свет” будет 天日, что также произносится “тэнпи”. Но, поскольку для японского привычно использовать заимствованные слова, то здесь и далее в качестве "печи" в оригинале используется английское “oven”: オーブン, произносимое на японском “o-bun”. Что касается следующего абзаца, то это ещё два слова, аналогично скопипастеных из английского.
-<!--3. <a name="Prim3"></a>Sorry, couldn’t find an English canon: is it "siral", "chiral" or "shiral" Katakana lessons Я took say "shiral", but hey maybe your canon differs?
-4. <a name="Prim4"></a>Original reads: “who heard the story directly from Ронье”, but that’s not true as Тейза only has heard about the kidnapping an hour ago or so, и we’ve been following them almost without interruptions since then.
-5. <a name="Prim5"></a>Not sure if it matters, Ронье says the name here in Sacred Language.-->
+3. <a name="Prim3"></a>Я не уверен, о каких таких навыках сервировки идёт речь, кто в курсе, дайте знать.
+4. <a name="Prim4"></a>В оригинале: “услышавшая *историю* непосредственно от Ронье”, но это не может быть правдой, поскольку Тейза услышала о похищении всего-то около часа назад, и с того момента мы практически беспрерывно следовали за ними.
+5. <a name="Prim5"></a>~Не уверен, важно ли это,~ Поскольку я перевёл уже всё на английский то я *знаю*, что это не важно, и я не имею ни малейшего представления зачем здесь, единственный раз за всю книгу это сделано, но Ронье произносит это название на священном языке.

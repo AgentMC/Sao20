@@ -198,7 +198,7 @@ After Тейза complained using a sacred word that Кирито told her, Ро
 
 Ронье shook head in surprise.
 
-According to the old story told when she was a child, before the Axiom Church was formed, ghosts used to appear in the streets и villages all around и they were doing various things. But they were exterminated by church priests и Рыцарь Целостностиs, и now it has become quite peaceful — all the stories have ended that way. Actually, Ронье has never seen any kind of scary ghosts mentioned in old stories.
+According to the old story told when she was a child, before the Церковь Аксиом was formed, ghosts used to appear in the streets и villages all around и they were doing various things. But they were exterminated by church priests и Рыцарь Целостностиs, и now it has become quite peaceful — all the stories have ended that way. Actually, Ронье has never seen any kind of scary ghosts mentioned in old stories.
 
 "About that, the real battle, where casualties were among the Императорs who did not surrender till the end, the generals originating from the royal family и the great aristocracy, or the heads of the Императорs’ armies — was happening only in the four imperial capitals of Центория, was it not? So why are there ghosts in the villa in the Император’s territory?"
 
@@ -238,7 +238,7 @@ With as much as possible calm face, Ронье looked at Цукигаке и Ш�
 
 "Don’t you want to take them? Something ghost-like shouldn’t like dragons which are sacred creatures. If it really comes out, though."
 
-After a while, Ронье nodded to Тейза's words about which she wasn’t sure how serious the other one was. It is only Рыцарь Целостностиs who can breach into the mansion sealed by the name of the Axiom Church, и dangerous creatures such as bears и wolves as well as ghosts cannot appear in such a place, so even if they take young dragons, there won’t be any danger.
+After a while, Ронье nodded to Тейза's words about which she wasn’t sure how serious the other one was. It is only Рыцарь Целостностиs who can breach into the mansion sealed by the name of the Церковь Аксиом, и dangerous creatures such as bears и wolves as well as ghosts cannot appear in such a place, so even if they take young dragons, there won’t be any danger.
 
 "So, well......."
 
@@ -323,7 +323,7 @@ She blinked и raised the face to see a beautiful black steel-made gate rising i
 
 After quickly walking the final hundred mels, the two stopped in front of the gate.
 
-In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Northern Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Axiom Church, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
+In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Northern Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
 
 In addition, the gates were severely blocked with a sturdy chain, и the chain stretched to the left и right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Мира Людей able to try to break the blockade after looking at such a sign.
 
@@ -525,7 +525,7 @@ Even if the gossip is true, Я cannot believe that ghost is a Тейза's love.
 
 And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. 
 
-Because it is only those who oppose the authority of the church и the Индекс Табу who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Axiom Church.
+Because it is only those who oppose the authority of the church и the Индекс Табу who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Церковь Аксиом.
 
 Ронье thought that she should return to Собора now и report it to Кирито or Фанатио, but Тейза moved before she was able to suggest it. She began running towards the South along the walls of the house, apparently planning to go around the back of the building. Шимосаки followed her, jumping behind.
 

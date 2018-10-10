@@ -169,7 +169,7 @@ In addition to Ayuha и Фанатио, knight Renri, knight Nergius и knight E
 
 It was Entokia, which was surprisingly talkative as for the senior knight, who began first:
 
-"Well, that is difficult, is not it? To pass the "Four Seasons’ Gates", you need a pass with the Axiom Church insignia, which is supposed to be made in Church by the Первосвященник-сама using Sacred Art."
+"Well, that is difficult, is not it? To pass the "Four Seasons’ Gates", you need a pass with the Церковь Аксиом insignia, which is supposed to be made in Church by the Первосвященник-сама using Sacred Art."
 
 "Eh… Is that so? Well, then, at present situation, it would be impossible to produce new ones?"
 
@@ -177,7 +177,7 @@ The knight nodded the head with bluish short hair to Кирито's question:
 
 "Я think so. Surely, there seems to be something I've heard that it is being created the way so that it cannot be imitated by any experienced craftsman..."
 
-"That's right. When light was cast on the copper pass, the crest of the Axiom Church appeared to be golden, и Я was unable to get His Excellency Беркули to tell me how to make one."
+"That's right. When light was cast on the copper pass, the crest of the Церковь Аксиом appeared to be golden, и Я was unable to get His Excellency Беркули to tell me how to make one."
 
 *If Фанатио says so, it is no doubt that counterfeiting is impossible.* Кирито nodded, combining the fingers of both hands on the desk.
 

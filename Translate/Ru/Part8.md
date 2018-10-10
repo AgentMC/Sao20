@@ -9,7 +9,7 @@ Silverwhite snake which lived in a deep mountain valley in the Eastern Empire. A
 
 Their number was more than 40, but they had no fluctlight, it was an advanced AI program able to communicate with Мира Людей people using the dedicated speech engine. People feared и respected divine beasts as gods on earth, и left many legends.
 
-However, for a girl who established the Axiom church in the year 30 of Мира Людей calendar и then ruled the Мира Людей by the name of Первосвященник Администратор, "gods" other than the gods that appeared in the ecclesiastical history were disturbing beings. She was getting rid of them either herself, making weapons — divine objects — out of them, or letting her subordinate Рыцарь Целостностиs do the extermination job. Then, around the year 100 of Мира Людей calendar, all the divine beasts were destroyed, и all the books that wrote about the exchange with them were burned away.
+However, for a girl who established the Церковь Аксиом in the year 30 of Мира Людей calendar и then ruled the Мира Людей by the name of Первосвященник Администратор, "gods" other than the gods that appeared in the ecclesiastical history were disturbing beings. She was getting rid of them either herself, making weapons — divine objects — out of them, or letting her subordinate Рыцарь Целостностиs do the extermination job. Then, around the year 100 of Мира Людей calendar, all the divine beasts were destroyed, и all the books that wrote about the exchange with them were burned away.
 
 None of birds и animals inhabiting the present Мира Людей were able to use human language. However, there was only one kind among them, beasts which preserved AI to a very limited extent. Those were the Рыцарь Целостностиs’ partners, dragons.
 

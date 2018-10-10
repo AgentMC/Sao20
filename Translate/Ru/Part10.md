@@ -238,7 +238,7 @@ Then Кирито closed the eyes for a moment и slowly shook his head:
 
 But after a few seconds her hands fell down to the knees.
 
-"............ I...... Я only had about a month around Юдзио-сенпай. Я could not travel together with him like Кирито-сенпай did, nor could we fight together in the Axiom Church. Moreover...... it was basically because of me that Юдзио-сенпай was taken to the Church. My Сенпай left the academy и now is gone....... Я cannot hear Юдзио-сенпай’s voice..."
+"............ I...... Я only had about a month around Юдзио-сенпай. Я could not travel together with him like Кирито-сенпай did, nor could we fight together in the Церковь Аксиом. Moreover...... it was basically because of me that Юдзио-сенпай was taken to the Church. My Сенпай left the academy и now is gone....... Я cannot hear Юдзио-сенпай’s voice..."
 
 Having said so, Тейза pushed both hands against her face и began to cry; Шимосаки rubbed his neck against her leg while raising an anxious voice. Цукигаке и Nuts also watched the situation side by side.
 

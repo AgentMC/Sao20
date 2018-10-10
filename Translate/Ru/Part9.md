@@ -9,9 +9,9 @@ There was no way to know the current time in a dungeon which had not a single wi
 
 Every time Ронье heard that words, she secretly thought, *since the time bell tells the exact time, why would it be necessary to carry bulky equipment......* but after getting in such a situation she had no choice but to change her mind.
 
-Also, the melody that the thousands of bells all over Мира Людей play was a hymn called "Under the light of Solus". It was a beautiful piece of music, but knowing that the history of the Axiom Church is covered with countless lies, listening to a hymn it’s quite difficult to sincerely praise gods as it was before.
+Also, the melody that the thousands of bells all over Мира Людей play was a hymn called "Under the light of Solus". It was a beautiful piece of music, but knowing that the history of the Церковь Аксиом is covered with countless lies, listening to a hymn it’s quite difficult to sincerely praise gods as it was before.
 
-The art in Мира Людей such as music, painting, sculpture и poetry were still severely restricted by the Индекс Табу. It was only those who were given the sacred task of an artist could advance the artistic path, и they must also undergo a judgment by the Imperial Government before the work is announced. If the content even slightly denies the genesis myth or Axiom Church, or is excessively entertaining, it gets banned.
+The art in Мира Людей such as music, painting, sculpture и poetry were still severely restricted by the Индекс Табу. It was only those who were given the sacred task of an artist could advance the artistic path, и they must also undergo a judgment by the Imperial Government before the work is announced. If the content even slightly denies the genesis myth or Церковь Аксиом, or is excessively entertaining, it gets banned.
 
 Премьер-Мечник wanted to immediately deprecate the screening system, but the idea was fought back by the Union Council — specifically, as expected, by Рыцарь Целостности Nergius — so it has not come true yet. It was still a little difficult question for Ронье, but she thought that it will be good when time comes for people to sing songs, paint pictures и write stories freely without being bound by any screening.
 
@@ -528,7 +528,7 @@ But that possibility suggested a new mystery.
 
 When Ронье shouted that, Зеппос, with its belly и chest penetrated by the steel-element stake, said with thunderous voice:
 
-"...... It was not just you guys from Axiom Church who were doing research on Sacred Art....... His Majesty Крюгер...... no, those of the oldest и most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
+"...... It was not just you guys from Церковь Аксиом who were doing research on Sacred Art....... His Majesty Крюгер...... no, those of the oldest и most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
 
 "The Four Императорs...... collaborated!?"
 
@@ -562,7 +562,7 @@ A horrible monologue, followed by an annoying laughter.
 
 But it was not Тейза и Ронье as individuals that Зеппос was jealous of. It was the very existence of Рыцарь Целостностиs. Immortals whose Life was frozen, living for eternity ──
 
-For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцарь Целостностиs overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Axiom Church, even Император was not allowed to reveal antipathy.
+For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцарь Целостностиs overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Церковь Аксиом, even Император was not allowed to reveal antipathy.
 
 However, Рыцарь Целостностиs suffered the Рыцарь Целостностиs’ troubles. Ронье knew that since entering Собора.
 
@@ -594,7 +594,7 @@ But the problem was Император Крюгер whom Зеппос was trying
 
 The Меч power, the sacred art power, и the incarnational power of the two were at the same levels. Тейза for sure would not want to impose a dangerous role on Ронье. However, there was a big difference between the two of them outside of their abilities. Тейза's Мира Людей army standard Меч must have had priority 25 и Ронье's Меч of the Moonlight’s priority was 39 — so it was Ронье who had to strike.
 
-"...... certainly, neither Рыцарь Целостностиs nor the Axiom Church may be absolutely correct."
+"...... certainly, neither Рыцарь Целостностиs nor the Церковь Аксиом may be absolutely correct."
 
 — while raising her beloved Меч overhead, Ронье shouted, —
 
