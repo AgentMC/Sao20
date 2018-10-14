@@ -118,51 +118,51 @@
 
 "Ух ты............"
 
+Что касается высоты, они были примерно на уровне десятого этажа Собора — максимум 50 мелов. Однако, с этой позиции они могли видеть весь городской ландшафт Центории, простиравшийся насколько хватало глаз, пока вдали он не терялся в дымке. И не только. От точки пересечения южной и западной стен, где стояла их четвёрка, в юго-западном направлении по прямой уходила вдаль ещё одна стена такой же точно высоты.
+
+"...... И вот мы стоим на вершине ‘бессмертной стены’...."
+
+— прошептала Тейза, и Кирито молча кивнул.
+
+Бессмертная стена. Огромная стена из белого мрамора, разделявшая всю территорию Центории на Восточную, Западную, Северную и Южную части — и дальше на обширные территории четырёх империй. Она была создана не выкладыванием вырезанных камней один на другой, это Первосвященник Администратор заставила её появиться всего за одну ночь.
+
+Считалось, что эту стена, продолжавшуюся ни много ни мало 750 килолу от внешней стены Центрального Собора до "Горной Гряды-на-Грани", где-то далеко окружавшей Мира Людей, было невозможно уничтожить, отсюда и название "бессмертная". Индекс Табу запрещал любым способом повреждать её или взбираться по ней, и пусть и не нашлось ни одного, кто бы попытался её повредить, Ронье понимала, что она только что преступила второе упомянутое нарушение. Хотя её и освободили от Индекса Табу когда она стала учеником Рыцаря Целостности, выгравированное на её психике ограничение не могло исчезнуть без следа, так что Ронье, посмотрев себе под ноги, инстинктивно начала идти на цыпочках.
+
+Куски мрамора, сложенные вместе без единого зазора даже в один миллис, простоявшие под всей возможной погодой три сотни лет, сияли гладкостью, словно только что отполированные. Ближайший угол стены за их спинами был остр словно бритва, не давая возможности кому-либо забраться наверх.
+
+В этот момент послышался слабый шум. Две светло-синие птички приземлились на вершину стены. Они попрыгали по мрамору и посмотрели на Ронье своими чёрными глазами.
+
+"...... Ху-ху, Индекс Табу точно не влияет на мелких птиц."
+
+С этими словами Асуна мягко коснулась их плеч, и Ронье улыбнулась, глядя на Тейзу. Она ещё раз оценила вид и тогда вдруг поняла:
+
+"Ох, так значит... Сенпай собрался двигаться по этой стене пока не достигнет таверны в 4-м районе Южной Центории?"
+
+Когда она спросила, Кирито развернулся и рассмеялся.
+
+"Верно. Если идти здесь, снизу нас не будет видно, и если выбрать хорошую точку, то и когда спрыгнешь, нежелательных свидетелей не будет."
+
+"Это не в первый раз, да?"
+
+Помедлив немного после того как Асуна на него надавила, он прочистил горло и сказал извиняющимся тоном:
+
+"А, ну, понимаешь, проверка путей к отступлению является фундаментальной для построения стратегии...... Ладно, давайте поторопимся."
+
+И Кирито начал энергично шагать вперёд; девушки, включая сокрушённо выглядевшую Асуну, последовали за ним.
+
+Каждой из четырёх бессмертных стен, разделявших Мир Людей на четыре части, было дано неформальное название.
+
+Северо-восточная стена, разделявшая Северную Империю Норлангарт и Восточную Империю Истабариет называлась "Весенней Стеной". Юго-восточная стена, разделявшая Восточную Империю и Южную Империю Саутакройт называлась "Летней Стеной". Юго-западная стена, разделявшая Южную Империю и Западную Империю Весдарат звалась "Осенней Стеной". И северо-западная стена, разделявшая Западную Империю и Северную Империю звалась "Зимней Стеной".
+
+Похоже, даже старейшие рыцари Фанатио и Дюсольберт не знали причину по которой четыре стены назывались временами года. До провозглашения Объединённого Совета Мира Людей, бессмертная стена оставалась абсолютным непреодолимым барьером, граждане Центории из всех четырёх частей в принципе не имели свободы перемещения, и никому не позволялось проходить через ворота в стенах, за исключением торговцев или же богатых туристов, получивших пропуск.
+
+Хотя к тому времени требования для пропуска сквозь стену были значительно снижены, полностью свободное перемещение было делом будущего. Причиной было то, что отголоски Восстания Четырёх Империй всё ещё давали о себе знать. Оставалась возможность, что осколки ордена Рыцарей Коноэ, поднявшие оружие против Церкви Аксиом, могли прятаться где-то в Мире Людей и всё ещё подчиняться приказам императоров. Они вполне могли быть вовлечены в убийство старика Язена и похищение Лизетты.
+
+Размышляя в таком ключе, Ронье шагала по "Осенней Стене".
+
 ## Продолжение следует...
 
-<!-- Speaking of the height, it was about the tenth floor of Собора — at most 50 mel. However, from the position they were the cityscape of Центория, spreading to where the eye can reach, till it looked distant и hazy. There was more. From the junction of the southern wall и the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
-
-"...... Here we are on the top of the ‘timeless wall’...."
-
-Тейза whispered that, и Кирито silently nodded.
-
-Timeless wall. It was a large white marble wall that divided all the territory of Центория in the eastern, western, northern и southern parts — и further into the vast four imperial territories. It was built not by piling cut out the stone, but rather The Первосвященник Администратор made it to appear during just one night.
-
-It is said that this wall, which lasts as much as 750 kilometers from the outer wall of Центрального Собора up to the "Mountain Range at the Edge" that encloses the Мира Людей far away, is impossible to destroy, hence the name of "timeless". It was forbidden to climb it or damage it by the Индекс Табу, и although there would be no one who tried to break it, Ронье understood that she just violated the second mentioned prohibition. Even if she was released from the Индекс Табу binding when she became an Рыцарь Целостности trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ронье looked at her feet she understood she instinctively began tiptoeing.
-
-The marble that was assembled without any gaps in one millis, which should have been exposed to the weather for several hundred years, shined smoothly just as it was newly polished. Behind them, the corner of the wall nearby was sharp like a blade, preventing anyone from climbing.
-
-At that time, a light noise was heard. Two light-blue birds flew down on the top of the wall from the sky. They jumped a little over the marble и watched Ронье with black eyes.
-
-"...... Hu-hu, the Индекс Табу truly has no effect on small birds."
-
-With these words, Асуна gently touched their shoulders, и Ронье smiled at once looking at Тейза. She enjoyed the view once more и then understood it.
-
-"Oh, is it that... Сенпай is going to move on this wall until reaching the Inn in Southern Центория’s 4th district?"
-
-As she asked, Кирито turned around и finally laughed.
-
-"Correct. As you walk here, they will not be able to see you from down there, и if you choose a good location, you will not be noticed by unexpected people when you get off."
-
-"It’s not the first time, is it?"
-
-With the slight delay after Асуна's pressing, he cleared his throat и said with an excusing expression.
-
-"Ah, well, you see, the validation of the escape route is fundamental to the strategy...... Come on, let's hurry."
-
-And Кирито began energetically walking ahead, followed by girls along with contritely looking Асуна.
-
-There was an informal nickname given to each of the four of timeless walls dividing the Мира Людей into four parts.
-
-The northeast wall separating the Норлангарт North Empire и the Eastabarieth East Empire was the "Spring Wall". The southeast wall separating the East Empire и Southacroith South Empire was the "Summer Wall". The southwest wall separating the Southern Empire и the Wesdarath West Empire was the "Autumn Wall". и the northwest wall separating the Empire и the North Empire was the "Winter Wall".
-
-It seemed that even the oldest knights Фанатио и Дюсольберт did not know the reason why the four walls were called with names of seasons. Until the Объединённого Совета Мира Людей was proclaimed, the timeless wall was an absolutely inviolable border, the Центория citizens from the east, west, north и south did not have freedom of exchange in principle, и it was not possible to pass through the gate in each wall with the exception for merchants or wealthy tourists given passes of exchange.
-
-Although the passage requirements of the gates have been eased considerably by that time, complete free passage had yet to be allowed. That was because the aftermath of the Rebellion of Four Empires was not quite completed. There was a possibility that the remnants of the Konoe Knight Order who raised the weapons at the Церковь Аксиом might be hiding somewhere in the Мира Людей и still obey the order of the Император. They may also be involved in killing the old Yazen и kidnapping Lisetta.
-
-While thinking this way, Ронье walked on the "Autumn Wall".
-
-Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, и nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ронье's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
+<!--Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, и nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ронье's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
 
 On the left side of the wall there was a South Центория mainly made of reddish sandstone, и to the right was West Центория built with blackish slate. The two towns separated by a single wall differed not only in color but also in the design of the build-up. Spacious Southern Центория's houses built from cut square red sandstone blocks produced a liberating opening feeling, while built from thinly sliced precisely и carefully matched pieces of slate building of West Центория with their roofs covered with neatly arranged tiles shaped alike to dragon scales, stood without much clearance, but the effort invested in those houses welcomed the awe of craftsmanship.
 

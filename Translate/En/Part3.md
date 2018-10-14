@@ -118,15 +118,15 @@ But before she did, Kirito's right hand slightly supported her, and as soon as h
 
 "Wow............"
 
-Speaking of the height, it was about the tenth floor of Cathedral — at most 50 mel. However, from the position they were the cityscape of Centoria, spreading to where the eye can reach, till it looked distant and hazy. There was more. From the junction of the southern wall and the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
+Speaking of the height, it was about the tenth floor of Cathedral — at most 50 mel. However, from the position they were able to overlook the cityscape of Centoria, spreading to where the eye can reach, till it looked distant and hazy. There was more. From the junction of the southern wall and the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
 
 "...... Here we are on the top of the ‘timeless wall’...."
 
 Tiese whispered that, and Kirito silently nodded.
 
-Timeless wall. It was a large white marble wall that divided all the territory of Centoria in the eastern, western, northern and southern parts — and further into the vast four imperial territories. It was built not by piling cut out the stone, but rather The Highest Priest Administrator made it to appear during just one night.
+Timeless wall. It was a large white marble wall that divided all the territory of Centoria in the eastern, western, northern and southern parts — and further into the vast four imperial territories. It was built not by piling the cut out stone, but rather The Highest Priest Administrator made it to appear during just one night.
 
-It is said that this wall, which lasts as much as 750 kilometers from the outer wall of Central Cathedral up to the "Mountain Range at the Edge" that encloses the Human World far away, is impossible to destroy, hence the name of "timeless". It was forbidden to climb it or damage it by the Taboo Index, and although there would be no one who tried to break it, Ronye understood that she just violated the second mentioned prohibition. Even if she was released from the Taboo Index binding when she became an Integrity Knight trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ronye looked at her feet she understood she instinctively began tiptoeing.
+It is said that this wall, which lasts as much as 750 kilolu from the outer wall of Central Cathedral up to the "Mountain Range at the Edge" that encloses the Human World far away, is impossible to destroy, hence the name of "timeless". It was forbidden to damage it or to climb it by the Taboo Index, and although there would be no one who tried to break it, Ronye understood that she just violated the second mentioned prohibition. Even if she was released from the Taboo Index binding when she became an Integrity Knight trainee, awareness that has been engraved for many years for years has not disappeared without a trace, so when Ronye looked at her feet she understood she instinctively began tiptoeing.
 
 The marble that was assembled without any gaps in one millis, which should have been exposed to the weather for several hundred years, shined smoothly just as it was newly polished. Behind them, the corner of the wall nearby was sharp like a blade, preventing anyone from climbing.
 
@@ -138,7 +138,7 @@ With these words, Asuna gently touched their shoulders, and Ronye smiled at once
 
 "Oh, is it that... Senpai is going to move on this wall until reaching the Inn in Southern Centoria’s 4th district?"
 
-As she asked, Kirito turned around and finally laughed.
+As she asked, Kirito turned around and laughed.
 
 "Correct. As you walk here, they will not be able to see you from down there, and if you choose a good location, you will not be noticed by unexpected people when you get off."
 
