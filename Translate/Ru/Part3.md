@@ -2,123 +2,125 @@
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-After the lunch on the ninety-fifth floor was over, Ронье returned to her room on the twenty-second floor и caught her best friend trying to enter her bedroom through the shared living room.
+После того как обед на 95-м этаже завершился, Ронье вернулась в свою комнату на 22-м этаже и поймала свою лучшую подругу когда та пыталась войти в свою спальню через общую гостиную.
 
-"So, Тейза, how to make that small book that you were using right now......."
+"Так, Тейза, как там сделать эту маленькую книжку, которую ты сейчас использовала......."
 
-"Notebook"
+"Блокнот."
 
-"Eh?"
+"Э?"
 
-"Я will not call it a book anymore, instead Я will call it notebook in a sacred language. This name is short и fits it so well."
+"Я не собираюсь называть это книжкой, впредь я буду называть её её блокнотом на Священном Языке. Это название короткое и хорошо подходит."
 
-While she said so, Тейза took out the notebook from her pocket, и Ронье upturned her eyes.
+Произнося это, Тейза достала блокнот из кармана, и Ронье воздела очи к небу.
 
-"...... What, Ронье, why such a face?"
+"...... что, Ронье, почему такое лицо?"
 
-"No, that's OK, but.... when you use so many sacred words, more than Дюсольберт-сама does for instance, or other young people do...... that just feels weird."
+"Нет, наверное, всё нормально, но.... когда ты используешь так много священных слов, больше, чем Дюсольберт-сама например, или чем другие, более молодые люди...... это просто как-то странно."
 
-"Then we can tell the teacher as well."
+"Тогда можно и инструктору сказать."
 
-"It’s not what I....... ── Anyway, let me know how to make it."
+"Я не совсем это....... ── Неважно, давай рассказывай, как такую сделать."
 
-This way Ронье felt that she falls more и more behind her best friend by the knowledge of the general purpose Sacred Language, so she insisted. Grinning Тейза held the notebook on her chest with both hands.
+Ронье чувствовала, что она всё больше и больше отстаёт от своей подруги в знании общеупотребительного Священного Языка, так что ей пришлось настоять. Ухмыляющаяся Тейза обеими руками прижала блокнот с груди:
 
-"Of course, Я can, but you know, it was quite a challenge to bind all these thick white hemp paper sheets..."
+"Конечно, я расскажу, но знаешь, прошить все эти толстые листы из белой конопляной бумаги было весьма непросто..."
 
-"... Я understood. A raspberry tart of «honey’s» candy store."
+"... Я поняла. Малиновый пирог из кондитерской «Ха́низ»."
 
-"Deal."
+"Идёт."
 
-Having nodded with a serious face, Тейза took a folded piece of paper out of the other side pocket. It was not a white hemp paper but a regular one because of its thinness и hue, и it was covered with neat small letters.
+Кивнув с серьёзным лицом, Тейза достала из другого бокового кармана сложенный листок бумаги. Судя по оттенку и тонкости это была не белая конопляная бумага, а обычная, и она была покрыта маленькими буковками.
 
-"Here, kind Тейза has written how to make a note for poor Ронье. The most important thing is to use thin и durable yarn."
+"Держи, добрая Тейза уже записала инструкцию как сделать блокнот для бедной Ронье. Самое важное - это использовать тонкую и упругую пряжу."
 
-"....... th-thanks......."
+"....... с-спасибо......."
 
-Ронье received it with a bit of surprise. Perhaps, Тейза had made this memorandum — which should be “**memo**” in the Sacred Language — for Ронье long ago.
+Ронье взяла бумагу с некоторым удивлением. Возможно, Тейза сделала эту записку — что должно было звучать как “мемо” на Священном Языке — для Ронье уже давно.
 
-"Thank you, Тейза."
+"Спасибо тебе, Тейза."
 
-Ронье firmly grabbed her best friend's right hand with both hands, thanking her again, properly this time. In response, Тейза smiled embarrassingly и blinked both eyes.
+Ронье обеими руками крепко схватила правую руку своей лучшей подруги, правильно поблагодарив ту на этот раз. В ответ, Тейза смущённо заморгала и улыбнулась.
 
-After obtaining the manufacturing method, she would surely want to go to the paper factory in the corner of the twelfth floor of the Собора right away to pick some discarded white paper, but that unfortunately had to be postponed. Having changed in the bedroom into a knight outfit for going out и wearing a gray cloak, Ронье went down the big stairs with Тейза who had the same look.
+Получив методику изготовления, ей определённо хотелось тут же отправится на бумажную мануфактуру в углу двенадцатого этажа Собора чтобы получить немного испорченной белой бумаги, но, к сожалению, этому пришлось подождать. Переодевшись в своей спальне в рыцарскую униформу для выхода наружу и натянув сверху серый плащ с капюшоном, Ронье по широкой лестнице отправилась вниз вместе с Тейзой, выглядящей таким же образом.
 
-The left through the front door of the first floor, и the afternoon sun gently caressed the skin. It was February so the wind was still cold but they almost could feel how it gets warmer little by little every day.
+Пройдя через парадную дверь первого этажа, они вышли под нежно поглаживающие кожу лучи послеполуденного солнца. Стоял Февраль, так что ветер всё ещё был холоден, но они почти физически ощущали, как с каждым днём воздух мало-помалу теплел.
 
-Away from the front square neatly decorated with pure white tiles, cutting through the front grass lawn in the southwest direction. Usually, they would go to Цукигаке и Шимосаки in the dragon stables и stay with them till evening, but that day dragons had to wait a little more. Because they two of them had an important task to do.
+В сторону от парадной площади, аккуратно замощенной белокаменными плитами, напрямик через переднюю лужайку на юго-восток. Обычно, они бы направились к Цукигаке и Шимосаки в драконьи стойла и оставались бы с ними до самого вечера, но в тот день драконам пришлось подождать. Потому что у этих двоих было важное дело.
 
-Proceeding ahead, one could see as the spacious front yard is changed to orchards, with lined-up trees. Although most of the trees have dropped leaves in this season и the middle of winter is not rich in fruit, still there were many seasonal black apples и ice figs, spreading around faint sweet scent.
+Они продолжали идти вперёд, и обширный передний двор вокруг сменился палисадником с высаженными в ряды деревьями. Хотя в это время года большинство деревьев сбросили листву, да и середина зимы в принципе не была богата плодами, на ветках висело немало сезонных чёрных яблок и ледяных фиг, распространявших вокруг слабый сладкий аромат.
 
-They just had a good lunch, but still unusual transparent light blue fig fruits sparkled a desire to eat at least one... и as they passed through the orchard withstanding the temptation, a huge wall became visible up ahead. This marble wall divided the grounds of the Церковь Аксиом Центрального Собора from the outside world.
+Они только что хорошо пообедали, но необычные полупрозрачные светло-голубые плоды фиг разжигали желание съесть хоть одну... и через какое-то время, что они провели идя по палисаднику и сопротивляясь этому желанию, впереди показалась огромная стена. Эта мраморная стена отделяла земли Центрального Собора Церкви Аксиом от остального мира.
 
-There were already figures of Кирито и Асуна near the corner where the south wall met the west wall.
+Возле угла, где южная стена встречалась с восточной, уже виднелись фигуры Кирито и Асуны.
 
-The two of them wrapped in plain brown cloaks gently raised their hands when they noticed girls. Ронье и Тейза rushed through the last few tens of mel, stopped at the same time и lowered their heads.
+Заметив девушек, те двое, закутанные в простые коричневые плащи, подняли руки и помахали. Ронье и Тейза пробежали последние несколько десятков метров, одновременно остановились и склонили головы.
 
-"We’re sorry, we kept you waiting."
+"Приносим извинения, что заставили ждать."
 
-"It’s nothing, we also just came here."
+"Ничего, мы сами только что пришли."
 
-Кирито grinned и added to Асуна’s words.
+Кирито усмехнулся и добавил к словам Асуны:
 
-"We jumped off the Собора и saw Ронье и Тейза as we were going down."
+"Мы спрыгнули с Собора и видели Ронье и Тейзу когда спускались."
 
-Apparently, Кирито overtook them by the sky using his incarnational flight technique. One day Ронье already caught a glimpse of the surroundings from that height, even though she still couldn’t learn how to do an incarnational flight with aerial elements.
+Судя по всему, Кирито обогнал их по небу, используя свою инкарнационную технику полёта. Однажды Ронье уже краем глаза видела окружающие земли с такой высоты, хоть сама она и не могла пока взлетать на воздушных элементах, созданных инкарнацией.
 
-"So... why is this a meeting place?"
+"Так... а почему именно это место выбрано для встречи?"
 
-The destination of the four of them was the South Центория city, и one had to go through the main gate in the middle of the southern wall to get there. But in this place where white marble walls joined at the right angle, there was no such thing as a passageway.
+Их пунктом назначения была Южная Центория, и чтобы туда попасть нужно было пройти через главные врата в южной стене. Но в этом месте, где белые мраморные стены соединялись под прямым углом, ничего похожего на проход не было.
 
-*Perhaps, there is a hidden door we do not know about*...... as she was guessing, Кирито shrugged и answered.
+*Возможно, есть какая-то скрытая дверь, о которой нам ничего не известно*...... пока она строила догадки, Кирито пожал плечами и ответил:
 
-"The opening и closing of the main gate is conspicuous....... It is absolutely impossible to sneak in и out unnoticed because there are lots of tourists at this time in the square beyond the gate."
+"Открытие и закрытие главных врат привлекает ненужное внимание....... Пробраться внутрь или выскользнуть наружу совершенно невозможно из-за множества туристов, которые сейчас находятся на площади у ворот."
 
-"Then, how about flying like before?"
+"Тогда, что насчёт того чтобы полететь, как тогда?"
 
-There was some hope in the voice Тейза said that with. Certainly, four days ago, when they heard that a murder happened in South Центория, Кирито jumped out of the terrace at the top of the Собора with Ронье on his left side as he was и went straight to the site by aerial element flight technique. The journey took just several tens of seconds, plus flying in the sky was a very exciting experience. It was natural for Тейза to expect something — but.
+В голосе, которым Тейза это произнесла, чувствовалась доля надежды. И правда, четыре дня назад, когда они услыхали про произошедшее в Южной Центории убийство, Кирито выпрыгнул в том, в чём был, с террасы наверху Собора, прижимая Ронье к левому боку и направился прямо к месту действия с помощью техники полёта на воздушных элементах. Путешествие заняло всего несколько десятков секунд, да и лететь по небу было весьма впечатляющим опытом. Естественно, Тейза надеялась на что-то — но:
 
-"Well, that'd be so conspicuous...."
+"Ну, это привлекло бы даже ещё больше ненужного внимания...."
 
-While smiling wryly, Кирито added quickly:
+Криво усмехнувшись, Кирито быстро добавил:
 
-"But today Я think we will try a secret shortcut."
+"Однако, сегодня, я думаю, мы попробуем секретный способ срезать расстояние."
 
-"Se...... secret shortcut?"
+"Се...... секретный способ?"
 
-Тейза made round eyes suggesting that she was not disappointed. Премьер-Мечник who changed the smile to a mischievous one lifted both hands without further explanation.
+Тейза округлила глаза, что означало, что она не разочарована. Премьер-Мечник, улыбка которого обрела некоторую зловредность, не утруждая себя дальнейшими объяснениями, поднял обе руки.
 
-"Well, let's hold the hands, the four of us."
+"Так, беритесь за руки, все четверо."
 
 "............?"
 
-Tilting her head a little, Ронье grasped Кирито's left hand и Тейза's took the right one. From the other side, Асуна took their hands и gave a slight nod, и four people formed a small circle.
+Немного наклонив голову, Ронье взялась за левую руку Кирито, а правую руку взяла Тейза. По другую сторону, Асуна тоже взяла их за руки и слегка кивнула, и таким образом четверо людей образовали круг.
 
-Immediately afterwards, the green light blinked in the center of the circle continuously и the intense wind bounced the grass radially under their legs. Unexpectedly, Ронье's body suddenly raised with the poser of wind pressure coming directly from below.
+Сразу после этого, в центре круга загорелся зелёный свет, и сильный ветер смял траву под их ногами. Внезапно, сила давления воздуха, образовавшегося прямо внизу, мягко подняла тело Ронье.
 
-"Wa! Wa-wa-wa-wa-wa..!"
+"Ай! Ай-ай-ай-ай-ай..!"
 
-Тейза shouted и began flipping both feet in the air. However, their bodies did not return to the ground и continued rising at about 1 mel per second.
+Взвизгнула Тейза, начав махать ногами в воздухе. Однако, их тела не вернулись на землю, а вместо этого продолжили подниматься примерно на 1 мел в секунду.
 
-Ронье, who was used to Кирито's ways a little bit better than her best friend, breathed deeply at the beginning of this new experience, but there was a chance to observe the situation. Beneath their bodies, the air was continuously released, creating a strong wind, but the crowns of the nearby trees were only moved with the natural breeze. If you look closely, there was a faint rainbow-colored light swirling just outside the four people. Someone — probably Кирито, created a cylindrical transparent wall around four people with the application of the Knight's secret "arm of mind" technique, which blocked the wind, so the freed aerial elements created a strong air current raising Ронье и others up vertically. In other words, in principle it worked in the same way as the elevator in Собора.
+Ронье, привычная к поведению Кирито немного больше, чем её лучшая подруга, глубоко втянула воздух в самом начале этого нового для неё действа, но у неё всё же была возможность оценить ситуацию. Воздух постоянно выпускался под ними, создавая сильный ветер, но крону окружавших деревьев покачивал только естественный бриз. Если приглядеться, вокруг четверых вращалось слабое радужного отлива свечение. Кто-то — наверное, Кирито — создал вокруг них цилиндрическую прозрачную трубу с использованием секретной техники рыцарей "рука разума", которая блокировала ветер, так что высвобожденные воздушные элементы создавали сильный поток, поднимавший Ронье и остальных вертикально вверх. Иначе говоря, в принципе это работало так же как и лифт в Соборе.
 
-Тейза, who was scared, seemed to regain the control in less than ten seconds, и watched the area a while swaying her cheering face from one side to another.
+Тейза, сперва напугавшаяся, похоже, сумела обрести контроль над собой менее, чем за десять секунд, и осматривала окрестности, поворачивая радостное лицо то в одну сторону, то в другую.
 
-"Ah, it’s amazing, I’m flying, Ронье!"
+"Ах, это потрясающе, я лечу, Ронье!"
 
-"Hey Тейза, do not let go of my hand!"
+"Эй Тейза, руку-то не отпускай!"
 
-Ронье grabbed the hand of his best friend even firmer, и the four people continued to rise increasing speed little by little. The ground was already far down, but the white wall blocking the overview still didn’t finish. Looking up, the top of the wall drawing a straight line in the light blue winter sky was still terribly far away.
+Ронье крепче схватилась за руку своей подруги, пока их четвёрка продолжала подниматься, понемногу увеличивая скорость. Земля была уже далеко внизу, но закрывавшая обзор белая стена всё никак не заканчивалась. Если посмотреть вверх, то верхушка стены, чертящая прямую линию в светло-голубом зимнем небе, была всё ещё ужасно далека.
 
-*If Кирито-сенпай's ability to concentrate or the spatial divine powers turns out to be not enough, Я wonder what will happen*... she forcibly interrupted the imagination и continued to glare at the top. The rise lasted for about 20 seconds, at the end they flew somewhat diagonally и finally crossed the edge of the wall.
+*Если способности Кирито-сенпая к концентрации или Священной Силы а пространстве окажется недостаточно, интересно, что тогда случится*... она насильно остановила своё воображение и продолжила смотреть наверх. Подъём продолжался примерно 20 секунд, в конце они полетели немного под углом и, наконец, пересекли край стены.
 
-Immediately afterwards, the wind pressure momentarily disappeared, и four people fell from about 2 mel. Girls could never imagine that practicing "Standing straight on the top of a pillar" would do any good, but this time there was not enough power to support her legs, и together with Тейза who stumbled upon landing, Ронье almost fell on her back.
+Сразу же после этого, давление ветра мгновенно исчезло, и четверо людей свалились с высоты около 2 мелов. Девушки не могли и представить, что практика в "Стоянии смирно на вершине шеста" когда-нибудь в жизни окажется им хоть в чём-то полезной, но в этот раз их сил оказалось недостаточно, чтобы поддержать ноги, и вслед за Тейзой, запнувшейся при приземлении, Ронье едва не упала на спину.
 
-But before she did, Кирито's right hand slightly supported her, и as soon as he saw the surroundings, Ронье let out a sound of astonishment.
+Но, прежде чем это произошло, правая рука Кирито слегка поддержала её, и стоило ей оглянуться вокруг, Ронье издала возглас восхищения.
 
-"Wow............"
+"Ух ты............"
 
-Speaking of the height, it was about the tenth floor of Собора — at most 50 mel. However, from the position they were the cityscape of Центория, spreading to where the eye can reach, till it looked distant и hazy. There was more. From the junction of the southern wall и the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
+## Продолжение следует...
+
+<!-- Speaking of the height, it was about the tenth floor of Собора — at most 50 mel. However, from the position they were the cityscape of Центория, spreading to where the eye can reach, till it looked distant и hazy. There was more. From the junction of the southern wall и the western wall where the four of them were standing, the wall of the same height extended straight in the southwest direction.
 
 "...... Here we are on the top of the ‘timeless wall’...."
 
@@ -621,7 +623,4 @@ The four people who went down to the first floor saw an unattended corridor и a
 ## Footnotes:
 
 1. <a name="Prim1"></a>.Я just understood Я never called that out previously. For European readers: the floor numbering is — mostly — visually 1:1 in Japan, where “the 1st floor” is the first one available, not “the 1st one to live”. So, in this example, using British/Irish standards, that would be: they are located at the first floor и the dining room — as expected — is at the ground floor.
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
-4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.-->
+-->

@@ -18,7 +18,7 @@ While she said so, Tiese took out the notebook from her pocket, and Ronye upturn
 
 "No, that's OK, but.... when you use so many sacred words, more than Dusolbert-sama does for instance, or other young people do...... that just feels weird."
 
-"Then we can tell the teacher as well."
+"Then we can tell the instructor as well."
 
 "It’s not what I....... ── Anyway, let me know how to make it."
 
@@ -32,7 +32,7 @@ This way Ronye felt that she falls more and more behind her best friend by the k
 
 Having nodded with a serious face, Tiese took a folded piece of paper out of the other side pocket. It was not a white hemp paper but a regular one because of its thinness and hue, and it was covered with neat small letters.
 
-"Here, kind Tiese has written how to make a note for poor Ronye. The most important thing is to use thin and durable yarn."
+"Here, kind Tiese has written how to make a notebook for poor Ronye. The most important thing is to use thin and durable yarn."
 
 "....... th-thanks......."
 
@@ -94,7 +94,7 @@ Tiese made round eyes suggesting that she was not disappointed. Prime Swordsman 
 
 Tilting her head a little, Ronye grasped Kirito's left hand and Tiese's took the right one. From the other side, Asuna took their hands and gave a slight nod, and four people formed a small circle.
 
-Immediately afterwards, the green light blinked in the center of the circle continuously and the intense wind bounced the grass radially under their legs. Unexpectedly, Ronye's body suddenly raised with the poser of wind pressure coming directly from below.
+Immediately afterwards, the green light blinked in the center of the circle continuously and the intense wind bounced the grass radially under their legs. Suddenly, Ronye's body was gently raised with the power of wind pressure coming directly from below.
 
 "Wa! Wa-wa-wa-wa-wa..!"
 
