@@ -35,7 +35,7 @@ That's fine, but no matter how few people were in the Собора’s ninety-fi
 
 — whispered Асуна и continued, smiling again:
 
-"Anyway, Ayuha-сан since her childhood wanted to become a doctor и it seems her plant research passion has rekindled after listening to the story that Кирито-kun managed to make Zefiria flower blooming in Northern Центория."
+"Anyway, Ayuha-сан since her childhood wanted to become a doctor и it seems her plant research passion has rekindled after listening to the story that Кирито-kun managed to make Zefiria flower blooming in Северной Центория."
 
 "Ah...... It is not advisable to compete against the work of Кирито-сенпай...."
 
@@ -45,9 +45,9 @@ Three days have passed since the incident in Император's domain, it was
 
 But for the Union Council people, it was totally not a time to slack off.
 
-Император Hozaica Eastabarieth of the Eastern Empire и Император Крюгер Норлангарт of the Northern Empire, who should have been eliminated a year ago, were revived in minion bodies и became deeply involved in a series of incidents. Especially, Император Крюгер who was hiding in the territory directly beside the center capital Центория и was about to proceed with mass production plan of fusion-type minions which are much stronger than the prototype; Фанатио и Дюсольберт, as well as director of intelligence Xiao Shukas, received a deep shock when learned about it.
+Император Hozaica Eastabarieth of the Восточной Empire и Император Крюгер Норлангарт of the Северной Empire, who should have been eliminated a year ago, were revived in minion bodies и became deeply involved in a series of incidents. Especially, Император Крюгер who was hiding in the territory directly beside the center capital Центория и was about to proceed with mass production plan of fusion-type minions which are much stronger than the prototype; Фанатио и Дюсольберт, as well as director of intelligence Xiao Shukas, received a deep shock when learned about it.
 
-In response to the incident, the imperial territory of the four empires и private territories were searched all over again, but there were no discoveries of any hidden property of senior aristocrats leading to the conspiracy. What was most searched was the red gem that flew away from the Император's villa to the western sky, but for the moment there were no results there, too. Since the object was jewelry not even of a human’s but only about of a bird’s egg size, it seems knights Fizel и Linel which were leading the search in the Western empire, were also struggling.
+In response to the incident, the imperial territory of the four empires и private territories were searched all over again, but there were no discoveries of any hidden property of senior aristocrats leading to the conspiracy. What was most searched was the red gem that flew away from the Император's villa to the Западной sky, but for the moment there were no results there, too. Since the object was jewelry not even of a human’s but only about of a bird’s egg size, it seems knights Fizel и Linel which were leading the search in the Западной empire, were also struggling.
 
 Another artifact remaining after Император Крюгер, the ring with the imperial house emblem, was jointly analyzed by Ayuha и Sones, the two greatest clerics in the Собора. There was no doubt that the secret of resurrection was hidden in that ring which the Император called "katashiro", but *it is a hundred times harder to extrapolate the art synopsis given only an object used as an art medium......* that’s what Sones said.
 
@@ -55,13 +55,13 @@ In other words, almost all threads leading to the conspiracy mastermind were bro
 
 The Объединённого Совета Мира Людей has decided to invite senior dark arts masters from Тёмной Территории to consult regarding clay и ring investigation, и the horse messenger was already sent to Obsidia castle. But it will take twelve days for a personal letter to reach general commander Isukan, и even if the invitation is fulfilled at all given the circumstances, it will take another two weeks for the reply to arrive from the other side.
 
-On the other hand, Ронье и Тейза, after getting scolded by knights leader Фанатио for not returning with the report as soon as they heard a sound from the villa, as a result of their great contribution to the discovery и rescue of the abducted mountain гоблинов, were told they would be promoted from the apprentice knights to the lower rank Рыцарь Целостностиs.
+On the other hand, Ронье и Тейза, after getting scolded by knights leader Фанатио for not returning with the report as soon as they heard a sound from the villa, as a result of their great contribution to the discovery и rescue of the abducted mountain гоблинов, were told they would be promoted from the apprentice knights to the lower rank Рыцари Целостности.
 
 Formal appointment was scheduled to be in early March after the Liberation Memorial Festival, but they were already given the hint on knight numbers.
 
 Following the knight Eldrie Синтез Thirty-One who died a noble death at the time of Войны с Внешним Миром, Тейза was given the number 32. и Ронье got 33.
 
-According to the tradition of Рыцарь Целостностиs, they both would have to throw away their family names, but "**Синтез**" is a sacred word meaning "a person who received the Синтез ritual", so after discussion with Кирито и Асуна, the two who were not synthesized, were left to only add the number to their names. This way, the knights Тейза Shtolienen Thirty-Two и Ронье Arabel Thirty-Three were born.
+According to the tradition of Рыцари Целостности, they both would have to throw away their family names, but "**Синтез**" is a sacred word meaning "a person who received the Синтез ritual", so after discussion with Кирито и Асуна, the two who were not synthesized, were left to only add the number to their names. This way, the knights Тейза Shtolienen Thirty-Two и Ронье Arabel Thirty-Three were born.
 
 After fighting with the Император и Зеппос, the equipment control authority of the two rose to 40, which would be totally insufficient for a member of the Order, but Ронье did not feel that they are going to be regular knights anyway.
 
@@ -148,7 +148,7 @@ When Тейза asked, Кирито groaned after drinking a gulp of apple tea.
 
 "Yes, of course Я will go see them off!"
 
-Having instantly answered, Ронье looked at the eastern sky.
+Having instantly answered, Ронье looked at the Восточной sky.
 
 The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
 
@@ -156,9 +156,9 @@ But after the old Yazen was killed, the door was closed again. In that sense, th
 
 Recalling what she heard from knight Fizel in the large public bath, Ронье returned her gaze to the profile of Премьер-Мечник:
 
-"Oh, Кирито-сенпай. It was only the Император of the Western Empire, Ardales Wesdarath V, whose corpse wasn’t found... wasn’t he?"
+"Oh, Кирито-сенпай. It was only the Император of the Западной Empire, Ardales Wesdarath V, whose corpse wasn’t found... wasn’t he?"
 
-"Yeah, Я heard that. The Western Центория Imperial Palace was burned to the ground by Фанатио-сан’s memory liberation technique...... It took them three months to remove the rubble, so even if the corpse of Император Ardales was buried there, by the time they reached insides of the castle, it should have dissolved to sacred power long time ago."
+"Yeah, Я heard that. The Западной Центория Imperial Palace was burned to the ground by Фанатио-сан’s memory liberation technique...... It took them three months to remove the rubble, so even if the corpse of Император Ardales was buried there, by the time they reached insides of the castle, it should have dissolved to sacred power long time ago."
 
 "Or he could have escaped и is hiding somewhere... no?"
 
@@ -168,7 +168,7 @@ When Асуна pointed that out, Кирито muttered with his arms folded:
 
 "However, what?"
 
-"According to Fizel и Linel's investigation, there were several former disseminated Western Empire Konoe knights order и whose current location cannot be confirmed. If they swore loyalty to the Император, Я don’t think it’d be possible to quickly move to Мира Людей Defense Army..."
+"According to Fizel и Linel's investigation, there were several former disseminated Западной Empire Konoe knights order и whose current location cannot be confirmed. If they swore loyalty to the Император, Я don’t think it’d be possible to quickly move to Мира Людей Defense Army..."
 
 "If the former knights joined the Император, it would not be difficult to get food, you may need to expand the scope of the search if it is the case."
 
@@ -274,7 +274,7 @@ The Меч Кирито put in the middle of the table was definitely the Меч
 
 Кирито had shut his heart since fighting the Первосвященник till the end of the Войны с Внешним Миром, и for a long time could not speak or walk, but he never let go of the Меч Ночного Неба и the Меч Синей Розы. But Кирито smiled и said with a voice full of a strong will:
 
-"I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but at least you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
+"I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but at lВосточной you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
 
 Encouraged by Кирито, Тейза steadily extended her hands и grasped the long Меч contained in the white leather sheath.
 
@@ -304,7 +304,7 @@ A gentle breeze passed through the garden, и the 2 o'clock bell rang lightly.
 
 "Everyone, please take a look at the main gate."
 
-They moved along the aisle as he said ─ Тейза still holding the divine object which appeared to be truly physically heavy though,─ и looked over the front garden of Собора from the southern side.
+They moved along the aisle as he said ─ Тейза still holding the divine object which appeared to be truly physically heavy though,─ и looked over the front garden of Собора from the Южной side.
 
 That time the gate, normally closed, opened wide, и large four-horse carriage came in through it.
 

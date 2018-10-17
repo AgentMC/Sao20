@@ -33,7 +33,7 @@ Although it was a crisis situation, unexpectedly Ронье bitterly smiled to h
 
 She returned a silent denial to that whispered question.
 
-While her best friend was trying the Pick of Mind, Ронье was looking over the dungeon walls, but as expected no hidden door or a destructible location could be found. It was impossible to quietly extract the Northern Empire granite stone forming a wall without even a 1 mil gap, even with the power of apprentice knights, и if you try to forcibly destroy walls or grating the sound would be transmitted to the mansion above.
+While her best friend was trying the Pick of Mind, Ронье was looking over the dungeon walls, but as expected no hidden door or a destructible location could be found. It was impossible to quietly extract the Северной Empire granite stone forming a wall without even a 1 mil gap, even with the power of apprentice knights, и if you try to forcibly destroy walls or grating the sound would be transmitted to the mansion above.
 
 Тейза who finally raised her body, sat hugging her knees и said as if to herself:
 
@@ -45,7 +45,7 @@ It was the fourth time she sighed out the same question. Still, Ронье kneel
 
 While rubbing the back of Тейза who was silently nodding, Ронье also pondered about Цукигаке inside her mind.
 
-Between the mansion и the Центория North Gate, there were some hills, but all-in-all there were just flat plains alternating with former direct jurisdiction farms. Ронье was not familiar with the state of private territories but she though there couldn’t be any animals capable of fighting small dragons there. She could not say there was absolutely no possibility of encountering an unexpected danger, so Ронье only hoped for Цукигаке to arrive safely.
+Between the mansion и the Центория Северной Gate, there were some hills, but all-in-all there were just flat plains alternating with former direct jurisdiction farms. Ронье was not familiar with the state of private territories but she though there couldn’t be any animals capable of fighting small dragons there. She could not say there was absolutely no possibility of encountering an unexpected danger, so Ронье only hoped for Цукигаке to arrive safely.
 
 *── Gods-сама.*
 
@@ -75,7 +75,7 @@ The гоблинов squeaking immediately seized. A quiet whispering voice aske
 
 After about three seconds, Зеппос answered "yes".
 
-Ронье felt it was a lie. The silence was unnatural, и he could not just release the гоблинов whom they abducted from the inn in Southern Центория with a great deal of trouble.
+Ронье felt it was a lie. The silence was unnatural, и he could not just release the гоблинов whom they abducted from the inn in Южной Центория with a great deal of trouble.
 
 But the mountain гоблинов came out of the cell without showing suspicion of doubting the words of the man.
 
@@ -147,9 +147,9 @@ As she said so in a shivering voice, Тейза who also felt the same, nodded d
 
 While muttering, Ронье gazed at the darkness behind the secret door on the other side of the grid.
 
-*Я do not know how much exactly time has elapsed, but if everything went well, about now Цукигаке would be arriving at the Northern gate of Центория. But, of course she<sup><a href="#Prim1">1</a></sup> cannot speak in human language. A gatekeeper guard will notice that Цукигаке is a little dragon, will send a message to the Собора, a report will reach someone like Кирито or Асуна, or an Рыцарь Целостности, и it will take tens of minutes for help to come to this location ──*
+*Я do not know how much exactly time has elapsed, but if everything went well, about now Цукигаке would be arriving at the Северной gate of Центория. But, of course she<sup><a href="#Prim1">1</a></sup> cannot speak in human language. A gatekeeper guard will notice that Цукигаке is a little dragon, will send a message to the Собора, a report will reach someone like Кирито or Асуна, or an Рыцарь Целостности, и it will take tens of minutes for help to come to this location ──*
 
-Moreover, the carriage which Ронье и Тейза rode on was parked on the eastern bank of the lake. It would be impossible for Премьер-Мечник or anyone else to guess that two of them are held in a dungeon of a mansion in the forest on its west bank. The only hope was to expect that Цукигаке would guide the rescue team, but it also takes time, и overall it was clear that it will take at least an hour to get help no matter how optimistic estimations are.
+Moreover, the carriage which Ронье и Тейза rode on was parked on the Восточной bank of the lake. It would be impossible for Премьер-Мечник or anyone else to guess that two of them are held in a dungeon of a mansion in the forest on its Западной bank. The only hope was to expect that Цукигаке would guide the rescue team, but it also takes time, и overall it was clear that it will take at lВосточной an hour to get help no matter how optimistic estimations are.
 
 *It would be too naïve to think that until then nothing will happen to the гоблинов that were taken to the upper floor. If we do not act now, it will be too late.*
 
@@ -195,7 +195,7 @@ Indeed, at that time Император Крюгер continued to attract their 
 
 The drawn Мечs that the two of them dropped on the floor were kicked to the other side of the door by Император Крюгер, but there was no evidence that they were taken from there to the upper floors. Should they be able to escape from the cell, there was a high chance of retrieving the Мечs back right away.
 
-*If Я have my beloved Меч, even if that one was a genuine Император Крюгер, Я do not feel like losing. But, again, Я am worried about Шимосаки. Even if there are only two enemies there, it is necessary to at least know where he is kept in the mansion in advance to rescue him with surprise attack as Тейза suggested.*
+*If Я have my beloved Меч, even if that one was a genuine Император Крюгер, Я do not feel like losing. But, again, Я am worried about Шимосаки. Even if there are only two enemies there, it is necessary to at lВосточной know where he is kept in the mansion in advance to rescue him with surprise attack as Тейза suggested.*
 
 "Тейза."
 
@@ -285,11 +285,11 @@ Three seconds have elapsed so far.
 
 A stone stairway extended up in the front wall. Grasping the naked Меч, they rushed up skipping five steps at a time.
 
-The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing north, let in plenty of sunset-colored outside light, и it was much brighter than in a small basement room. The myriad of display shelves и armor stands around the floor и walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ронье kicked off was disguised as a large shelf, и it would be difficult to find if one doesn’t know what to look for.
+The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing Северной, let in plenty of sunset-colored outside light, и it was much brighter than in a small basement room. The myriad of display shelves и armor stands around the floor и walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ронье kicked off was disguised as a large shelf, и it would be difficult to find if one doesn’t know what to look for.
 
 Seven seconds passed.
 
-There were real doors: one on the western и one on the southern walls. Since the structure of the mansion was roughly sensed with incarnational sensing, they rushed over to the western door without hesitation и kicked it open again.
+There were real doors: one on the Западной и one on the Южной walls. Since the structure of the mansion was roughly sensed with incarnational sensing, they rushed over to the Западной door without hesitation и kicked it open again.
 
 The door was blown away from the destroyed hinges и crashed against the opposite wall, but they ran ahead without worrying about it. Behind it there was a gorgeous hallway lasting long in both directions. The red wallpaper depicted a lily и a hawk.
 
@@ -301,7 +301,7 @@ Mustering together all the knight’s leg strength, Ронье, who had run thro
 
 Ten seconds.
 
-A vast room that would occupy about one-third of the first-floor area was dark. All the south side windows were covered with black curtains. It was not perfect darkness though because ten or so candles were lit in the center.
+A vast room that would occupy about one-third of the first-floor area was dark. All the Южной side windows were covered with black curtains. It was not perfect darkness though because ten or so candles were lit in the center.
 
 Candles were arranged in a circle about 2 mels in diameter, with three гоблинов lying in it. A black figure standing just outside the circle seemed to be casting some sort of an incantation. *Although we had no doubt that nothing good was happening here, now that’s surely ──*
 
@@ -379,7 +379,7 @@ She listened carefully to the weird voice, but could not understand the meaning 
 
 Ронье tried to generate new thermal elements in order to interrupt the Император's incantation while pointing the tip of the Меч of the Moonlight straight to Зеппос.
 
-But just before that, Зеппос, who was retreating to the south window covered by the curtain, pulled out two daggers with almost no sound from the sheaths attached to the leather bands on both legs. The one in the right hand was slightly larger, but the blade in the left hand was covered with some green liquid.
+But just before that, Зеппос, who was retreating to the Южной window covered by the curtain, pulled out two daggers with almost no sound from the sheaths attached to the leather bands on both legs. The one in the right hand was slightly larger, but the blade in the left hand was covered with some green liquid.
 
 *The blade in the left hand, same poison knife he pointed to Шимосаки back there in the dungeon.  
 And perhaps the one in the right hand is the knife used to take old Yazen's life.*
@@ -458,7 +458,7 @@ In front of astonished Ронье, Зеппос appeared from the dissolving smo
 
 Most of the leather bands were burned black, и some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, и beneath the skin had a hollow enough to fir two fists. But that was it. Not a single drop of blood was flowing, и his right hand holding a large knife over his head firmly received Ронье’s Меч.
 
-*Impossible. He is standing despite the body is dented to the degree that the lungs и heart should collapse.* The full-body blow with the Меч of the Moonlight, which had the priority of the Divine Object class, delivered by Ронье, who despite being an apprentice, belonged to Рыцарь Целостностиs, was stopped by one hand of a great chamberlain who wasn’t even a guard.
+*Impossible. He is standing despite the body is dented to the degree that the lungs и heart should collapse.* The full-body blow with the Меч of the Moonlight, which had the priority of the Divine Object class, delivered by Ронье, who despite being an apprentice, belonged to Рыцари Целостности, was stopped by one hand of a great chamberlain who wasn’t even a guard.
 
 Standing close to her, Зеппос burst into laughter.
 
@@ -534,7 +534,7 @@ When Ронье shouted that, Зеппос, with its belly и chest penetrated b
 
 — this time Тейза exclaimed in surprise.
 
-Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Northern Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
+Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Северной Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
 
 *But Зеппос said that the Императорs of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
 
@@ -560,11 +560,11 @@ A horrible monologue, followed by an annoying laughter.
 
 *The one who became a great chamberlain of the imperial house, should have had a position и power comparable to the senior nobility. Such a person, what could he be jealous of the two who are barely apprentice knights?......* this thought really took her aback.
 
-But it was not Тейза и Ронье as individuals that Зеппос was jealous of. It was the very existence of Рыцарь Целостностиs. Immortals whose Life was frozen, living for eternity ──
+But it was not Тейза и Ронье as individuals that Зеппос was jealous of. It was the very existence of Рыцари Целостности. Immortals whose Life was frozen, living for eternity ──
 
-For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцарь Целостностиs overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Церковь Аксиом, even Император was not allowed to reveal antipathy.
+For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцари Целостности overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Церковь Аксиом, even Император was not allowed to reveal antipathy.
 
-However, Рыцарь Целостностиs suffered the Рыцарь Целостностиs’ troubles. Ронье knew that since entering Собора.
+However, Рыцари Целостности suffered the Рыцари Целостности’ troubles. Ронье knew that since entering Собора.
 
 Those whose Lives have been frozen must go through repeated separation from the others who do not live indefinitely. For example, knights’ head Фанатио. She is forever young person who have lived for more than two hundred years, but Berchie, her son, is not the same. Unless someone resurrects the Life freeze Sacred Art lost with the death of the Первосвященник ── и unless Фанатио chooses to apply it to Berchie, her son will definitely get older than his mother и will eventually die. What an unbelievably cruel fate for both.
 
@@ -580,7 +580,7 @@ Those whose Lives have been frozen must go through repeated separation from the 
 
 Black blood scattered from his mouth pronouncing curses.
 
-*Even if Зеппос is minion as Тейза guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged и belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood at least appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
+*Even if Зеппос is minion as Тейза guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged и belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood at lВосточной appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
 
 Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, и the other one was split in two with the Меч-like hand slash by the ambassador Шейта. With skills of Ронье и the other one, it was difficult to give a fatal injury ── Кирито и others would call it "**damage**", but if one can slip through two knives и slash one of the limbs then there is a winner.
 
@@ -594,7 +594,7 @@ But the problem was Император Крюгер whom Зеппос was trying
 
 The Меч power, the sacred art power, и the incarnational power of the two were at the same levels. Тейза for sure would not want to impose a dangerous role on Ронье. However, there was a big difference between the two of them outside of their abilities. Тейза's Мира Людей army standard Меч must have had priority 25 и Ронье's Меч of the Moonlight’s priority was 39 — so it was Ронье who had to strike.
 
-"...... certainly, neither Рыцарь Целостностиs nor the Церковь Аксиом may be absolutely correct."
+"...... certainly, neither Рыцари Целостности nor the Церковь Аксиом may be absolutely correct."
 
 — while raising her beloved Меч overhead, Ронье shouted, —
 
@@ -779,7 +779,7 @@ With a painful look, Тейза brought the mouth close to Ронье's ears и 
 
 That was exactly right. Mountain гоблинов are integral parts of minions и they could be killed by slashing through; и even if they with Ронье decide that they should do so, there is high possibility that their bodies won’t obey the intention. The "seal of the right eye" ──
 
-However, it was not limited to them. Other Рыцарь Целостностиs, и even guards of the Мира Людей Defense Army who share the same iron rule: "In order to protect the peace between Мира Людей и Тёмной Территории, we must never injure a sub-human"<sup><a href="#Prim6">6</a></sup>, will fall into the same situation.
+However, it was not limited to them. Other Рыцари Целостности, и even guards of the Мира Людей Defense Army who share the same iron rule: "In order to protect the peace between Мира Людей и Тёмной Территории, we must never injure a sub-human"<sup><a href="#Prim6">6</a></sup>, will fall into the same situation.
 
 What if there are not only these three?
 
@@ -797,7 +797,7 @@ Instead of sub-humans, they could convert Мира Людей people into minion
 
 Today, there will be at most two hundred or three hundred tourists from Тёмной Территории staying in Мира Людей. Even if they somehow abduct all of them, that would be the upper limit for the number of minions that can be made. However, the total population of Мира Людей exceeds 80000. With the clay as the material, one can prepare as many bodies as they need.
 
-After Мира Людей people get transformed into minions, Рыцарь Целостностиs will not be able to fight any of them.
+After Мира Людей people get transformed into minions, Рыцари Целостности will not be able to fight any of them.
 
 After controlling the Объединённого Совета Мира Людей with an army of minions, it would be even possible to invade the Тёмной Территории и even defeat the Тёмной Территории army. It is nothing more but the return of "Меч skeleton soldiers plan" that the Первосвященник Администратор had been attempting.
 
@@ -827,7 +827,7 @@ Listening to that interaction, Ронье finally realized who it was.
 
 One who lost his life in the Rebellion of Four Empires, the Император of the Eastabarieth Empire.
 
-However, Император Крюгер misunderstood something. In the battle of a year ago Ронье и Тейза rushed into the Northern Центория Imperial castle, и never stepped into the East Центория. They were knight Nergius и knight Entokia who attacked the Eastern Центория Imperial castle и slashed Император Hozaica.
+However, Император Крюгер misunderstood something. In the battle of a year ago Ронье и Тейза rushed into the Северной Центория Imperial castle, и never stepped into the Восточной Центория. They were knight Nergius и knight Entokia who attacked the Восточной Центория Imperial castle и slashed Император Hozaica.
 
 In the first place, there were only three people, including Зеппос who died a few minutes ago, whom Ронье defeated using a secret move. The first one was the Император Крюгер, и the second one was a black robe kidnapper whom she fought on the top floor of Obsidia Castle.
 
@@ -887,7 +887,7 @@ That red gemstone is the heart of a gigantic conspiracy intertwining Мира Л
 
 "After slashing the Император, гоблинов may return to the original."
 
-It was a slight hope, but at least they can earn some time if there is no one to control them.
+It was a slight hope, but at lВосточной they can earn some time if there is no one to control them.
 
 The problem was that the poison hasn’t come out of the wounds above the right knee и right instep. Strong posture was essential for secret Меч moves, as well as to release several whole-body blows. Still there was no choice but to try.
 
@@ -903,7 +903,7 @@ She moved the fingers of both hands и feet a little again, to confirm that the 
 
 While talking, he went in the back. Probably, the intention was for minions to kill them.
 
-The prototype minions, which Император Hozaica used in Obsidia Castle, accepted limited set of very simple commands in sacred words or Тёмной Территории people words. Moreover, their thinking power was at a wild beast degree, it could not deal with Рыцарь Целостностиs' Меч skill и complicated tactics that make use of Sacred Art. At the time of the Войны с Внешним Миром, 800 precious minions introduced by the Dark Arts Masters Guild could not recognize the trap of full armament control technique that the knight chief Беркули set up, и all of them were destroyed in a blink of an eye.
+The prototype minions, which Император Hozaica used in Obsidia Castle, accepted limited set of very simple commands in sacred words or Тёмной Территории people words. Moreover, their thinking power was at a wild bВосточной degree, it could not deal with Рыцари Целостности' Меч skill и complicated tactics that make use of Sacred Art. At the time of the Войны с Внешним Миром, 800 precious minions introduced by the Dark Arts Masters Guild could not recognize the trap of full armament control technique that the knight chief Беркули set up, и all of them were destroyed in a blink of an eye.
 
 *The time at which the fusion-type minions incorporating the гоблинов inside have evolved above the original has probably come. They must be able to understand more advanced и diverse instructions. But of course, it will take time to give multiple orders. Take advantage of the chance и kill the Император that moment.*
 
@@ -995,7 +995,7 @@ Minion with all his force mowed through Тейза's body which was attacked by 
 
 She tried hard but couldn’t activate the art with the lack of voice. The left barely holding Тейза’s wounds already dyed red up to the wrist.
 
-Рыцарь Целостностиs had much higher armor и equipment authority и Sacred Art authority than the Мира Людей guards, и they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ронье и Тейза who were only 17 years old had just about 3000<sup><a href="#Prim8">8</a></sup>.
+Рыцари Целостности had much higher armor и equipment authority и Sacred Art authority than the Мира Людей guards, и they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ронье и Тейза who were only 17 years old had just about 3000<sup><a href="#Prim8">8</a></sup>.
 
 Even if she couldn’t say it aloud, the Stacia’s window could be displayed if she draws the sacred character. However, Ронье did not have the courage to see the Тейза's remaining Life amount. Just dropping tears down, she held the wound with her left hand, continuing attempts to pronounce the incantation.
 
@@ -1121,7 +1121,7 @@ The vast mansion was completely decomposed, leaving only the floor in only a mat
 
 Immediately afterwards, a myriad of building blocks floating outside the floor dropped with tremendous roar.
 
-When the echo of thunderous destruction sound fell, Ронье was not in the mansion anymore. Her feet were still in a dark carpet, but the evening reddening sky spread overhead. The lower edge of crimson Solus touched the Mountain Range at the Edge; the northern wind still full of winter coldness shook hair of the two.
+When the echo of thunderous destruction sound fell, Ронье was not in the mansion anymore. Her feet were still in a dark carpet, but the evening reddening sky spread overhead. The lower edge of crimson Solus touched the Mountain Range at the Edge; the Северной wind still full of winter coldness shook hair of the two.
 
 Three minions и Император Крюгер froze, stunned. If it had been an original minion that simply obeys instructions, it would have continued attacking without any concern for changes around, but because the fusion type one had a kind of consciousness, it seemed to be confused about what to do.
 
@@ -1133,7 +1133,7 @@ Suddenly a faint voice reached her left ear. Then at last the thinking ability r
 
 "Тейза......!"
 
-Her best friend regained consciousness, but was not looking at Ронье. Her autumn leaves-colored eyes did not move away from a point in the southern sky.
+Her best friend regained consciousness, but was not looking at Ронье. Her autumn leaves-colored eyes did not move away from a point in the Южной sky.
 
 Ронье looked up too, filled with curiosity.
 
@@ -1179,7 +1179,7 @@ Suddenly the surroundings rapidly darkened.
 
 In the beginning, Ронье thought that the streams from minions’ mouths blocked the sunlight. But she quickly understood that was not the case. It was not only in the vicinity of minions that it got dark. The forest surrounding the mansion sank in black shadows, despite a bright scarlet illuminating it moments ago. The sunset sky became dark purple, и even some stars were twinkling in it.
 
-And even Solus floating just above the western horizon lost its light as if it had been dimmed by Lunaria.
+And even Solus floating just above the Западной horizon lost its light as if it had been dimmed by Lunaria.
 
 Within this suddenly fallen night, there was only one intensely shining thing.
 
@@ -1191,7 +1191,7 @@ It seemed that Император Крюгер was also frightened by the new su
 
 Three minions thrusted up heads that froze a moment и vigorously launched a shining purple light stream.
 
-Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward the miasmic mass that rushed at them with a strange sound reminiscent of the beast scream, Кирито sharply swung the Меч Ночного Неба down.
+Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward the miasmic mass that rushed at them with a strange sound reminiscent of the bВосточной scream, Кирито sharply swung the Меч Ночного Неба down.
 
 The vision of Ронье burned pure white.
 
@@ -1313,7 +1313,7 @@ She left beloved Меч to Кирито и hugged the little dragon firmly with 
 
 Looking closely, she saw mud that stuck to the feathers of Цукигаке и blood here и there, и that the fluffy tail feathers have fallen out miserably. *No matter how far Центория is, Я could never imagine it would be like this just by running through meadows и fields. Цукигаке surely made a hard work guiding Кирито here.*
 
-As she gently stroked the little dragon who was chirping “ku~, ku~”, they heard a shrill chirp from the eastern side of the forest.
+As she gently stroked the little dragon who was chirping “ku~, ku~”, they heard a shrill chirp from the Восточной side of the forest.
 
 Light-blue fur ball jumped out of bushes и rushed to them. When it reached the floor surface by slipping through the remains of the mansion piled up in the front yard, it crashed into Тейза.
 
@@ -1329,13 +1329,13 @@ Light-blue fur ball jumped out of bushes и rushed to them. When it reached the 
 
 "............!?"
 
-In response to several surprised looks trying to find a source of the voice, a much smaller creature, a little smaller than the young dragons, came out of Кирито's coat, ran up и sat down on his head. A brown beast with profusely long ears, something between a rabbit и a rat, look around at everyone и as if complaining of something again cried "Kyu!!!".
+In response to several surprised looks trying to find a source of the voice, a much smaller creature, a little smaller than the young dragons, came out of Кирито's coat, ran up и sat down on his head. A brown bВосточной with profusely long ears, something between a rabbit и a rat, look around at everyone и as if complaining of something again cried "Kyu!!!".
 
 ".......K-Кирито-сенпай, what is that thing?"
 
 When she asked in surprise, Кирито turned his eyes towards the rat on his head и said:
 
-"Well, that is....... When we flew above the field in the southern part of former private territories, Цукигаке was fighting a beast named something like anaguma......."
+"Well, that is....... When we flew above the field in the Южной part of former private territories, Цукигаке was fighting a bВосточной named something like anaguma......."
 
 "Я guess, that's not ‘anaguma’ but ‘hanaguma’."
 
@@ -1387,7 +1387,7 @@ Suddenly, **bakin!** — impact-like sound echoed.
 
 The chain that it was pulled with by the power of mind seemed to break apart.
 
-And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Western Empire Wesdarath.
+And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Empire Wesdarath.
 
 ## Footnotes:
 
@@ -1398,6 +1398,6 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 4. <a name="Prim5"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
 5. <a name="Prim6"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
 6. <a name="Prim7"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim8"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using western notation, e.g. 3000.
+7. <a name="Prim8"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
 8. <a name="Prim9"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
 10. <a name="Prim10"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.

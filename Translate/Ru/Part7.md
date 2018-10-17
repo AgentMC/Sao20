@@ -37,23 +37,23 @@ Without that Yui’s actions, the Мира Людей Defense Forces led by Ас
 
 Кирито muttered as if feeling Асуна's thoughts. He tapped her back with the hand that was stroking the hair, took some nuts и fruit from the wooden tray, opened the mouth wide и crunched them. Underworld was a virtual world, but unlike Incrad, when the hungry state lasts, Life level begins to decrease и the lack of nutrition eventually leads to a disease, so food was as important as in the real world.
 
-The on-the-spot survey in the Southern Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Индекс Табу which forbids the faking of any signs и signatures, of course.
+The on-the-spot survey in the Южной Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Индекс Табу which forbids the faking of any signs и signatures, of course.
 
 However, the man who killed the old Yazen with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Индекс Табу. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
 
-Investigation in the administration ended after the noon, и as a result Southern Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Southern Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
+Investigation in the administration ended after the noon, и as a result Южной Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Южной Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
 
-In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Yazen’s murder case, pleaded them to remain in the Собора. Then they wanted to at least gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
+In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Yazen’s murder case, pleaded them to remain in the Собора. Then they wanted to at lВосточной gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
 
 Even Ayuha Furia, one of the Underworld best arts masters, could not use Past Reflection, и the reason it worked for Асуна, although for a very short period of time, as Ayuha speculated, was related to the power of God Stacia.
 
-Асуна repeatedly explained that she was the Real World person и not a reincarnation of genesis goddess Stacia, but not only staff и clerics of Собора, even Рыцарь Целостностиs did not appear to be entirely convinced. In order to prevent the misunderstanding from spreading any further, she attempted not to use "unlimited terrain manipulation ability" as much as possible... but while trying to prevent the Кирито machine dragon from crash just one week ago, she have shifted the upper floor of Собора sideways.
+Асуна repeatedly explained that she was the Real World person и not a reincarnation of genesis goddess Stacia, but not only staff и clerics of Собора, even Рыцари Целостности did not appear to be entirely convinced. In order to prevent the misunderstanding from spreading any further, she attempted not to use "unlimited terrain manipulation ability" as much as possible... but while trying to prevent the Кирито machine dragon from crash just one week ago, she have shifted the upper floor of Собора sideways.
 
 Anyway, Ayuha thought that the spirit of Асуна was tolerant to some extent to excessive information throughput и hence she could endure the Past Reflection. In fact, the burden of the technique itself did not decrease, Асуна could use it because she strongly believed in herself, и because she was aware that the safety of the mountain гоблинов is a major problem directly linked to the crisis of all Мира Людей, or all Underworld.
 
 As in the case of old man Yazen killed in Мира Людей, the criminal who abducted the three people for sure was preparing a similar situation, that if three of them were found dead, the peace between two worlds finally getting its shape would receive a devastating blow.
 
-If the mountain гоблинов are not found during the search of the whole city of South Центория, there was only one way remaining. Again, at that inn, Асуна would have to use Past Reflection to examine the destination of the carriage. But this was problematic. Since it was impossible to move during the ceremony, it was necessary to repeatedly move to the point where the carriage in the crystal plate becomes invisible и see through the past again, but yesterday she used it once и that seemed to be enough for her to collapse. Асуна did not know how many times she could invoke the art, even taking breaks.
+If the mountain гоблинов are not found during the search of the whole city of Южной Центория, there was only one way remaining. Again, at that inn, Асуна would have to use Past Reflection to examine the destination of the carriage. But this was problematic. Since it was impossible to move during the ceremony, it was necessary to repeatedly move to the point where the carriage in the crystal plate becomes invisible и see through the past again, but yesterday she used it once и that seemed to be enough for her to collapse. Асуна did not know how many times she could invoke the art, even taking breaks.
 
 Кирито had a concerned look because he strongly hoped that the гоблинов will be secured before the Past Reflection is needed. However, those hopes were gradually disappearing. Even though two и a half hours have already passed since the search began, not the missing three people, even the horse carriage used for abduction, have not been found.
 
@@ -81,7 +81,7 @@ Memories of childhood reviving vividly made her to forget recent sorrow, и Ас
 
 "Where is the lake that they two went to?"
 
-"Err, well, Я guess it is not in the Northern Empire Император's domain. Looks like the ice hasn’t melted yet...... although............"
+"Err, well, Я guess it is not in the Северной Empire Император's domain. Looks like the ice hasn’t melted yet...... although............"
 
 As Кирито's word slowed down и broke off, Асуна tilted her head и looked at him.
 
@@ -91,15 +91,15 @@ As Кирито's word slowed down и broke off, Асуна tilted her head и l
 
 It was clear that the subject of the words were missing гоблинов. Асуна instantly shook her head.
 
-"It is impossible. Since Yazen's incident occurred, people и horse-drawn carriages passing through Great Southern Центория Gate are strictly checked up to the contents of the luggage. No matter how small the гоблинов were, Я cannot imagine anyone missing the three people on board... besides, all of them must have been either restrained or unconscious."
+"It is impossible. Since Yazen's incident occurred, people и horse-drawn carriages passing through Great Южной Центория Gate are strictly checked up to the contents of the luggage. No matter how small the гоблинов were, Я cannot imagine anyone missing the three people on board... besides, all of them must have been either restrained or unconscious."
 
-"Yup, Я think that it is impossible to go through the South Gate, but...... what about other gates?"
+"Yup, Я think that it is impossible to go through the Южной Gate, but...... what about other gates?"
 
 She stared at the face of Кирито who quickly responded with another question.
 
-"... You mean that the carriage has crossed the Timeless Wall и moved to Eastern Центория or Western Центория.......?"
+"... You mean that the carriage has crossed the Timeless Wall и moved to Восточной Центория or Западной Центория.......?"
 
-"Or it did so twice, to get to Northern Центория."
+"Or it did so twice, to get to Северной Центория."
 
 "Uh-hu...."
 
@@ -115,19 +115,19 @@ Because of that perception, Асуна has never imagined someone could be able 
 
 Кирито continued after Асуна’s murmuring:
 
-"....... Kidnappers were able to fake the transport orders of the South Центория administration. Copper passes would be difficult to fake, but if it is a parchment permit....... ── In which case, the *modus operandi* finally becomes similar to that of Obsidia..."
+"....... Kidnappers were able to fake the transport orders of the Южной Центория administration. Copper passes would be difficult to fake, but if it is a parchment permit....... ── In which case, the *modus operandi* finally becomes similar to that of Obsidia..."
 
 The "black robe man" who kidnapped Ambassador Шейта’s и Commander Isukan’s daughter Lisetta, was hiding on the top floor of Obsidia Castle that everyone thought was impossible to make a way into. The reason that person could enter и exit the top floor seemed to have not been clarified yet. However, the behavioral pattern was indeed very similar to the abduction of mountain гоблинов this time.
 
 For a moment Кирито tightened lips, then quickly stood up.
 
-"Let's extend the search of the гоблинов to the Northern, Eastern, Western Центория и the former private territories in the suburbs."
+"Let's extend the search of the гоблинов to the Севернойern, Eastern, Западной Центория и the former private territories in the suburbs."
 
 "Well..."
 
-Асуна also stood up, turning her gaze to the south window.
+Асуна also stood up, turning her gaze to the Южной window.
 
-Southern Центория's red sandstone townscape was illuminated by afternoon sunlight. The sky in the west was already dyed gold.
+Южной Центория's red sandstone townscape was illuminated by afternoon sunlight. The sky in the Западной was already dyed gold.
 
 "... Look, it’s evening already. Is it not difficult to search outdoors in the night? Not to mention that private territories are quite vast... "
 
@@ -157,15 +157,15 @@ It was Ayuha Furia wearing white robe who said first:
 
 Quickly answering this way, she somehow stopped the clerics leader who already began to stand up. Then, Фанатио, who was unusually lightly equipped<sup><a href="#Prim2">2</a></sup> this time, said towards Кирито:
 
-"Prime-dono, I'm sorry, but Я have not received any good news yet. The search over the South Центория came up from district ten to mansions in district three, и so fat it looks like this area will be a no-hit as well."
+"Prime-dono, I'm sorry, but Я have not received any good news yet. The search over the Южной Центория came up from district ten to mansions in district three, и so fat it looks like this area will be a no-hit as well."
 
 *The word "no-hit" which means that the effort is wasted should have come from baseball*<sup><a href="#Prim3">3</a></sup>, Асуна thought, *but what it originated from in Underworld where the game does not exist — anyway it is not the case that Я care about such a thing now.*
 
-"Here’s the thing, Фанатио-сан.",— Асуна said, sitting down on the chair at her place at the table,— "Я think there is a possibility that a horse-drawn carriage containing mountain гоблинов went out of the South Центория through the gate in Timeless Wall."
+"Here’s the thing, Фанатио-сан.",— Асуна said, sitting down on the chair at her place at the table,— "Я think there is a possibility that a horse-drawn carriage containing mountain гоблинов went out of the Южной Центория through the gate in Timeless Wall."
 
 The moment she said so the wide conference hall became silent.
 
-In addition to Ayuha и Фанатио, knight Renri, knight Nergius и knight Entokia were the ones who at that time were at the round table. The knight Дюсольберт was at the temporary headquarters established in the South Центория fifth district, и the intelligence department director Xiao Shukas seemed to be searching independently with her own men.
+In addition to Ayuha и Фанатио, knight Renri, knight Nergius и knight Entokia were the ones who at that time were at the round table. The knight Дюсольберт was at the temporary headquarters established in the Южной Центория fifth district, и the intelligence department director Xiao Shukas seemed to be searching independently with her own men.
 
 It was Entokia, which was surprisingly talkative as for the senior knight, who began first:
 
@@ -193,13 +193,13 @@ The knight nodded the head with bluish short hair to Кирито's question:
 
 Nergius abruptly breathed in, perhaps, intending to protest the way Фанатио addressed him, but barely sighed as if he had given up. Instead, Ренри spoke after raising his hand:
 
-"But Кирито-сан, if the kidnappers passed the Gates of the Four Seasons...... Great Gates other than the one of Southern Центория didn’t have examination for the luggage in carriages until now, so is there a possibility that they have already left the Central Capital......?"
+"But Кирито-сан, if the kidnappers passed the Gates of the Four Seasons...... Great Gates other than the one of Южной Центория didn’t have examination for the luggage in carriages until now, so is there a possibility that they have already left the Central Capital......?"
 
 "That is so."
 
 — Кирито nodded to a young knight и kept on speaking:
 
-"Я think that the search for the гоблинов needs to include the former private territories outside the city and, in addition, the cities of Eastern, Western и Northern Центория. However, it is quickly getting dark...."
+"Я think that the search for the гоблинов needs to include the former private territories outside the city and, in addition, the cities of Eastern, Западной и Северной Центория. However, it is quickly getting dark...."
 
 "Let's prepare for the search of private territories to be able to begin with dawn. The city one will start at once, I’ll lead myself."
 
@@ -221,15 +221,15 @@ Although he asked for permission, Фанатио и Дюсольберт who wer
 
 "Where else do you plan to go to?"
 
-"Actually, the apprentice knights Ронье и Тейза have left for the lake in the Northern Empire Император's domain. Something about teaching dragons to catch fish......."
+"Actually, the apprentice knights Ронье и Тейза have left for the lake in the Северной Empire Император's domain. Something about teaching dragons to catch fish......."
 
 "Ah, is it a correction of unbalanced diet?"
 
 When Nergius nodded, Entokia stretched his lips in a smile:
 
-"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the South Empire’s jungle where we were going to find the best sweet potato in this world..."
+"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the Южной Empire’s jungle where we were going to find the best sweet potato in this world..."
 
-"Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the lake in the area to the north, it is Lake Norkia. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
+"Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the lake in the area to the Северной, it is Lake Norkia. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
 
 "Well, what if so? From the nature of those two people, if they see a suspicious carriage, Я think they would try to find out only by themselves..."
 
@@ -237,7 +237,7 @@ When Nergius nodded, Entokia stretched his lips in a smile:
 
 "Since it is just ten kilometers to Lake Norkia, Я will just briefly check with them и come back. I’ll return in one hour... no, even in 45 minutes."
 
-Saying that, Кирито quickly stood up. It is probably because he planned to go to the lake by the flight technique from the high floor of the Собора, instead of the big South staircase, he went to the elevator shaft at the North. That moment, Асуна also rose from the seat.
+Saying that, Кирито quickly stood up. It is probably because he planned to go to the lake by the flight technique from the high floor of the Собора, instead of the big Южной staircase, he went to the elevator shaft at the Северной. That moment, Асуна also rose from the seat.
 
 "I’ll go, too!"
 
@@ -279,7 +279,7 @@ In the past, the elevator shaft was only connecting floors from fiftieth to eigh
 
 Yesterday they had lunch here with Ронье, Тейза и chef Hana who joined them, but as the evening was approaching, the hanging flower pots looked differently. The inclined sunlight entering directly from the outside appeared reminiscent — of course, at the much smaller scale — of the atmosphere of evening scenes in the floating castle of Incrad.
 
-Асуна used to like seeing sunsets from this place, but they didn’t have time for it. She entrusted her body to the right arm of Кирито who rushed to the northern opening:
+Асуна used to like seeing sunsets from this place, but they didn’t have time for it. She entrusted her body to the right arm of Кирито who rushed to the Северной opening:
 
 "Ehm... Я understand we are in a hurry, but will it be safe driving?"
 
@@ -287,7 +287,7 @@ Just returning a silent smile to Асуна's question, Кирито transformed
 
 *It seems, he is going to fly with a quiet incarnational flight technique, not the aerial elements flight technique that gives speed but also a loud noise......* as she got a little relieved, Кирито casually kicked off the floor. With black wings vigorously flapping, they softly floated in the air ──
 
-The next moment, two people flew the sky with a tremendous momentum that was several times higher than the acceleration of the elevator when using six aerial elements. The cruel air current hit the face as the tallest tower of the Northern Центория Imperial Palace approached. She knew it was much lower than Собора, but they passed over it she closed eyes.
+The next moment, two people flew the sky with a tremendous momentum that was several times higher than the acceleration of the elevator when using six aerial elements. The cruel air current hit the face as the tallest tower of the Северной Центория Imperial Palace approached. She knew it was much lower than Собора, but they passed over it she closed eyes.
 
 *If you can speed up so far with incarnation, what will happen if you use aerial elements flying technique at full power......?* After considering it, Асуна remembered that once she had experienced the same.
 
@@ -310,7 +310,7 @@ As if he had been waiting for it, the field of vision suddenly gleamed bright gr
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>Prefecture in the northern Honshu, 23% of it's territory consists of natural parks.
+1. <a name="Prim1"></a>Prefecture in the Северной Honshu, 23% of it's territory consists of natural parks.
 2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, и light dress. Choose your poison.
 3. <a name="Prim3"></a>Originally 空振り, “karaburi”, coming from 空振り三振 “карабури san-shin”, which means “strikeout”. But since shortening strikeout to “strike” would rather associate with corresponding bowling term, which has opposite meaning, Я just picked up something applicable by nature, “no-hit game”.
 4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsikigake name of which does NOT end with -i.

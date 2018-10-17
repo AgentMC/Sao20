@@ -160,7 +160,7 @@ Although the passage requirements of the gates have been eased considerably by t
 
 While thinking this way, Ronye walked on the "Autumn Wall".
 
-Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, and nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ronye's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
+Since the wall had a width of 4 mel, there was no worry that one may fall unless approaching the edge, and nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ronye's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
 
 On the left side of the wall there was a South Centoria mainly made of reddish sandstone, and to the right was West Centoria built with blackish slate. The two towns separated by a single wall differed not only in color but also in the design of the build-up. Spacious Southern Centoria's houses built from cut square red sandstone blocks produced a liberating opening feeling, while built from thinly sliced precisely and carefully matched pieces of slate building of West Centoria with their roofs covered with neatly arranged tiles shaped alike to dragon scales, stood without much clearance, but the effort invested in those houses welcomed the awe of craftsmanship.
 
@@ -198,7 +198,7 @@ Asuna replied to Kirito’s question without changing the facial expression.
 
 Kirito murmured and a look appeared on his face as if he remembered something, but immediately he rushed it away and put his face close to the map that Asuna unwrapped.
 
-"Let’s see, this is the 4th district... this one is that street? So, what is it that the inn is here...?"
+"Let’s see, this is the 4th district... this one is that street? So that is it that the inn is here...?"
 
 He raised his head and looked at the eastern side of the wall again.
 
@@ -226,7 +226,7 @@ Asuna murmured that and straightened both hands towards Ronye and Tiese.
 
 Tiese squeezed lips and took Asuna’s hand with the same determination as Ronye did a bit ago, so Ronye followed and grabbed Asuna's left hand. Surprisingly delicate, the silky smooth slightly warm hand clenched Ronye's right hand tightly, and the next moment Asuna kicked off the marble wall as easy as Kirito did.
 
-Their bodies were gently raised — for a moment, and them three people immediately began to fall straight down. The wind groaned violently in their ears. The wish to cry out loudly was overflowing, but somebody might notice that, so she clenched teeth and kept silent.
+Their bodies were gently raised — for a moment, and then three people immediately began to fall straight down. The wind groaned violently in their ears. The wish to cry out loudly was overflowing, but somebody might notice that, so she clenched teeth and kept silent.
 
 No matter if one is an Integrity Knight apprentice, they won’t be alive after falling from a height of 50 mel to a hard cobblestone. *I believe in you, senpai!* In her mind Ronye cried without saying a sound aloud.
 
@@ -234,7 +234,7 @@ Kirito standing near the falling point lifted both hands into a bowl-like shape.
 
 The feeling of something soft and transparent wrapped around their bodies. The falling speed gradually slowed down, the sound of wind weakened. Kirito accepted the three people with an "arm of mind".
 
-Even the senior Integrity Knights are limited to as much as moving a single dagger with this technique, it must be a terrible power of mind to allow to slow down the falling of three at the same time. When the ground approached just under ten centimeters, Kirito opened his hands and three people landed steadily. After letting out several nervous and long breathes, Ronye asked their leader.
+Even the senior Integrity Knights are limited to as much as moving a single dagger with this technique, it must be a terrible power of mind to allow to slow down the falling of three at the same time. When the ground approached just under ten cen, Kirito opened his hands and three people landed steadily. After letting out several nervous and long breathes, Ronye asked their leader.
 
 "....... Um, senpai, if you can do such thing, wouldn’t it be simpler to use just incarnation instead of aerial elements when we climbed the wall…?"
 

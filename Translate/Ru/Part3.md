@@ -160,103 +160,103 @@
 
 Размышляя в таком ключе, Ронье шагала по "Осенней Стене".
 
-## Продолжение следует...
+Благодаря тому, что ширина стены была 4 мела, не было опасности упасть с неё, и с земли фигуры четверых людей были незаметны. Холодный ли ветер унёс прочь мысли Ронье, или что-то другое, но она просто шагала вперёд, отстранённо разглядывая окружающий пейзаж.
 
-<!--Since the wall had a width of 4 mel, there was no worry that one may stumble unless approaching the edge, и nobody could see the figures of the four from the ground. Perhaps it was the cold wind that blew Ронье's thoughts away, so she just walked ahead absent-mindedly observing the scenery.
+По левую сторону от стены лежала Южная Центория, построенная в основном из красного песчаника, а по правую была Западная Центория, выстроенная из тёмного сланца. Два города, разделённые единственной стеной, отличались не только цветом, но и дизайном застройки. Обширные дома Южной Центории, построенные из вырезанных квадратных блоков красного песчаника, порождали чувство открытости и свободы; в то время как выстроенные из тонких точно нарезанных и аккуратно подогнанных кусков сланца строения Западной Центории с их крышами, выстланные плотно подогнанными плитками в форме драконьих чешуек, стояли весьма близко друг от друга, хотя усилия, вложенные в эти постройки, вызывали восхищение искусством создавших их.
 
-On the left side of the wall there was a South Центория mainly made of reddish sandstone, и to the right was West Центория built with blackish slate. The two towns separated by a single wall differed not only in color but also in the design of the build-up. Spacious Southern Центория's houses built from cut square red sandstone blocks produced a liberating opening feeling, while built from thinly sliced precisely и carefully matched pieces of slate building of West Центория with their roofs covered with neatly arranged tiles shaped alike to dragon scales, stood without much clearance, but the effort invested in those houses welcomed the awe of craftsmanship.
+Кирито упоминал, что в дополнение к разнице в архитектуре, четыре части Центории обладают совершенно разными предпочтениями в еде. Ронье и Тейза были вольны посещать любой из четырёх городов, возникни у них такое желание, но почему-то когда им становилось скучно и они решали выйти в город, обычно дело оканчивалось их родной Северной Центорией.
 
-Кирито said that in addition to the appearance of buildings the four Центория cities have completely different tastes of food. Ронье и Тейза were free to enter any of the four cities should they wish, but somehow when they got bored и decided to go out to the city they usually went to their native Northern Центория.
+*Но Рыцари Целостности, что должны охранять мир по всем четырём империям, не могут себе позволить и подобной малости*, — Ронье снова почувствовала желание поговорить с Тейзой, шагавшей рядом, но ведущий их Кирито остановился прежде, чем она смогла это сделать.
 
-*But Рыцарь Целостностиs expected to guard the peace all over four empires could not do even such a thing*, Ронье again felt the need to talk to Тейза walking along, but Кирито leading them stopped ahead before she could.
+"Так, это четвёртый район... где-то здесь должна быть таверна......."
 
-"Now, this is the fourth district... somewhere here should be the inn......."
+Пробормотав это, он обвёл взглядом улицы Южной Центории. Ронье тоже развернулась и стала смотреть на красно-коричневый городской ландшафт.
 
-As he muttered this he looked around the streets of South Центория. Ронье also turned around и watched the red-brown cityscape.
+*Таверна, таверна.......* какое-то время поразглядывав город, повторяя это про себя, Ронье осознала, что она ещё не была в таверне, бывшей местом происшествия. Четыре дня назад, когда в Собор прибыло сообщение, горный гоблин Орои, которого уже посчитали преступником, был заключён в здании стражи, так что Кирито отправился прямо туда.
 
-*Inn, inn.......* after viewing the city for a while repeating that in her mind, Ронье understood she has never been to the inn that was the scene of the incident. Four days ago, when a message arrived at Собора, the mountain гоблин Орои who was already considered the criminal was imprisoned in the Guards office, so Кирито went straight there.
+"...... эм, сенпай, вы сюда пришли не зная расположения таверны?"
 
-"...... Um, Сенпай, did you come here without knowing the location of the inn?"
+— прошептала Ронье, и Кирито кивнул ей, повернув лицо вправо.
 
-Ронье whispered that, и Кирито nodded to her turning his face to the right.
+"Ээээ, эм, видишь ли, у таверны должна быть вывеска ‘INN’, но смотря сверху его не так-то просто заметить..."
 
-"Err, um, well. You see, there should be a signboard ‘**INN**’ by the inn, but it’s not that easy to notice looking from the top..."
+"Взгляните, сенпай, эти дома огромные как горы, вряд ли вывеску будет легко увидеть!"
 
-"Look Сенпай, these buildings are so big like mountains, it’s unlikely they will have a signboard conveniently visible!"
+На верное замечание Тейзы, Кирито кивнул "точно......", повернувшись влево. Наблюдавшая за всем этим Асуна вздохнула и вытащила из плаща сложенный лист бумаги.
 
-To Тейза's fair remark, Кирито nodded "right......" turning to the left. Асуна sighed watching it и took out a folded piece of paper from her cloak.
+Это бала, конечно же, не обёрточная бумага, а большая карта, которую та быстро открыла.
 
-It was of course not a paper wrapping but a large map, which she quickly opened.
+Более того, эта карта была значительно более детализирована, чем те, что продавались в книжных магазинах. Кажется, каждое здание, а не только дороги, было нарисовано на этой карте.
 
-Moreover, it was much finer than ones sold at town's bookstores. It seemed that every building, not just a road, is being drawn there one by one.
+"Ух ты...... такая штука, откуда?"
 
-"Wow...... such a thing, where from?"
+Асуна не меняя выражения лица ответила на вопрос Кирито:
 
-Асуна replied to Кирито’s question without changing the facial expression.
+"Во время исследований, я потихоньку копировала книгу с картами, которую Сонес-сан случайно нашла в процессе упорядочивания Большой Библиотеки. Она сказала, оригинал не был нарисован от руки, его сотворил предыдущий библиотекарь, используя неизвестную технику."
 
-"During my study Я little by little copied the map book that Sones-сан found by chance during the arrangement of the large library. She said that the original map book was not hand-drawn, it was made by a previous librarian using an unknown technique."
+"............ А, из предыдущего поколения......."
 
-"............ Oh, the one of previous generation......."
+— пробормотал Кирито, и на его лице на мгновение появилось выражение словно он что-то вспомнил, но он тут же отогнал эти мысли и приблизил лицо к карте, которую развернула Асуна.
 
-Кирито murmured и a look appeared on his face as if he remembered something, but immediately he rushed it away и put his face close to the map that Асуна unwrapped.
+"Посмотрим, это 4-й район... вот это та улица? Так что, получается, таверна вот здесь...?"
 
-"Let’s see, this is the 4th district... this one is that street? So, what is it that the inn is here...?"
+Он поднял голову и снова посмотрел на восточную сторону стены.
 
-He raised his head и looked at the eastern side of the wall again.
+"А, наверное она на северной стороне вот того перекрёстка. **Сэнкью**, Асуна."
 
-"Oh, probably it's on the north side of that junction. **Thank you**, Асуна."
+На его благодарность на Священном Языке, та ответила "Не за что" на языке Мира Людей. После чего Вице-Премьер-Мечник сложила карту обратно в плащ.
 
-To his gratitude in Sacred Language, she answered "You are welcome" in Мира Людей language. After that Вице-Премьер-Мечник folded the map back into the cloak.
+Они определились с местонахождением пункта назначения, но всё же оставалась проблема. Им нужно было спуститься на землю со стены высотой в  50 мелов, на которой они стояли, и сделать это незаметно для местных жителей. Если использовать ту же технику на воздушных элементах, что они применили раньше для подъёма, то кто-нибудь точно заметит.
 
-They have clarified the location of the destination, but there was still a problem. From the wall 50 mel high they were standing on, they had to go down to the ground without being noticed by residents. If the same aerial elements technique as before when they ascended would be used, it will definitely be spotted by someone.
+Смотря на Кирито, они думали *что, чёрт возьми, он собирается делать?* Премьер-Мечник, не мудрствуя лукаво, подошёл к краю стены и посмотрел вниз:
 
-Looking at Кирито, they were wondering *what on Earth are you planning to do?* Премьер-Мечник casually approached the edge of the wall и glanced down.
+"Окей, сейчас там никого. Я первым спрыгну, потом все остальные, когда я подам сигнал."
 
-"Okay, now there is no one there. Я jump first, then everyone else jumps when Я give a signal."
+"Эээээ!?"
 
-"Eeeeeee!?"
+В то время как Тейза удивлённо воскликнула, Кирито выставил вперёд правую руку с большим пальцем вверх и просто шагнул в сторону от стены. В одно мгновение коричневая подкладка его плаща исчезла из виду, и лишь сухой ветер пронёсся вдоль вершины стены, где остались стоять трое.
 
-As Тейза exclaimed in a strange voice, Кирито thrusted out his right hand with thumb up и casually stepped away from the wall. The brown outsole of his cloak disappeared in a moment, и only the dry wind passed by the three people remaining at the top.
+Даже через несколько секунд звука столкновения не последовало, и Ронье, Асуна и Тейза приблизились к краю стены чтобы взглянуть вниз. Там стоял Кирито, беззаботно махая им с дороги 50 мелями ниже.
 
-Even after waiting a few seconds there was no sound similar to collision so Ронье with Асуна и Тейза approached the edge of the wall и looked straight down. There was Кирито light-heartedly waving at them from the road 50 mel below.
+"Да ты издеваешься......."
 
-"Good grief......."
+— пробормотала Асуна и вытянула руки по направлению к Ронье и Тейзе.
 
-Асуна murmured that и straightened both hands towards Ронье и Тейза.
+"...... Он точно использовал полётное Священное Искусство."
 
-"...... He definitely used flying sacred art."
+Тейза сжала губы и взяла руку Асуны с такой же решимостью, как и Ронье совсем недавно, так что последняя поспешила и взялась за левую руку Асуны. На удивление нежная, гладкая словно шёлк тёплая рука крепко схватила правую руку Ронье, и в следующий миг Асуна оттолкнулась от мраморной стены так же легко как и Кирито.
 
-Тейза squeezed lips и took Асуна’s hand with the same determination as Ронье did a bit ago, so Ронье followed и grabbed Асуна's left hand. Surprisingly delicate, the silky smooth slightly warm hand clenched Ронье's right hand tightly, и the next moment Асуна kicked off the marble wall as easy as Кирито did.
+Их тела слегка поднялись — лишь на мгновение, и их троица начала немедленно падать вниз. В ушах яростно завыл ветер. Желание закричать в голос переполняло, но это мог кто-нибудь услышать, так что она сжала зубы и оставалась безмолвной.
 
-Their bodies were gently raised — for a moment, и them three people immediately began to fall straight down. The wind groaned violently in their ears. The wish to cry out loudly was overflowing, but somebody might notice that, so she clenched teeth и kept silent.
+Даже будучи учениками Рыцарей Целостности, они бы не выжили после падения с высоты  50 мелов на жёсткий булыжник. *Я верю в вас, сенпай!* — прокричала Ронье про себя.
 
-No matter if one is an учениками Рыцарей Целостности, they won’t be alive after falling from a height of 50 mel to a hard cobblestone. *Я believe in you, Сенпай!* In her mind Ронье cried without saying a sound aloud.
+Стоящий возле точки падения Кирито поднял вверх обе руки, сформировав некое подобие чаши.
 
-Кирито standing near the falling point lifted both hands into a bowl-like shape.
+Ощущение чего-то мягкого и прозрачного окутало их тела. Скорость падения постепенно снижалась, шум ветра ослабевал. Кирито поддержал их троих с помощью "руки разума".
 
-The feeling of something soft и transparent wrapped around their bodies. The falling speed gradually slowed down, the sound of wind weakened. Кирито accepted the three people with an "arm of mind".
+Даже старшие Рыцари Целостности могли разве что перемещать один кинжал с помощью этой техники, нужно обладать ужасающей силой разума чтобы замедлить падение трёх человек. Когда до земли оставалось около 10 ценов, Кирито раскрыл ладони и трое уверенно приземлились. Несколько раз нервно глубоко вдохнув, Ронье спросила их лидера:
 
-Even the senior Рыцарь Целостностиs are limited to as much as moving a single dagger with this technique, it must be a terrible power of mind to allow to slow down the falling of three at the same time. When the ground approached just under ten centimeters, Кирито opened his hands и three people landed steadily. After letting out several nervous и long breathes, Ронье asked their leader.
+"....... эм, сенпай, если вы на такое способны, не было бы проще использовать чистую инкарнацию вместо воздушных элементов когда мы взбирались на стену…?"
 
-"....... Um, Сенпай, if you can do such thing, wouldn’t it be simpler to use just incarnation instead of aerial elements when we climbed the wall…?"
+"Ну, спуск и подъём требуют разной сложности воображен... концентрации сознания. Даже когда я один, приходится превращать одежду в крылья когда летаю на инкарнации......"
 
-"Well, getting down и climbing jump straight up has different difficulty level of the **imagi**... of the concentration of consciousness. Even when it’s just one person Я need to transform clothes into wings when flying with incarnation......"
+Тейза подошла к пожимавшему плечами Кирито:
 
-Тейза stopped by Кирито who shrugged his shoulders.
+"Кирито-сенпай, в следующий раз я хочу сама полететь, пожалуйста научите меня технике полёта на воздушных элементах в следующий раз!"
 
-"Кирито-сенпай, next time Я want to take off myself, please teach me the aerial element flight technique next time!"
+"Эээ?! Эт-то не так просто как кажется...... н-но это здорово что тебя это интересует, конечно... Ладно, давайте поспешим к месту происшествия."
 
-"Eee?! T-that is not as easy as it seems...... b-but it's a nice thing to have a curiosity... Well then, let's hurry to the scene."
+Произнеся несколько неестественно прозвучавших слов, Кирито начал было шагать на Север, но Асуна потянула его за воротник обратно:
 
-Асуна pulled the back of collar of Кирито, who began to walk to the North after saying some unnaturally sounding words.
-
-"It is the opposite direction, Кирито-kun."
+"Не в ту сторону, Кирито-кун."
 
 ***
 
-As they turned to the left to the wide road from a dark side road bordered by the Timeless Wall, they found that it was somewhat crowded. It was February, so one could think it would not be unnatural to wear long cloak, but the citizens of South Центория walking along the road were unexpectedly light-dressed. The temperature should not drastically differ from the North Центория because it was less than kilolu away, but the sunshine pouring from the skies to sandstone was somewhat warmer than when they were in the Собора.
+## Продолжение следует
 
-Fortunately, four people crossed the South Центория 4th district without running into the guards и arrived to the inn in question.
+<!--As they turned to the left to the wide road from a dark side road bordered by the Timeless Wall, they found that it was somewhat crowded. It was February, so one could think it would not be unnatural to wear long cloak, but the citizens of Южной Центория walking along the road were unexpectedly light-dressed. The temperature should not drastically differ from the Северной Центория because it was less than kilolu away, but the sunshine pouring from the skies to sandstone was somewhat warmer than when they were in the Собора.
+
+Fortunately, four people crossed the Южной Центория 4th district without running into the guards и arrived to the inn in question.
 
 The three-floor building was quite large but as they only accepted tourists from the Тёмной Территории the accommodation fee stated on the entrance signboard was not even relatively high. Кирито, who removed the cloak hood, glanced at the red sandstone inn и opened the door without hesitation. Overlapping with the sonant sound of a bell,
 
@@ -282,11 +282,11 @@ After a short hesitation, he approvingly nodded.
 
 Ронье who thought that he would clearly identify himself и ask for cooperation with the investigation, repeatedly blinked watching Кирито talking to the receptionist. As soon as the room was decided, Кирито paid a total of six hundred sheers lodging fee, и the four of them were guided to the second floor.
 
-The room that was prepared for them was in the southeastern corner, и plenty of Solus light was coming through the large window. There was a large round table with fruits in the front, и four beds that are neatly lined up by the wall.
+The room that was prepared for them was in the ЮжнойВосточной corner, и plenty of Solus light was coming through the large window. There was a large round table with fruits in the front, и four beds that are neatly lined up by the wall.
 
 As soon as the receptionist who finished the short tour deeply bowed и left, Тейза cheerfully exclaimed:
 
-"It’s the first time Я stay in an inn other than of the North Empire! The feeling of the room, the shape of the furniture, everything is quite different compared to the north!"
+"It’s the first time Я stay in an inn other than of the Северной Empire! The feeling of the room, the shape of the furniture, everything is quite different compared to the Северной!"
 
 "Hey Тейза, you did not come here as a tourist!"
 
@@ -306,7 +306,7 @@ According to the explanation given by the receptionist, when one wanted hot wate
 
 It was the basic technique of Sacred Art to heat water, but there still was a catch. When the generated thermal element is simply dropped into water, it reacts immediately with the water surface, creating a lot of steam, but the temperature of the water does not rise much. It is necessary to convey all the heat of the thermal element to water, which requires a bit of fiddling.
 
-Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Southern Empire и put it in water so that it gradually gave the power of heat element. Simply lifting the container и holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Вице-Премьер-Мечник doing with a show-me-what-you-have-there anticipation, Асуна continued with producing of two metal elements.
+Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Южной Empire и put it in water so that it gradually gave the power of heat element. Simply lifting the container и holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Вице-Премьер-Мечник doing with a show-me-what-you-have-there anticipation, Асуна continued with producing of two metal elements.
 
 It was a nice way to make steel ball with metal element as a substitute for a fire sponge stone, but unlike fire sponge stones which could absorb thermal energy instantaneously, metal ball would not get hot so easily. And, of course, the metal ball does not float in the air like pure elements, so one needs something to support it during heating.
 
@@ -368,17 +368,17 @@ At the time of Войны с Внешним Миром Ронье got an opportu
 
 It was Тейза who suddenly replied, и Асуна и Ронье laughed together aloud.
 
-As they were enjoying some rest with cups of red tea (brewed with hot water boiled with Sacred Art) that looked like a special product of South Empire, the bell outside the window rang the 2 o'clock in the afternoon.
+As they were enjoying some rest with cups of red tea (brewed with hot water boiled with Sacred Art) that looked like a special product of Южной Empire, the bell outside the window rang the 2 o'clock in the afternoon.
 
-The melody was the same as in Northern Центория — the Тёмной Территории one was the same as well since we talk of it — but the tone was slightly lighter и felt brighter. Before the echoing of the long trailing note disappeared, Кирито quickly got up и moved to the door.
+The melody was the same as in Северной Центория — the Тёмной Территории one was the same as well since we talk of it — but the tone was slightly lighter и felt brighter. Before the echoing of the long trailing note disappeared, Кирито quickly got up и moved to the door.
 
 "Okay, this inn is a break from 2 PM to 2:30 for employees, и they all gather in the waiting room on the first floor. Guests will also be on sightseeing и shopping, и now there should not be anyone in the hallway."
 
 "... Hey, how do you know that?"
 
-Having answered using sacred word "Я heard it at **check-in**" to Асуна's question, Кирито approached the door. He opened it a little и checked the corridor, then nodded immediately и beckoned for Ронье и others to come. She felt uneasy to say the least as it wasn’t clear what to do, but had to follow after him, secretly hoping that they won’t have to do any absurd things inside the inn.
+Having answered using sacred word "Я heard it at **check-in**" to Асуна's question, Кирито approached the door. He opened it a little и checked the corridor, then nodded immediately и beckoned for Ронье и others to come. She felt uneasy to say the lВосточной as it wasn’t clear what to do, but had to follow after him, secretly hoping that they won’t have to do any absurd things inside the inn.
 
-Кирито who came out in the corridor headed north away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
+Кирито who came out in the corridor headed Северной away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
 
 "Here"
 
@@ -402,7 +402,7 @@ To that Тейза’s voice reverbing with the mix of shock и admiration, Ки
 
 Тейза made an unhappy face to that ambiguous reply, but the situation did not allow for more elaborate discussion. When Кирито twisted the handle again, it turned to the end this time и the door moved a little. He quickly looked around, peered in и encouraged others to get in.
 
-The room girls stepped in behind Асуна was a very common room for two people. There was only one window on the eastern wall, there were beds on the left и right, и a table, somewhat smaller than the one at which the four of them drank tea just now.
+The room girls stepped in behind Асуна was a very common room for two people. There was only one window on the Восточной wall, there were beds on the left и right, и a table, somewhat smaller than the one at which the four of them drank tea just now.
 
 At first sight, there was no difference in appearance compared to their room. Perhaps, there were no fruits on the table и the curtains were closed. However, Ронье felt that this was the scene of a horrible murder.
 
@@ -488,7 +488,7 @@ AS she slowly drank three gulps of water, Вице-Премьер-Мечник s
 
 "It’s nothing……"
 
-Was the answer as she looked down. *I’m useless for anything except such tasks, but at least Я can say that there are cases where Я can help the two of them in some way.*
+Was the answer as she looked down. *I’m useless for anything except such tasks, but at lВосточной Я can say that there are cases where Я can help the two of them in some way.*
 
 Since Асуна’s exhausted state was not due to decrease of the Life, it could not be recovered by Sacred Art. Кирито who should have been aware of it, but Премьер-Мечник returned the glass to Ронье и holding his hands in the air silently generated three light elements. Those softly floated around lying Асуна, gently illuminating the beautiful face with closed eyes и glossy chestnut hair.
 
@@ -522,7 +522,7 @@ Since no high-level cleric can tamper with the past events, it was confirmed tha
 
 Кирито, who was standing one knee beside the bed, raised his body и looked at the door of the room.
 
-"....... The man who killed Yazen-сан dropped the blooded dagger in the corridor, knocked nearby room и disappeared. The mountain гоблин Орои who was sleeping in the room noticed the dagger lying on the corridor, picked it up и was captured by South Центория guards who came to check the place. That is what happened after Yazen-сан's murder. "
+"....... The man who killed Yazen-сан dropped the blooded dagger in the corridor, knocked nearby room и disappeared. The mountain гоблин Орои who was sleeping in the room noticed the dagger lying on the corridor, picked it up и was captured by Южной Центория guards who came to check the place. That is what happened after Yazen-сан's murder. "
 
 Кирито’s explanation was enough to Ронье, but Тейза next to her said "But ..." uncertainly.
 
@@ -578,7 +578,7 @@ This was also true, come to think of it.
 
 It was clear to Ронье why Асуна bitten her lip. Moving the discussion ahead, she cautiously said:
 
-"There are nearly 1000 former private territories peasants in the North Empire alone, quadrupling in Мира Людей as a whole...... It is impossible to protect or give an escort to all of them."
+"There are nearly 1000 former private territories peasants in the Северной Empire alone, quadrupling in Мира Людей as a whole...... It is impossible to protect or give an escort to all of them."
 
 Тейза stepped ahead on a side и said, flinging her hands.
 
@@ -618,9 +618,5 @@ When Ронье said so, Кирито gently shrugged his shoulders.
 
 However.
 
-The four people who went down to the first floor saw an unattended corridor и a vacant cleaned room. The receptionist, questioned by Кирито, told them with a puzzled expression, that in the morning an official of the South Центория administration brought a carriage и told them he takes three mountain гоблинов away.
-
-## Footnotes:
-
-1. <a name="Prim1"></a>.Я just understood Я never called that out previously. For European readers: the floor numbering is — mostly — visually 1:1 in Japan, where “the 1st floor” is the first one available, not “the 1st one to live”. So, in this example, using British/Irish standards, that would be: they are located at the first floor и the dining room — as expected — is at the ground floor.
+The four people who went down to the first floor saw an unattended corridor и a vacant cleaned room. The receptionist, questioned by Кирито, told them with a puzzled expression, that in the morning an official of the Южной Центория administration brought a carriage и told them he takes three mountain гоблинов away.
 -->

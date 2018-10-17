@@ -5,17 +5,17 @@
 
 Before establishing the Мира Людей calendar, that is, more than 380 years in the past of Мира Людей history, there were moving objects called "divine animals".
 
-Silverwhite snake which lived in a deep mountain valley in the Eastern Empire. A phoenix that nested in a volcano in the Southern Empire. Giant ice dragon which protected the mountain range of the Northern Empire. A winged lion which used to rush the grassland of the Western Empire, и so on.
+Silverwhite snake which lived in a deep mountain valley in the Восточной Empire. A phoenix that nested in a volcano in the Южной Empire. Giant ice dragon which protected the mountain range of the Северной Empire. A winged lion which used to rush the grassland of the Западной Empire, и so on.
 
 Their number was more than 40, but they had no fluctlight, it was an advanced AI program able to communicate with Мира Людей people using the dedicated speech engine. People feared и respected divine beasts as gods on earth, и left many legends.
 
-However, for a girl who established the Церковь Аксиом in the year 30 of Мира Людей calendar и then ruled the Мира Людей by the name of Первосвященник Администратор, "gods" other than the gods that appeared in the ecclesiastical history were disturbing beings. She was getting rid of them either herself, making weapons — divine objects — out of them, or letting her subordinate Рыцарь Целостностиs do the extermination job. Then, around the year 100 of Мира Людей calendar, all the divine beasts were destroyed, и all the books that wrote about the exchange with them were burned away.
+However, for a girl who established the Церковь Аксиом in the year 30 of Мира Людей calendar и then ruled the Мира Людей by the name of Первосвященник Администратор, "gods" other than the gods that appeared in the ecclesiastical history were disturbing beings. She was getting rid of them either herself, making weapons — divine objects — out of them, or letting her subordinate Рыцари Целостности do the extermination job. Then, around the year 100 of Мира Людей calendar, all the divine beasts were destroyed, и all the books that wrote about the exchange with them were burned away.
 
-None of birds и animals inhabiting the present Мира Людей were able to use human language. However, there was only one kind among them, beasts which preserved AI to a very limited extent. Those were the Рыцарь Целостностиs’ partners, dragons.
+None of birds и animals inhabiting the present Мира Людей were able to use human language. However, there was only one kind among them, beasts which preserved AI to a very limited extent. Those were the Рыцари Целостности’ partners, dragons.
 
 The dragons, even if they could not speak human language, were able to understand even a fairly complicated command given to the owner. и they also had "heart" used to strengthen the bonds with the owner.
 
-Therefore, young dragon Цукигаке, raised by the учениками Рыцарей Целостности Ронье Arabel, rushed hard to carry out the command of her owner: "Go along this aisle to the ground и get to the north gate of Центория."
+Therefore, young dragon Цукигаке, raised by the учениками Рыцарей Целостности Ронье Arabel, rushed hard to carry out the command of her owner: "Go along this aisle to the ground и get to the Северной gate of Центория."
 
 ***
 
@@ -45,11 +45,11 @@ The pain finally faded to the extent that she could deal with, so Цукигак
 
 A deep forest spread ahead. The yellow sunlight obstructed by the branches и leaves of the coniferous trees hardly reached the ground, but the direction could be understood.
 
-*The big city of humans which Master Ронье calls "Центория" is in the south. This forest is the place to come for the first time и Я do not know the distance well as Я got here on a carriage from the city, but Я have to arrive as soon as possible.*
+*The big city of humans which Master Ронье calls "Центория" is in the Южной. This forest is the place to come for the first time и Я do not know the distance well as Я got here on a carriage from the city, but Я have to arrive as soon as possible.*
 
 *Fortunately, Я ate plenty of fish from the lake a few hours ago so my stomach is not empty yet. Я did not like the smell of the dead fish given in the stables for the past few months, и Я did not eat much of it, but it was fun to catch the fish swimming in the water by myself и it was very tasty because it was fresh. Я feel that remembering the taste will only make me hungry, so better to forget about fish и start running on the forest sole with all four legs.*
 
-Unlike the garden of "Собора" where Цукигаке lived or the grassland around the lake, the damp sole of the forest was slippery и stones и roots hidden under the fallen leaves made it difficult to run. Every time tipping over an obstacle, she felt и roll, but still kept going south on и on.
+Unlike the garden of "Собора" where Цукигаке lived or the grassland around the lake, the damp sole of the forest was slippery и stones и roots hidden under the fallen leaves made it difficult to run. Every time tipping over an obstacle, she felt и roll, but still kept going Южной on и on.
 
 Running around a thick tree, Цукигаке's keen nose caught something smelly, some rotten smell.
 
@@ -75,7 +75,7 @@ After about five minutes passed, this time she felt clear hunger. Even a child o
 
 A large lake was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made her slightly shift the track to the left, but Цукигаке shook her head as she ran и returned to the previous direction. *Я will not die because of being hungry, but my Master’s life is in danger.*
 
-If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the south side of the grassland surrounding the lake. If it's indeed there, it will be possible to find at least one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
+If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the Южной side of the grassland surrounding the lake. If it's indeed there, it will be possible to find at lВосточной one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
 
 Suddenly his foreleg sunk into the ground, so Цукигаке fell somersault и rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
 
@@ -109,7 +109,7 @@ If you look closely, the tips of elongated limbs had swim fins. It was surely a 
 
 "Kyu-ru, Kyu-ru-ru-run."
 
-*── Я want to go to the South. Tell me if you know the way.*
+*── Я want to go to the Южной. Tell me if you know the way.*
 
 Although it was not possible to put the intention into a verbal form, the rat quickly moved long ears и answered "Kyu" to Цукигаке's chirping filled with desperate emotions.
 
@@ -157,7 +157,7 @@ After the innumerable bifurcations, junctions и small rooms they ran through, s
 
 The rat stopped at the end of the tunnel, protruded only a sharp nose into the gap in the grass, carefully sniffed the outside air и only then thrusted the head all the way out. When it was satisfied it got out through the grass.
 
-After a bit of fighting with the grass Цукигаке also left the tunnel finding herself already at the southern part of the wetland area. The dry grassland spread ahead, и after it a wooden fence was seen that seemed to have been made by humans. Behind was the field she saw from the carriage.
+After a bit of fighting with the grass Цукигаке also left the tunnel finding herself already at the Южной part of the wetland area. The dry grassland spread ahead, и after it a wooden fence was seen that seemed to have been made by humans. Behind was the field she saw from the carriage.
 
 "Kyu-ru-ru, Ku-ru!!!"
 
@@ -201,7 +201,7 @@ That said, Цукигаке tried to resume movement. However, the rat grabbed t
 
 *── Я do not know....... But nobody who went beyond the wall had ever come back.*
 
-Цукигаке tilted her head. Only desolated fields spread out on the south side of the wooden fence, as she saw from the horse-drawn carriage window, и she remembered that there were no humans. Her owner said something about that all the *praivatwellerz* were *rilizd*. She did not quite understand the meaning, but if the rat is "scared" of humans, now there should be no danger.
+Цукигаке tilted her head. Only desolated fields spread out on the Южной side of the wooden fence, as she saw from the horse-drawn carriage window, и she remembered that there were no humans. Her owner said something about that all the *praivatwellerz* were *rilizd*. She did not quite understand the meaning, but if the rat is "scared" of humans, now there should be no danger.
 
 Besides, Цукигаке’s hunger was approaching the limit. *If Я don’t find something to eat in the field, it looks like Я won’t be able to run any more.*
 
@@ -253,17 +253,17 @@ Almost at the same time when she noticed, the rat issued a sound of warning "Kii
 
 From the right side, a long и slender — but still a little bigger than Цукигаке — shadow came out и blocked the path.
 
-Once again, it was a beast she saw for the first time. Slender sides и tail, the limbs are short but sturdy. Only the long projecting nose и eyes are white, the rest is dark gray.
+Once again, it was a bВосточной she saw for the first time. Slender sides и tail, the limbs are short but sturdy. Only the long projecting nose и eyes are white, the rest is dark gray.
 
-Цукигаке called out carefully to the beast which silently stopped on the road.
+Цукигаке called out carefully to the bВосточной which silently stopped on the road.
 
 "Kyu-ru-ru-ru..."
 
 *── Let us pass. We just want to go to the city.*
 
-But the gray beast did not answer anything, just kept staring straight at Цукигаке's eyes with both its eyes shining red.
+But the gray bВосточной did not answer anything, just kept staring straight at Цукигаке's eyes with both its eyes shining red.
 
-While she was thinking of what to do, a quiet sound reached her from left и right. There were the same kind of beasts appearing from behind the dead crops. Four, in total. Two of them went behind almost unnoticed to surround Цукигаке; with the first appearing beast there were five of them now.
+While she was thinking of what to do, a quiet sound reached her from left и right. There were the same kind of beasts appearing from behind the dead crops. Four, in total. Two of them went behind almost unnoticed to surround Цукигаке; with the first appearing bВосточной there were five of them now.
 
 The gray beasts were called "togari-hanaguma"<sup><a href="#Prim3">3</a></sup> by the private territory dwellers who used to work in this farmland, и these creatures were always hated. They were omnivorous и nocturnal, so they ate the crops from the field during the night. With the permission of a supervisor, the troubled farmers decided to release large dogs in the field at night. Dogs bravely protected fields from hanaguma и reduced the damage to crops, but every once in a while, several hanagumas gathered in groups to attack и kill dogs.
 
@@ -279,7 +279,7 @@ It seemed that миминага-нуре-незуми froze trembling on a spot 
 
 She intended to convey the meaning in the cry, but hanagumas only growled more violently. и unlike the case of rat, there was no meaning felt in those sounds.
 
-Of course, there was no way for Цукигаке to know, but the dragons were distant kin of an ancient Divine Beast who had been given the ability to communicate with wild animals. Originally it was a power designed to evacuate animal units from territory of the Divine Beast, but not all animals were given AI from the very beginning, however, when the Divine Beast came in contact, the animal unit would be given a minimum thinking ability и a decision database.
+Of course, there was no way for Цукигаке to know, but the dragons were distant kin of an ancient Divine BВосточной who had been given the ability to communicate with wild animals. Originally it was a power designed to evacuate animal units from territory of the Divine Beast, but not all animals were given AI from the very beginning, however, when the Divine BВосточной came in contact, the animal unit would be given a minimum thinking ability и a decision database.
 
 Hence, her companion-rat got the ability to answer because Цукигаке spoke to it, but the target of that power had to be limited to units with much lower priority than the initiator. и togari-hanagumas which survived the severe conditions were only a little lower than the current priority of Цукигаке. Five animals were not granted thinking ability, the only behavioral principle moving them was to hunt the prey to satisfy the hunger.
 
@@ -303,13 +303,13 @@ With that signal, two hanagumas from the left и right jumped over.
 
 Цукигаке wound the tail around the rat which remained frozen, и jumped high in the air. The hanagumas also leaped, but thanks to the wings fluttering with full power she rose up even higher.
 
-The miscalculated hanagumas collided in the air и fell down, entangled. Цукигаке glided in that gap to the west и descended into the field. Tall stalks of millet were still left at that side, so she should be able to hide for a short time.
+The miscalculated hanagumas collided in the air и fell down, entangled. Цукигаке glided in that gap to the Западной и descended into the field. Tall stalks of millet were still left at that side, so she should be able to hide for a short time.
 
 However, it will not be possible to escape with the rat wrapped with a tail, и it is even more difficult to fight the five beasts while keeping it safe. First, she had to hide the rat in a safe place.
 
 That's why Цукигаке chose a wooden cane left between the ridges. It was on the verge of decay и the Life was running short, but still kept the shape. *Please take cover under the wooden lid completely и be quiet there!* — she whispered to the rat after letting it down to the ground.
 
-There was no answer, but it was clear that it would be dangerous if any movement or cry is heard. But for the plan to succeed she had to separate enemies from that point. As she began running to the south making a loud noise intentionally, a lot of footsteps came from the right side.
+There was no answer, but it was clear that it would be dangerous if any movement or cry is heard. But for the plan to succeed she had to separate enemies from that point. As she began running to the Южной making a loud noise intentionally, a lot of footsteps came from the right side.
 
 *If I’m surrounded, it’d be the end. There is no choice but to push the five animals apart, to defeat one by one.*
 
@@ -337,7 +337,7 @@ Hanaguma shrugged и began to twitch around trying to get rid of Цукигак�
 
 The blood of both splashed around as the hanaguma и Цукигаке were rolling on the ground to the right и left. *Я am losing more Life this way, but Я cannot open my mouth now.* Цукигаке pierced the claw of the right front leg into the wound in the throat of hanaguma и tore down to the bottom with all her might.
 
-So finally, the second beast also lost all its Life и became limp. After removing the tusks from the neck of the corpse, Цукигаке stood up unsteadily.
+So finally, the second bВосточной also lost all its Life и became limp. After removing the tusks from the neck of the corpse, Цукигаке stood up unsteadily.
 
 She looked over her body, countless cuts ran from neck to chest. Moreover, it seems that the scratches on the back which were made by the thorns of the hedge also blooded again because of violent rolling over the ground. However, three enemies still remained.
 
@@ -349,7 +349,7 @@ Lead hanaguma released a ferocious scream as soon as it saw the corpse of two co
 
 "Gyu-a-a-a-a-u!!!"
 
-Even though she did not understand the words, Цукигаке felt a lot of anger in that roar. At least to show his fighting spirit is still not defeated, he pulled together the power left behind и replied:
+Even though she did not understand the words, Цукигаке felt a lot of anger in that roar. At lВосточной to show his fighting spirit is still not defeated, he pulled together the power left behind и replied:
 
 "Ga-r-r-r-r-r!!!"
 
@@ -419,7 +419,7 @@ The voice did not come out at all, but the star changed its orbit as if it heard
 
 1. <a name="Prim1"></a>Decorative small toy [ball](https://en.wikipedia.org/wiki/Temari_(toy)).
 2. <a name="Prim2"></a>So we had Иванезуми previously, this is another species of Underworld rat. Naming is bit more complicated though. While “Nezumi” remains “rat”, и “nure” probably stays for wetland area it lives in, “miminaga” is the first part of the name they call Australian Bilbies (specifically, [dalgytes](https://en.wikipedia.org/wiki/Greater_bilby)). So, altogether that should be something like… “bilby-like swamp rat”?
-3. <a name="Prim3"></a>тогари = shrew, hanaguma = coati. Я have no clue to what тогари is here, but based on description it talks about [Western Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
+3. <a name="Prim3"></a>тогари = shrew, hanaguma = coati. Я have no clue to what тогари is here, but based on description it talks about [Западной Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
 4. <a name="Prim4"></a>熱線, actually translates as “infrared rays” :)
 <!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.

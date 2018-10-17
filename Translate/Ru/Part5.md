@@ -4,13 +4,13 @@
 
 From the 20th to the 30th floor of Центрального Собора there were residences of staff, Sacred Art masters и knights.
 
-The room where Асуна и Кирито lived was in the southeastern corner of the of the thirtieth floor. Coincidentally, it was the same arrangement as the inn room in the South Центория borrowed at six hundred sheers per day, but the sizes were not comparable.
+The room where Асуна и Кирито lived was in the ЮжнойВосточной corner of the of the thirtieth floor. Coincidentally, it was the same arrangement as the inn room in the Южной Центория borrowed at six hundred sheers per day, but the sizes were not comparable.
 
 Opening a thick door from the corridor, one first gets into an entrance room of about four tatamis size, и behind it, separated with another door, lies a huge living room of thirty tatamis size.
 
-There are high windows with a grid on the south wall, from floor to near the ceiling, a complete kitchen и a bathroom are on the west side, и a spacious bedroom is on the east side. It is not as good as living room, but it is still about 15 tatamis<sup><a href="#Prim1">1</a></sup>.
+There are high windows with a grid on the Южной wall, from floor to near the ceiling, a complete kitchen и a bathroom are on the Западной side, и a spacious bedroom is on the Восточной side. It is not as good as living room, but it is still about 15 tatamis<sup><a href="#Prim1">1</a></sup>.
 
-However, in Мира Людей / Underworld, the unit "tatami" was not used. To begin with, there were no татами mats at least in Собора и North Центория. The size of the boarded or tiled floor was only expressed in square mel и square kilolu, и they were also abbreviated as "he-mel" и "he-kilolu", respectively. According to this, is the living room size was about 50 he-mels.
+However, in Мира Людей / Underworld, the unit "tatami" was not used. To begin with, there were no татами mats at lВосточной in Собора и Северной Центория. The size of the boarded or tiled floor was only expressed in square mel и square kilolu, и they were also abbreviated as "he-mel" и "he-kilolu", respectively. According to this, is the living room size was about 50 he-mels.
 
 *Cleaning this large one would be a serious task*...... would be a first thought when someone is introduced to the room the first time, but Underworld basically had only some dirt- or dust-like feeling effect, which did not require an entity object, и disappeared if one runs over it with a broom or a duster. Substantially it was retouching a digital image rather than cleaning, though this wasn’t something Асуна could say bluntly, but Кирито could very well.
 
@@ -56,7 +56,7 @@ While asking a question she removed the towel и watched him with a serious look
 
 "Is that so? Here, sit on the sofa. "
 
-She pushed his shoulders down и made him sit at the end of the large sofa in the middle of the living room. Асуна took up the brush she was using until a while ago from the low table и carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Eastern Empire — not a Western style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Фанатио for the celebration of Вице-Премьер-Мечник's 1st anniversary, и she sincerely appreciated it since then.
+She pushed his shoulders down и made him sit at the end of the large sofa in the middle of the living room. Асуна took up the brush she was using until a while ago from the low table и carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Восточной Empire — not a Западной style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Фанатио for the celebration of Вице-Премьер-Мечник's 1st anniversary, и she sincerely appreciated it since then.
 
 Кирито, whose head was entrusted to Асуна’s hands, suddenly said to himself:
 
@@ -118,7 +118,7 @@ A long, long time has passed since that time, but the feeling of being completel
 
 *Я want to fall asleep like this, и Кирито will carry me to bed even if Я do, but Я can’t do that. If Я fall asleep, Премьер-Мечник who feels uneasy today will get out of Собора и will depart to search for the three missing гоблинов.*
 
-In the emergency meeting held in the afternoon, it was decided to issue an investigation order to the South Центория administration in the name of Объединённого Совета Мира Людей и the Рыцарь Целостности group, but at that time the 5 pm bell rang, so it was the next morning to take actions. Moreover, since the official who appeared in the inn was probably a fake, even if the investigation in the administration is done, the outcome will most likely be "there was no order issued to transfer гоблинов и there is no such official." Асуна thought it was a bad idea to leave an entire day to the quick-moving killer for granted. Besides, it is unlikely that anyone but Кирито can search the whole Центория и find гоблинов, so it could be a trap inviting Премьер-Мечник just like in Obsidia.
+In the emergency meeting held in the afternoon, it was decided to issue an investigation order to the Южной Центория administration in the name of Объединённого Совета Мира Людей и the Рыцарь Целостности group, but at that time the 5 pm bell rang, so it was the next morning to take actions. Moreover, since the official who appeared in the inn was probably a fake, even if the investigation in the administration is done, the outcome will most likely be "there was no order issued to transfer гоблинов и there is no such official." Асуна thought it was a bad idea to leave an entire day to the quick-moving killer for granted. Besides, it is unlikely that anyone but Кирито can search the whole Центория и find гоблинов, so it could be a trap inviting Премьер-Мечник just like in Obsidia.
 
 And above all, Асуна was asked by an apprentice knight Ронье to keep an eye on Кирито, и she couldn’t afford failing the trust. *Я must keep my promise to her.*
 
@@ -150,7 +150,7 @@ The feeling that in this world there is no need to spare his love with Lisbeth, 
 
 The hug became a little stronger.
 
-When they meet again at the "Altar of the End" at the southern end of the Тёмной Территории, Кирито was lying on top of the white stone steps, endless tears flooding from his eyes. Without asking, she knew that those were tears for the people whom they could not meet anymore.
+When they meet again at the "Altar of the End" at the Южной end of the Тёмной Территории, Кирито was lying on top of the white stone steps, endless tears flooding from his eyes. Without asking, she knew that those were tears for the people whom they could not meet anymore.
 
 A long time has passed from that time, but she rarely mentioned to Кирито any memories of the real world, their friends и families whom they would now bid eternal farewells. This, as well as reasons of this world, where there were too many things to think about, were why Асуна has still not managed to organize her emotions. Perhaps, for Кирито it was the same.
 
@@ -212,7 +212,7 @@ Recollecting memories of that period that seem to be so long time ago, Асун�
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>This should be perceived as “posh”. Despite the actual size of more than 80 m<sup>2</sup>, it is significantly larger than the “default” size for a housing 2 in Japan (about twice as larger). For example, according to Vol.18 Epilogue 6, Higa Takeru’s apartment in Higashgotanda had 8-татами main room, which corresponds to a western-style bedroom size.
+1. <a name="Prim1"></a>This should be perceived as “posh”. Despite the actual size of more than 80 m<sup>2</sup>, it is significantly larger than the “default” size for a housing 2 in Japan (about twice as larger). For example, according to Vol.18 Epilogue 6, Higa Takeru’s apartment in Higashgotanda had 8-татами main room, which corresponds to a Западнойern-style bedroom size.
 <!--2. <a name="Prim2"></a>.
 3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.

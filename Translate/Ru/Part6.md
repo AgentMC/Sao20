@@ -2,9 +2,9 @@
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-The northern wind that was getting warmer day by day gently stroke the blue lake. The light of Solus reflecting on the surface of water burst into a bunch of small sparkles jumping across ripples.
+The Северной wind that was getting warmer day by day gently stroke the blue lake. The light of Solus reflecting on the surface of water burst into a bunch of small sparkles jumping across ripples.
 
-The lake Norkia in the Northern Центория suburb was located in an area full of low hills, и although the ice has just melted half a month ago, young early plants already sprouted on the shore и small yellow flowers colorized the view.
+The lake Norkia in the Северной Центория suburb was located in an area full of low hills, и although the ice has just melted half a month ago, young early plants already sprouted on the shore и small yellow flowers colorized the view.
 
 This area was the richest ground in the suburbs of the capital area, where everyone could enjoy beautiful scenery in each of the four seasons, but for many years ─ more than 100 years actually, it has not been possible for general people or lower aristocrats to come here. Because Lake Norkia has always been part of the "Император’s domain", the largest one among aristocrats’ private territories.
 
@@ -52,7 +52,7 @@ That wasn’t true, и furthermore since she terribly wanted to laugh hearing th
 
 Small fish swimming near the bottom of about seventy centimeters depth scattered in all directions. Following one of them, Шимосаки showed some brilliant swimming skills, wriggling the whole body.
 
-A dragon is a creature specializing in flying in the sky as its name suggests<sup><a href="#Prim1">1</a></sup>, и the "Dragon nest" by the frontier of the West Empire is a steep alpine surrounded by a vast lake tens of times larger than Lake Norkia, so apparently wild dragons swim in the lake freely и catch fish. Цукигаке и Шимосаки, born in the Собора, have only bathed in shallow ponds in the front yard, but instinctively seem to know how to swim.
+A dragon is a creature specializing in flying in the sky as its name suggests<sup><a href="#Prim1">1</a></sup>, и the "Dragon nest" by the frontier of the Западной Empire is a steep alpine surrounded by a vast lake tens of times larger than Lake Norkia, so apparently wild dragons swim in the lake freely и catch fish. Цукигаке и Шимосаки, born in the Собора, have only bathed in shallow ponds in the front yard, but instinctively seem to know how to swim.
 
 After a few tens of seconds, Шимосаки broke through the water surface, jumping out и landing to the original shore while vigorously flapping its tiny wings. Тейза и Ронье had no time to avoid it shaking the whole body и sprinkling a lot of water drops from wet feathers all around.
 
@@ -142,9 +142,9 @@ When Ронье murmured that, Тейза, who was drinking tea from a bottle ne
 
 Ронье raised the gaze when she heard it.
 
-The Норлангарт Northern Empire spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the northern gate of Центория they were in, the timeless wall separating the land between the West и the East was still clearly visible.
+The Норлангарт Северной Empire spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the Северной gate of Центория they were in, the timeless wall separating the land between the Западной и the Восточной was still clearly visible.
 
-*Император's domain monopolized the land on the west side of the high road running straight north from Центория, и the territories of nobility were lined up on the east side of the road. In other words, because the location of this territory is relatively close, there was no reason for onlookers to ignore it.*
+*Император's domain monopolized the land on the Западной side of the high road running straight Северной from Центория, и the territories of nobility were lined up on the Восточной side of the road. In other words, because the location of this territory is relatively close, there was no reason for onlookers to ignore it.*
 
 Glancing at the profile of Тейза, she noticed that the area around her nostrils was twitching a little. It was a sign of her enduring of saying something. Having a slightly bad feeling, Ронье returned the question that her best friend was expecting:
 
@@ -198,7 +198,7 @@ After Тейза complained using a sacred word that Кирито told her, Ро
 
 Ронье shook head in surprise.
 
-According to the old story told when she was a child, before the Церковь Аксиом was formed, ghosts used to appear in the streets и villages all around и they were doing various things. But they were exterminated by church priests и Рыцарь Целостностиs, и now it has become quite peaceful — all the stories have ended that way. Actually, Ронье has never seen any kind of scary ghosts mentioned in old stories.
+According to the old story told when she was a child, before the Церковь Аксиом was formed, ghosts used to appear in the streets и villages all around и they were doing various things. But they were exterminated by church priests и Рыцари Целостности, и now it has become quite peaceful — all the stories have ended that way. Actually, Ронье has never seen any kind of scary ghosts mentioned in old stories.
 
 "About that, the real battle, where casualties were among the Императорs who did not surrender till the end, the generals originating from the royal family и the great aristocracy, or the heads of the Императорs’ armies — was happening only in the four imperial capitals of Центория, was it not? So why are there ghosts in the villa in the Император’s territory?"
 
@@ -226,9 +226,9 @@ _── But Я don’t think it is_<sup><a href="#Prim3">3</a></sup>.
 
 That was her first thought frankly speaking, but the advantage of her best friend’s opinion was surfacing clearly. *Instructor Дюсольберт repeats that a knight who just waits for orders becomes useless. The whole afternoon was dedicated to correct Цукигаке's picky behavior ─ which is why we are here at the lake, but the daytime is yet to last for long.*
 
-Ронье sighed и moved her gaze from her best friend's face to the southern sky.
+Ронье sighed и moved her gaze from her best friend's face to the Южной sky.
 
-A small hill blocked the view и the cityscape of Центория could not be seen, but even though it was ten kilolu away, the hulk of Центрального Собора was towering in the blue sky. Over there, Кирито и Асуна should be waiting for investigation reports from the Southern Центория administration now. In the case of its conclusion being a miss, which is likely to happen, a large-scale search will be conducted throughout the city of Центория; should an emergency occur before Ронье и others return, senior knight Ренри is supposed to come to the rescue riding his dragon Kazenui.
+A small hill blocked the view и the cityscape of Центория could not be seen, but even though it was ten kilolu away, the hulk of Центрального Собора was towering in the blue sky. Over there, Кирито и Асуна should be waiting for investigation reports from the Южной Центория administration now. In the case of its conclusion being a miss, which is likely to happen, a large-scale search will be conducted throughout the city of Центория; should an emergency occur before Ронье и others return, senior knight Ренри is supposed to come to the rescue riding his dragon Kazenui.
 
 "...... Я see."
 
@@ -238,7 +238,7 @@ With as much as possible calm face, Ронье looked at Цукигаке и Ш�
 
 "Don’t you want to take them? Something ghost-like shouldn’t like dragons which are sacred creatures. If it really comes out, though."
 
-After a while, Ронье nodded to Тейза's words about which she wasn’t sure how serious the other one was. It is only Рыцарь Целостностиs who can breach into the mansion sealed by the name of the Церковь Аксиом, и dangerous creatures such as bears и wolves as well as ghosts cannot appear in such a place, so even if they take young dragons, there won’t be any danger.
+After a while, Ронье nodded to Тейза's words about which she wasn’t sure how serious the other one was. It is only Рыцари Целостности who can breach into the mansion sealed by the name of the Церковь Аксиом, и dangerous creatures such as bears и wolves as well as ghosts cannot appear in such a place, so even if they take young dragons, there won’t be any danger.
 
 "So, well......."
 
@@ -262,11 +262,11 @@ To which the dragons, apparently full of energy after eating plenty of fish, syn
 
 ***
 
-In order to move from the east bank of Lake Norkia to the west bank where the sealed mansion stood, they had to make a considerable detour north or south.
+In order to move from the Восточной bank of Lake Norkia to the Западной bank where the sealed mansion stood, they had to make a considerable detour Северной or Южной.
 
-The south side of the lake appeared to be wetlands, so the two of them headed north. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
+The Южной side of the lake appeared to be wetlands, so the two of them headed Северной. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
 
-It took them more than ten minutes to reach the northern end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the northern extremum of the Норлангарт Northern Empire, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
+It took them more than ten minutes to reach the Северной end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Empire, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
 
 When they were at the Академии Искусства Меча, Кирито и Юдзио told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Тейза pointed out that if they would have made a small boat и sailed down the river they could reach Центория without having any hardships —Кирито и his friend were both silent for a while и then said simultaneously "Я could not think of it".
 
@@ -276,7 +276,7 @@ They jumped down from a slightly shifted grassland to a fine cobblestone road и
 
 From there to the mansion there was a single road. After they walked for some time, a vast field came up on the right. Shrubs lined up in order were grapes grown as the source of wine.
 
-Ронье's father, a lower-class aristocrat, once said that if you turn all the vineyards in private territories of the Император и the Great Aristocrats into wheat fields, it would cover all the wheat consumption in the Northern Центория within a year и they won’t have to bother about the bread from the northern region. The terrible size of the vineyard immediately convinced her that it was not an exaggeration at all.
+Ронье's father, a lower-class aristocrat, once said that if you turn all the vineyards in private territories of the Император и the Great Aristocrats into wheat fields, it would cover all the wheat consumption in the Северной Центория within a year и they won’t have to bother about the bread from the Северной region. The terrible size of the vineyard immediately convinced her that it was not an exaggeration at all.
 
 Moreover, the wine the Император drank was made only from the best grapes from these grape shrubs, so regardless such a vast number of shrubs, vine made on this vineyard did not reach the mouth of the general public because they brew only a small amount.
 
@@ -290,7 +290,7 @@ Hana said that when she was the exclusive cook of the Первосвященни
 
 "But, if you have such an area, you cannot maintain it without considerable manpower....... Я heard that similar problems are occurring in the former imperial territories of other empires."
 
-"Yazen-сан, who was in the territory of Император Southacroith, Я wonder which way he wanted..."
+"Yazen-сан, who was in the territory of Император Южнойacroith, Я wonder which way he wanted..."
 
 Тейза replied after a short time after Ронье doubted.
 
@@ -323,7 +323,7 @@ She blinked и raised the face to see a beautiful black steel-made gate rising i
 
 After quickly walking the final hundred mels, the two stopped in front of the gate.
 
-In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Northern Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
+In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Северной Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
 
 In addition, the gates were severely blocked with a sturdy chain, и the chain stretched to the left и right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Мира Людей able to try to break the blockade after looking at such a sign.
 
@@ -391,7 +391,7 @@ As the war had come to an end, situations when Цукигаке or Шимоса�
 
 "Hey……"
 
-The moment she tried to talk to her best friend, the sound of the 2 o'clock bell far in the south in the central capital was heard. Тейза quickly turned the face to her и said:
+The moment she tried to talk to her best friend, the sound of the 2 o'clock bell far in the Южной in the central capital was heard. Тейза quickly turned the face to her и said:
 
 "It will be dark if we don’t hurry. Let’s run!"
 
@@ -459,7 +459,7 @@ Having muttered this, Тейза closed both eyes still gripping the handle, и 
 
 She finally noticed that something was wrong with the way her friend gripped the handle.
 
-*Тейза must be trying to imitate the "Pick of Mind" that Кирито showed us in the inn at Southern Центория yesterday.*
+*Тейза must be trying to imitate the "Pick of Mind" that Кирито showed us in the inn at Южной Центория yesterday.*
 
 "Hey...... we still cannot use even the "Arm of Mind", и of course we can’t do something like picking a lock!"
 
@@ -527,7 +527,7 @@ And if it was not a ghost but a living human who made a sound, it is highly unli
 
 Because it is only those who oppose the authority of the church и the Индекс Табу who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Церковь Аксиом.
 
-Ронье thought that she should return to Собора now и report it to Кирито or Фанатио, but Тейза moved before she was able to suggest it. She began running towards the South along the walls of the house, apparently planning to go around the back of the building. Шимосаки followed her, jumping behind.
+Ронье thought that she should return to Собора now и report it to Кирито or Фанатио, but Тейза moved before she was able to suggest it. She began running towards the Южной along the walls of the house, apparently planning to go around the back of the building. Шимосаки followed her, jumping behind.
 
 "Kururu!!!"
 
@@ -537,7 +537,7 @@ Encouraged by Цукигаке chirping by her feet, Ронье also kicked off 
 
 After she turned around the corner of the mansion twice и entered the backyard, it got dramatically darker. There was also a flower bed in the backyard, but since the sunlight hardly reached it, there were mostly bluish mosses и gray ferns. In the aisle there were broken wheels и decayed trees и there is no way anymore to say it’s the Император's villa.
 
-The back door that Тейза would be aiming was secretly set up on the north side of the building. In other words, it would have been closer to reach it from the north side instead of the south, but Тейза jumped to a small door increasing the run speed even more as if she did not care at all.
+The back door that Тейза would be aiming was secretly set up on the Северной side of the building. In other words, it would have been closer to reach it from the Северной side instead of the Южной, but Тейза jumped to a small door increasing the run speed even more as if she did not care at all.
 
 She grasped the blue rusted round handle и try to rotate, but just as Ронье expected, only the rusty click sounded. Nevertheless, Тейза continued to pull the handle with force. Even though she was an apprentice, her authority for armor equipment was similar to one of a knight, around 40, so even with pure brute force she could destroy the door. This mansion was handed over from the Император и was by that moment the property of the Объединённого Совета Мира Людей, so even in an emergency situation it was not permitted for a knight to damage it without a Council permission.
 
@@ -599,13 +599,13 @@ And sacred power is not just for humans и animals, but also plants — even for
 
 The stripes of released violet mist were drawn to the ground, forming fine twisting branches similar to a plant и shining mysteriously. The shape и the arrangement of it was undoubtedly human footprints. Moreover, from the way it was shining, it was only recently that moss was stepped on.
 
-Footprints extended north from the back door of the mansion и disappeared in the forest surrounding the backyard.
+Footprints extended Северной from the back door of the mansion и disappeared in the forest surrounding the backyard.
 
 "Тейза, over there!"
 
 Ронье quietly exclaimed и rushed after the light drawing the fading footprints.
 
-They turned left at the northern end of the backyard, entering a cave-like path opening like a mouth in the wall of forest. Because the bush и undergrowth have been cut down, и the obstructing branches were also dropped, it was clearly done by the human hand. In the bottom of the dark wood path, footprints were glowing bright purple.
+They turned left at the Северной end of the backyard, entering a cave-like path opening like a mouth in the wall of forest. Because the bush и undergrowth have been cut down, и the obstructing branches were also dropped, it was clearly done by the human hand. In the bottom of the dark wood path, footprints were glowing bright purple.
 
 She stopped at the entrance of the path и whispered to Тейза who has just caught up:
 
@@ -739,7 +739,7 @@ To that whispered question, Тейза looked up at the ceiling of the aisle wit
 
 Тейза muttered, frowning:
 
-"Went from the backyard northwest, entered the forest... descended from that small shrine to the basement, turned back once....... ── Ронье, is this not the basement of the mansion by any chance?"
+"Went from the backyard СевернойЗападной, entered the forest... descended from that small shrine to the basement, turned back once....... ── Ронье, is this not the basement of the mansion by any chance?"
 
 "Ehm…………"
 
@@ -755,7 +755,7 @@ After hearing her words, Ронье also imagined the plan of the manor и the f
 
 When Ронье responded in whispering, her partner muttered "well...". After all that happened so far, they couldn’t turn back without having checked every corner of the basement.
 
-After this exchange, two people with two animals began tiptoeing south along the passage.
+After this exchange, two people with two animals began tiptoeing Южной along the passage.
 
 Up ahead, the yellow light was vaguely trembling. Concentrating on the musty smell, it could be noticed that it contained a burning aroma unique to oil lanterns. и some faint different smell, too.
 
@@ -767,7 +767,7 @@ Eventually, turned out the light was produced by two oil lanterns attached to th
 
 — whispered Тейза, Ронье slightly nodded to her.
 
-It was too big for a door. The iron lattice extending from the floor to the ceiling was exactly like that in the cellar of the South Центория Guards building. There were two large cells of about four meters wide, placed side by side. The corner blocked the view of what’s inside.
+It was too big for a door. The iron lattice extending from the floor to the ceiling was exactly like that in the cellar of the Южной Центория Guards building. There were two large cells of about four meters wide, placed side by side. The corner blocked the view of what’s inside.
 
 Moving ahead steadily, back against the left wall. As they approach the prison, the mysterious smell became stronger. *It is something like a worn leather armor, like dried straw in the sun. Same smell Я smelt... somewhere in the Тёмной Территории, not Мира Людей.......*
 
@@ -785,19 +785,19 @@ She recoiled, biting hard the branch in her right hand. In a second, Тейза�
 
 Ронье nodded several times to this whisper. Exhaled, then sucked in air deeply through the nose. There was no doubt, this mix of the dry straw aroma и the common body odor she smelled in the past, at the time of visiting the mountain гоблинов.
 
-"There are...... mountain гоблинов, three of them. Я think they are the tourists who were taken away from the Inn in Southern Центория."
+"There are...... mountain гоблинов, three of them. Я think they are the tourists who were taken away from the Inn in Южной Центория."
 
 "Eh…………"
 
 Тейза rounded her eyes и looked into the prison, clinging to Ронье's body. She returned to the original position in about three seconds и nodded.
 
-"It's really the case... but... how...? How did гоблинов kidnapped in South Центория end up in the Northern Empire Император's domain?"
+"It's really the case... but... how...? How did гоблинов kidnapped in Южной Центория end up in the Северной Empire Император's domain?"
 
 This question could not be answered right away.
 
-*In order to move from Southern Центория to Northern Центория, one would need to go through Eastern Центория or Western Центория и in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic pass or a one-day passage permit, и of course, neither pass nor permit is easy to obtain.*
+*In order to move from Южной Центория to Северной Центория, one would need to go through Восточной Центория or Западной Центория и in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic pass or a one-day passage permit, и of course, neither pass nor permit is easy to obtain.*
 
-*No, a fake official who abducted the гоблинов would fake the identity of the Southern Центория administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Northern Empire. There is also a vast land in the Southern Empire, и there should be enough places to hide the гоблинов.*
+*No, a fake official who abducted the гоблинов would fake the identity of the Южной Центория administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Северной Empire. There is also a vast land in the Южной Empire, и there should be enough places to hide the гоблинов.*
 
 "...... let’s think about it later."
 
@@ -890,13 +890,13 @@ The one who kidnapped Lisetta, the daughter of the Тёмной Территор
 
 *However, it is impossible.*
 
-Only three days have passed since the kidnapper in the black robe jumped out of the Obsidia castle window и disappeared. The distance from Obsidia to Центория is more than 3,000 kilolu. To move between them, it takes half a year on foot, three months in a carriage, и two weeks even for a horse messenger moving quickly through ten connected towns и villages. In order to move in three days, one only had to use a dragon, but if one flies a dragon that is not owned by Рыцарь Целостностиs over the Мира Людей, it would have made a big fuss.
+Only three days have passed since the kidnapper in the black robe jumped out of the Obsidia castle window и disappeared. The distance from Obsidia to Центория is more than 3,000 kilolu. To move between them, it takes half a year on foot, three months in a carriage, и two weeks even for a horse messenger moving quickly through ten connected towns и villages. In order to move in three days, one only had to use a dragon, but if one flies a dragon that is not owned by Рыцари Целостности over the Мира Людей, it would have made a big fuss.
 
 *Is it the same person, or is this one just close enough to their counterpart?*
 
 Trying to find the material to judge it, Ронье desperately looked him over.
 
-The kidnapper had his right arm cut off with a Меч of ambassador Шейта called "silent knight", и immediately after that his left arm was slashed with Ронье's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms и legs by healing techniques but certain awkwardness in motion should still remain for at least one week.
+The kidnapper had his right arm cut off with a Меч of ambassador Шейта called "silent knight", и immediately after that his left arm was slashed with Ронье's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms и legs by healing techniques but certain awkwardness in motion should still remain for at lВосточной one week.
 
 But the black robe man — still unclear whether or not it was him ─ stopped after making one step ahead и did not move anymore. From the darkness behind the deep hood, only his eyes glittered, fixed on Ронье и Тейза.
 
@@ -934,7 +934,7 @@ A fierce и violent appearance reminiscent of a bird of prey. Gray mustache и b
 
 Ронье also wanted to say exactly the same.
 
-Норлангарт Northern Empire Sixth Император, Крюгер Норлангарт....
+Норлангарт Северной Empire Sixth Император, Крюгер Норлангарт....
 
 A bursting with flames decoration hanging on the jet-black wall, distant sounds of Меч fight — the memories revived vividly.
 
@@ -980,7 +980,7 @@ The man retreated silently without saying a word и stopped in more than five me
 
 "You are knights, but care about that lizard."
 
-The Император Крюгер standing in front of the hidden door — or at least the man with his face и voice, began talking, sneering sarcastically.
+The Император Крюгер standing in front of the hidden door — or at lВосточной the man with his face и voice, began talking, sneering sarcastically.
 
 "Is it not just an animal after all? There will be many alternatives, Я find it hard to understand."
 
@@ -1042,7 +1042,7 @@ Then the Император picked a sharp chin beard with his fingertips и nod
 
 The aristocrat judgement right was a privilege given only to the Император и the senior aristocrats, to punish those who misconducted at their own discretion. Although only the lower aristocrats и the private territory commoners were the subject to punishment, Ронье's father, who was the sixth-class nobleman, seemed to have been humiliated several times due to punishment caused by higher aristocrats’ accusations.
 
-But even aristocrats could not violate the Индекс Табу, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Рыцарь Целостностиs, who had been granted the greatest rights in Мира Людей, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
+But even aristocrats could not violate the Индекс Табу, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Рыцари Целостности, who had been granted the greatest rights in Мира Людей, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
 
 "...... The punishment that makes the floor dyed so much would be a violation of the Индекс Табу."
 
@@ -1168,15 +1168,15 @@ When she thanked them again, there was also a quiet chirping "Ku-ru".
 
 Цукигаке who passed through the iron grid back appeared in front of Ронье. When the young dragon tried to push the body through the grid again, Ронье crouched и pushed him back with both hands.
 
-"Цукигаке, Я beg you. Go along this aisle to the ground и get to the north gate of Центория somehow...... when guards-сан see you, they will take you to the Собора."
+"Цукигаке, Я beg you. Go along this aisle to the ground и get to the Северной gate of Центория somehow...... when guards-сан see you, they will take you to the Собора."
 
-It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Northern Центория, и it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ронье did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
+It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Северной Центория, и it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ронье did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
 
 But that moment, Цукигаке was the only hope remaining. It was probably impossible to break the grid without a Меч, и even if they do somehow it would certainly be noticed by the Император, и Шимосаки might be killed.
 
 While suffering from strong anxiety, she wrapped Цукигаке's body with both hands thrusted through the gaps in the grid. The young dragon chirped "Please leave it to me" or perhaps something alike in response.
 
-She retreated back from Ронье’s hands, flapped the wings twice, и then started running north along the aisle. Soon her figure disappeared и the clinking footsteps tailed away.
+She retreated back from Ронье’s hands, flapped the wings twice, и then started running Северной along the aisle. Soon her figure disappeared и the clinking footsteps tailed away.
 
 "...... I’m sorry...... but please, Цукигаке."
 
@@ -1186,7 +1186,7 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>It is the default for western world that dragons fly. That’s why no translators of SAO Я ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Рыцарь Целостностиs, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Асуна used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further Я will continue to use just word “dragon” referring to the dragons we all know.
+1. <a name="Prim1"></a>It is the default for Западной world that dragons fly. That’s why no translators of SAO Я ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Рыцари Целостности, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Асуна used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further Я will continue to use just word “dragon” referring to the dragons we all know.
 2. <a name="Prim2"></a>Тейза uses ансоку-ничи (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s кандзи и not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
 3. <a name="Prim3"></a>Я guess あっやしいなぁー can also mean that she doesn’t like the whole idea in the first place, и in fact it’s probably both.
 4. <a name="Prim4"></a>Yes Я am aware it’s still late February, several days after snow melted.
