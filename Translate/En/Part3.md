@@ -344,7 +344,7 @@ To this admiration and question, Vice-Prime Swordsman gently shook her head.
 
 Ronye lost her words.
 
-At the time of Foreign World War Ronye got an opportunity to exchange words with Alice Synthesis Thirty several times. The most impressive thing was that night in the tent with unconscious Kirito when they were exchanging memorable stories with Asuna and Human World Defense Army general Selrut,0 but Alice's terrible large-scale light attack that had annihilated the great army of Dark Territory in a blink of an eye at the defense battle by the Great Eastern Gate was also burnt in her memory.
+At the time of Foreign World War Ronye got an opportunity to exchange words with Alice Synthesis Thirty several times. The most impressive thing was that night in the tent with unconscious Kirito when they were exchanging memorable stories with Asuna and Human World Defense Army general Selrut, but Alice's terrible large-scale light attack that had annihilated the great army of Dark Territory in a blink of an eye at the defense battle by the Great Eastern Gate was also burnt in her memory.
 
 Ronye and others low-grade clerics tried to guess what kind of technique would produce such a power. Of course, it is not where the knowledge of an apprentice knight reaches, but it can still be imagined that it would require to accumulate a huge number of light elements in some way and release them at the same time later. If that secret technique is based on a hollow sphere, it is no wonder Alice conveyed it to Ayuha alone.
 
@@ -360,7 +360,7 @@ Ronye nodded while feeling hot gathering deep in the chest, and then.
 
 Kirito who had been looking into the process from behind unexpectedly said in a relaxed tone.
 
-"It’s still pretty slow...... about making hot water. Maybe if you cast 2-3 ‘fire arrows’ into the basin....... "
+"It’s still pretty slow...... about making hot water. Maybe if you cast 2-3 ‘fire arrows’ into the pot....... "
 
 "Ah no, senpai, if you do that, it will get pure white in the room because of steam!"
 
@@ -370,7 +370,7 @@ As they were enjoying some rest with cups of red tea (brewed with hot water boil
 
 The melody was the same as in Northern Centoria — the Dark Territory one was the same as well since we talk of it — but the tone was slightly lighter and felt brighter. Before the echoing of the long trailing note disappeared, Kirito quickly got up and moved to the door.
 
-"Okay, this inn is a break from 2 PM to 2:30 for employees, and they all gather in the waiting room on the first floor. Guests will also be on sightseeing and shopping, and now there should not be anyone in the hallway."
+"Okay, this inn has a break from 2 PM to 2:30 for employees, and they all gather in the waiting room on the first floor. Guests will also be on sightseeing and shopping, and now there should not be anyone in the hallway."
 
 "... Hey, how do you know that?"
 

@@ -252,133 +252,133 @@
 
 ***
 
-## Продолжение следует
+Когда они, повернув налево, вышли на широкую дорогу из тёмного проулка, граничащего с Бессмертной Стеной, там было людно. Стоял февраль, и по идее не было ничего неестественного в длинных плащах, но граждане Южной Центории, идущие по дороге, были одеты неожиданно легко. Температура не должна была значительно отличаться от Северной Центории, лежащей менее чем в килолу, но льющийся с небес на красный песчаник солнечный свет был несколько теплее, чем когда они были возле Собора.
 
-<!--As they turned to the left to the wide road from a dark side road bordered by the Timeless Wall, they found that it was somewhat crowded. It was February, so one could think it would not be unnatural to wear long cloak, but the citizens of Южной Центория walking along the road were unexpectedly light-dressed. The temperature should not drastically differ from the Северной Центория because it was less than kilolu away, but the sunshine pouring from the skies to sandstone was somewhat warmer than when they were in the Собора.
+К счастью, четверо людей смогли, не натолкнувшись на стражу, пересечь 4-й район Южной Центории и добраться до искомой таверны.
 
-Fortunately, four people crossed the Южной Центория 4th district without running into the guards и arrived to the inn in question.
+Трёхэтажное здание было довольно большим, но поскольку они обслуживали только туристов из Тёмной Территории, оплата за проживание, указанная на вывеске у входа, не была даже относительно высокой. Кирито, убравший капюшон плаща, окинул взглядом таверну из красного камня и без колебаний открыл дверь. Перекрывая звонкий звук колокольчика,
 
-The three-floor building was quite large but as they only accepted tourists from the Тёмной Территории the accommodation fee stated on the entrance signboard was not even relatively high. Кирито, who removed the cloak hood, glanced at the red sandstone inn и opened the door without hesitation. Overlapping with the sonant sound of a bell,
+"Добро пожаловать!"
 
-"Welcome!"
+— раздался радостный голос.
 
-— the cheerful voice echoed.
+В передней части обширного зала находилась стойка регистрации, и позади ней стояла обладательница голоса, девушка-регистратор, казавшаяся немного старше, чем Ронье. Она обвязала свои рыжеватые волосы тёмно-зеленым шарфом, а одета была в платье с передником того же цвета.
 
-In front of the spacious hall there was a wide reception desk, и behind it stood the one whom the voice belonged to, a girl receptionist who seemed a little older than Ронье. She wrapped her reddish hair with a dark-green scarf и wore an apron dress of the same color.
+Когда Кирито подошел к стойке, женщина с улыбкой спросила:
 
-As Кирито approached the reception, the woman asked with a smile:
+"Решили остановиться? Четверо?"
 
-"Are you staying? Four people?"
+"Эм......."
 
-"Er......."
+Немного посомневавшись, он утвердительно кивнул:
 
-After a short hesitation, he approvingly nodded.
+"Да, четверо. Ничего, если мы остановимся только на одну ночь?"
 
-"Yup, four people. Is it okay if we stay for just one night?"
+"Конечно, я не против. Вы хотите остаться в одной комнате?"
 
-"Of course, Я do not mind. Would you like to share the same room?"
+"Да, в одной. Если можно, Мы бы хотели комнату на втором этаже."
 
-"Yup, same room. If you can, we would like to take one on the second floor."
+Ронье, ожидавшая, что тот себя явным образом идентифицирует и попросит помочь в расследовании, с удивлением моргала, наблюдая как Кирито разговаривает с регистратором. Когда с комнатой определились, Кирито внёс оплату за размещение в шестьсот широв, и их четвёрку провели на второй этаж.
 
-Ронье who thought that he would clearly identify himself и ask for cooperation with the investigation, repeatedly blinked watching Кирито talking to the receptionist. As soon as the room was decided, Кирито paid a total of six hundred sheers lodging fee, и the four of them were guided to the second floor.
+Комната, которую им предоставили, находилась в юго-восточном углу, и сквозь высокое окно проникало много света Солуса. Их встретил широкий круглый стол с фруктами, а возле стены одна возле другой были установлены четыре кровати.
 
-The room that was prepared for them was in the ЮжнойВосточной corner, и plenty of Solus light was coming through the large window. There was a large round table with fruits in the front, и four beds that are neatly lined up by the wall.
+Как только закончившая краткий обзор девушка-регистратор низко поклонилась и ушла, Тейза радостно воскликнула:
 
-As soon as the receptionist who finished the short tour deeply bowed и left, Тейза cheerfully exclaimed:
+"Я первый раз в таверне за пределами Северной Империи! Ощущение комнаты, форма мебели, всё так отличается от севера!"
 
-"It’s the first time Я stay in an inn other than of the Северной Empire! The feeling of the room, the shape of the furniture, everything is quite different compared to the Северной!"
+"Эй, Тейза, ты сюда не как турист прибыла!"
 
-"Hey Тейза, you did not come here as a tourist!"
+Торопливо заткнув свою лучшую подругу, другая обернулась к Кирито.
 
-After hurriedly shutting up her best friend, she turned to Кирито.
+"...... Эм, сенпай, а что теперь планируете делать? Эта комната же не место преступления, или...?"
 
-"...... Um, Сенпай, what are you planning to do from now on? This room is not the crime scene, is it...?"
+"Нет, это другая. Но есть способы понять которая то была комната. Пока что давайте отдохнём."
 
-"Yup, it’s the different one. But there are ways to find out which room it was. So far, let's have some rest."
+Этот ответ Кирито в целом обрисовывал ситуацию. Асуна, снявшая плащ, распрямила длинные волосы и сказала:
 
-This Кирито’s answer largely summarized the situation. Асуна, who took off her cloak и swung a long hair, said:
+"Я собираюсь заварить чай, вы будете?"
 
-"Я am going to make tea, you join?"
+— и направилась к серванту в углу комнаты, Ронье двинулась вслед за ней, говоря "Я помогу вам."
 
-— и headed to the cupboard in the corner of the room, Ронье chased after her with "Я will help you."
+Как объяснила регистратор, когда нужна была горячая вода, необходимо было спуститься с чайником в столовую на первом этаже, но Асуна просто налила холодной воды из кувшина в чайник и лёгким заклинанием произвела термальный элемент.
 
-According to the explanation given by the receptionist, when one wanted hot water, they were to bring a pot to the dining room at the first floor<sup><a href="#Prim1">1</a></sup>, but Асуна just poured some cold water from the jug into the pot и produced a thermal element with a smooth incantation.
+Нагревание воды было базовой техникой Священного Искусства, но всё было не так просто. Если дать сгенерированному термальному элементу упасть в воду, он немедленно отреагирует с поверхностью воды, создаст много пара, но вот температура воды при этом не повысится сколь-нибудь значительно. Для этого нужно было передать всю энергию термального элемента воде, что требовало определённых ухищрений.
 
-It was the basic technique of Sacred Art to heat water, but there still was a catch. When the generated thermal element is simply dropped into water, it reacts immediately with the water surface, creating a lot of steam, but the temperature of the water does not rise much. It is necessary to convey all the heat of the thermal element to water, which requires a bit of fiddling.
+Практики Священного Искусства носили с собой ценный материал, называемый "камень огненной губки", создаваемый исключительно в Южной Империи и клали его в воду, чтобы он постепенно отдавал тепло термального элемента. Просто поднять ёмкость и держать её над термальным элементом тоже было достаточно чтобы вскипятить воду, но это занимало время. Пока девушки смотрели с выражением предвкушения типа покажи-ка-что-умеешь на лице за тем, что Вице-Премьер-Мечник будет делать, Асуна продолжила, произведя два металлических элемента.
 
-Sacred Art practitioners carried a valuable medium called the "fire sponge stone" produced exclusively in the Южной Empire и put it in water so that it gradually gave the power of heat element. Simply lifting the container и holding the thermal element under it will boil the water too, but it will take time. As they were watched what is Вице-Премьер-Мечник doing with a show-me-what-you-have-there anticipation, Асуна continued with producing of two metal elements.
+Сделать из металлических элементов стальной шар было бы неплохой заменой камню огненной губки, но, в отличие от камней, способных поглощать термальную энергию моментально, стальной шар было не так просто нагреть. И, конечно, стальной шар не будет висеть в воздухе как элемент в чистом виде, так что его нужно чем-то поддерживать во время нагрева.
 
-It was a nice way to make steel ball with metal element as a substitute for a fire sponge stone, but unlike fire sponge stones which could absorb thermal energy instantaneously, metal ball would not get hot so easily. And, of course, the metal ball does not float in the air like pure elements, so one needs something to support it during heating.
+Для этого достаточно чтобы рядом кто-то стоял со щипцами или ложкой, но считалось, что в таких ситуациях использование других инструментов кроме Священного Искусства и материалов для него было неспортивным. Практики Священного Искусства верили, что всё, от генерации до самого конца, нужно совершить используя только заклинания. Был один популярный способ, любимый клериками за его показушность, а именно создать маленький вихрь, используя воздушный элемент, и вмешать перемешать термальный элемент в потоке воздуха, позволив металлическому шару парить сверху, но подобная трёх-атрибутная техника, вкупе с необходимостью удерживать шар в балансе сверху, была чрезвычайно сложной для контроля, так что если концентрация кастующего нарушалась хоть на мгновение, по всей комнате веером рассыпались искры.
 
-It would be sufficient to have someone nearby using tongs or spoon for that, but it was said that it is not nice to use tools other than sacred art medium in such cases. Sacred Art practitioners believed that everything from generation to completion must be completed by the incantation only. There is a fancy way loved by clerics for its impressiveness, to create a tiny whirlwind with aerial element, и mix the thermal element into the air flow while letting the metal ball to float on top, but such three-attributes technique is difficult to control preserving the ball on top of the whirlwind, so if one’s concentration is disrupted even a bit, one will soon find sparks scattering all around the room.
+Пока Ронье, быстро приготовившаяся создать ледяной элемент чтобы нейтрализовать потенциальный пожар, осторожно наблюдала за тем, что Асуна делала, та переместила оба металлических элемента левой рукой и поместила их вблизи от термального элемента, который она контролировала правой. В этом положении два вида элементов вступили в реакцию, и горячие капли расплавленного металла уже готовы были упасть...... и в этот самый миг:
 
-As Ронье, who quickly got ready to generate ice element to neutralize potential flame, carefully watched over what she was doing, Асуна manipulated the two metal elements with the left hand и kept them close to the thermal element she controlled with the right hand. In this state, two kinds of elements reacted и the hot metal drops were ready to scatter...... и that very moment:
+"Форм элемент, холлоу сфиа шейп<sup><a href="#Prim1">1</a></sup>."
 
-"**Form element, hollow sphere shape**."
+Асуна произнесла выражение, которого Ронье не знала, и два стальных элемента сплавились вместе в сферу около 3 цен в диаметре. Стоило им стать стальным шаром, как тот обрёл вес и, влекомый гравитацией, плюхнулся в чайник.
 
-Асуна chanted an expression Ронье did not know, и the two steel elements fused together into a sphere of about 3 centimeters in diameter. As soon as it became a metal ball, it gained weight, и pulled by gravity it dropped into a pot.
+"Ой, это...... Асуна-сама, а куда делся термальный элемент...?"
 
-"Oh, that...... Асуна-сама, where did the thermal element go...?"
+Ронье споро огляделась вокруг, но не смогла найти термальный элемент, который должен был бы висеть в воздухе. Тогда Асуна взглянула на руки Ронье и указала на чайник.
 
-Ронье hurriedly looked around but could not find the thermal element that was supposed to be floating in the air. Then Асуна glanced at Ронье's arms и pointed in the pot.
+Когда та заглянула внутрь, лежавшая под водой металлическая сфера была красной. Вокруг неё один за другим всплывали маленькие пузырьки, и вот над поверхностью воды уже начал подниматься пар.
 
-When she looked in, the metal sphere glowed red beneath the water. Small bubbles floated one after another around it, и eventually steam started to rise from the surface of the water.
+"Может быть термальный элемент внутри шара...?"
 
-"Maybe the heat element is in that ball...?"
+"Да, я заключила термальный элемент в металлическую сферу."
 
-"Yes, Я confined the heat element within the metal sphere."
+"...... такое искусство......."
 
-"...... such an art......."
+Пока Ронье удивлялась, вода в чайнике покрылась пузырями, достигнув кипения.
 
-While Ронье was getting surprised, water in the pot bubbled, и it was heated to the boiling state.
+Обычно, чтобы сделать пустотелую сферу из металлического элемента, сперва делают цельный шар, используя фразу "сфиа шейп", и затем надувают его с помощью "энлардж", одновременно нагревая. Но это тоже слишком сложно контролировать и он легко рвётся, и даже если всё хорошо, внутрь ничего не положишь.
 
-Normally, to make a hollow sphere with metal element, first they make a ball filled with contents using a "**sphere shape**" phrase и then inflate it with an "**enlarge**" while heating it at the same time. But this too is difficult to control и it tears easily, и even if it goes well you cannot put anything inside.
+Однако, если сделать пустотелую сферу с самого начала, то можно заключить внутрь термальный элемент, если закрыть его металлом с двух сторон. Это безопаснее, чем нагревать стальной шар в вихре из термального и воздушного элементов, и достаточно эффективно.
 
-However, if you can make a hollow sphere from the very beginning, you can confine the thermal element in it by overlapping it at the moment of creation. It is safer than heating an iron ball with a whirlwind of thermal и aerial elements и it is efficient.
+"Это было ‘Хо...’... ‘Холлоу’? Асуна-са́ма сама́ обнаружила такое выражение......?"
 
-"It was ‘**Ho...**’... ‘**Hollow**’? Did Асуна-сама discover such an expression......?"
+На её восхищённый вопрос, Вице-Премьер-Мечник мягко покачала головой.
 
-To this admiration и question, Вице-Премьер-Мечник gently shook her head.
-
-"No, Алиса-сан was good at the creation of hollow spheres, she said that she only told Ayuha-сан that, и Я was taught by Ayuha-сан."
+"Нет, Алиса-сан была хороша в создании пустотелых сфер, она говорила, что только Аюхе-сан рассказала, и теперь Аюха-сан научила меня."
 
 "Алиса-сама............"
 
-Ронье lost her words.
+Ронье лишилась дара речи.
 
-At the time of Войны с Внешним Миром Ронье got an opportunity to exchange words with Алиса Синтез Thirty several times. The most impressive thing was that night in the tent with unconscious Кирито when they were exchanging memorable stories with Асуна и Мира Людей Defense Army general Selrut,0 but Алиса's terrible large-scale light attack that had annihilated the great army of Тёмной Территории in a blink of an eye at the defense battle by the Великих Восточных Врат was also burnt in her memory.
+Во время Войны с Внешним Миром, Ронье несколько раз представилась возможность побеседовать с Алисой Синтез Сёти. Самой запоминавшейся оказалась ночь в палатке с бессознательным Кирито, когда они обменивались памятными историями с Асуной и генералом Армией Защиты Мира Людей Селюрут, но ужасающая широкомасштабная световая атака Алисы, в мгновение ока уничтожившая большу́ю часть армии Тёмной Территории в оборонительном сражении при Великих Восточных Вратах, также была выжжена в её памяти.
 
-Ронье и others low-grade clerics tried to guess what kind of technique would produce such a power. Of course, it is not where the knowledge of an apprentice knight reaches, but it can still be imagined that it would require to accumulate a huge number of light elements in some way и release them at the same time later. If that secret technique is based on a hollow sphere, it is no wonder Алиса conveyed it to Ayuha alone.
+Ронье и прочие низкоуровневые практики гадали, что за техника произвела удар такой колоссальной мощью. Конечно, ответ лежал за пределами знаний ученика рыцаря, но их воображения хватало чтобы осознать что она требовала накопления огромного количества световых элементов и дальнейшего их высвобождения. Если такая секретная техника основывалась на пустотелой сфере, нет ничего удивительного в том, что Алиса передала знание одной только Аюхе.
 
-"... So, is it really for good that Я heard it...?"
+"... Так, это ничего что мы это услышали...?"
 
-Асуна nodded with a smile to this fearful question.
+Асуна с улыбкой кивнула на этот опасливый вопрос.
 
-"Yes, when Ayuha-сан taught me she asked me... not to misuse it. So Ронье-сан, when the time comes, convey this phrase to those whom you trust."
+"Всё в порядке, когда Аюха-сан рассказала мне, она попросила... не использовать это во вред. Так что, Ронье-сан, когда настанет время, передай эту фразу тому, кому доверяешь."
 
-"............ Yes...... Yes."
+"............ Да...... Да."
 
-Ронье nodded while feeling hot gathering deep in the chest, и then.
+Ронье кивнула, чувствуя как что-то тёплое собирается у неё в груди, и тогда.
 
-Кирито who had been looking into the process from behind unexpectedly said in a relaxed tone.
+Кирито, наблюдавший за процессом сзади, неожиданно заметил расслабленным голосом:
 
-"It’s still pretty slow...... about making hot water. Maybe if you cast 2-3 ‘fire arrows’ into the basin....... "
+"Всё ещё довольно медленно...... это я про нагрев воды. Может, если кастануть 2-3 ‘огненные стрелы’ в чайник....... "
 
-"Ah no, Сенпай, if you do that, it will get pure white in the room because of steam!"
+"О нет, сенпай, если вы это сделаете, то комната станет полностью белой от дыма!"
 
-It was Тейза who suddenly replied, и Асуна и Ронье laughed together aloud.
+Это Тейза внезапно ответила, и Асуна с Ронье вместе засмеялись.
 
-As they were enjoying some rest with cups of red tea (brewed with hot water boiled with Sacred Art) that looked like a special product of Южной Empire, the bell outside the window rang the 2 o'clock in the afternoon.
+Пока они расслаблялись с кружками красного чая (заваренного на горячей воде, вскипячённой Священным Искусством), бывшего особым продуктом Южной Империи, колокол за окном пробил 2 часа пополудни.
 
-The melody was the same as in Северной Центория — the Тёмной Территории one was the same as well since we talk of it — but the tone was slightly lighter и felt brighter. Before the echoing of the long trailing note disappeared, Кирито quickly got up и moved to the door.
+Мелодия была той же, что и в Северной Центории — да и в Тёмной Территории она была той же, раз уж мы об этом заговорили,— но тон был несколько легче и звучала она чище. Прежде чем отзвуки долгих финальных нот исчезли, Кирито резво поднялся на ноги и двинулся к двери.
 
-"Okay, this inn is a break from 2 PM to 2:30 for employees, и they all gather in the waiting room on the first floor. Guests will also be on sightseeing и shopping, и now there should not be anyone in the hallway."
+"Так, в этой таверне для сотрудников есть перерыв с 2 до 2:30, и они собираются в приёмной на первом этаже. Ну а гости должны быть на экскурсиях и в магазинах, так что в коридорах сейчас никого не должно быть."
 
-"... Hey, how do you know that?"
+"... Хэй, откуда ты это всё знаешь?"
 
-Having answered using sacred word "Я heard it at **check-in**" to Асуна's question, Кирито approached the door. He opened it a little и checked the corridor, then nodded immediately и beckoned for Ронье и others to come. She felt uneasy to say the lВосточной as it wasn’t clear what to do, but had to follow after him, secretly hoping that they won’t have to do any absurd things inside the inn.
+Ответив священными словами "Услышал на **чекине**" на вопрос Асуны, Кирито подошёл к двери. Он приоткрыл её и проверил коридор, затем сразу кивнул и подал знак Ронье и остальным следовать за ним. Той было как минимум неспокойно, ведь было неясно что делать, но она следовала за ним, в тайне надеясь, что тот не выкинет ничего безумного в таверне.
 
-Кирито who came out in the corridor headed Северной away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
+## Продолжение следует...
+
+<!-- Кирито who came out in the corridor headed Северной away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
 
 "Here"
 
@@ -620,3 +620,7 @@ However.
 
 The four people who went down to the first floor saw an unattended corridor и a vacant cleaned room. The receptionist, questioned by Кирито, told them with a puzzled expression, that in the morning an official of the Южной Центория administration brought a carriage и told them he takes three mountain гоблинов away.
 -->
+
+## Примечания:
+
+1. <a name="Prim1"></a>Сформировать элемент, форма пустотелого шара.
