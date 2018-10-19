@@ -125,7 +125,7 @@ If the culprit was able to violate the Taboo Index and kill Yazen-san because he
 
 Prime Swordsman thought so because he could hear the voice of the murderer in Asuna's "past reflection art". The words of the culprit just before killing the old Yazen.
 
-*── Serfs of my territory belong to my territory until they run out of Life, so if you tend to dislike that, then right here enjoy the death granted.*
+*── Serfs of private territory belong to the private territory until they run out of Life, so if you tend to dislike that, then right here enjoy the death granted.*
 
 "…………Ah!"
 

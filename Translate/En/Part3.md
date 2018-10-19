@@ -512,7 +512,7 @@ As this question came in, Asuna closed her eyes for a while as if to verify her 
 
 As Kirito repeated this quietly, Asuna nodded as well.
 
-"Yup...... Yazen-san nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of private territory belong to the private territory until they run out of life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-san's chest with a dagger....... Yazen-san fell down on the spot and the man left the room holding the dagger. That was what I saw there..."
+"Yup...... Yazen-san nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of private territory belong to the private territory until they run out of Life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-san's chest with a dagger....... Yazen-san fell down on the spot and the man left the room holding the dagger. That was what I saw there..."
 
 Asuna went silent, but no one tried speaking for a while.
 

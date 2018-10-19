@@ -95,7 +95,7 @@ The гоблинов stopped и turned their looks at Ронье; they seemed to
 
 It was Тейза who asked it. Зеппос twisted his body again и after looking into the prison replied with a smile.
 
-"гоблинов remain гоблинов until they run out of Life, no matter how much the world changes."
+"Гоблины останутся гоблинами покуда их Жизнь не истечёт, no matter how much the world changes."
 
 Ронье thought she already heard these words somewhere. But before the memory came out to her, Зеппос came back to senses и ordered the three ahead:
 
@@ -125,13 +125,13 @@ If the culprit was able to violate the Индекс Табу и kill Язен-с
 
 Премьер-Мечник thought so because he could hear the voice of the murderer in Асуна's "past reflection art". The words of the culprit just before killing the old Язен.
 
-*── Serfs of my territory belong to my territory until they run out of Life, so if you tend to dislike that, then right here enjoy the death granted.*
+*── Крепостные частных владений остаются собственностью этих владений, покуда их Жизнь не истечёт, так что если тебя это не устраивает, то прямо здесь и сейчас прими же смерть дарованную.*
 
 "…………Ah!"
 
 — exclaimed Ронье as Зеппос’ voice heard just a few minutes ago revived in her mind.
 
-*── гоблинов remain гоблинов until they run out of Life.*
+*── Гоблины останутся гоблинами покуда их Жизнь не истечёт.*
 
 Just because the subject is different, exactly the same phrase.
 
