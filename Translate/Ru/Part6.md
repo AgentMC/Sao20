@@ -290,11 +290,11 @@ Hana said that when she was the exclusive cook of the Первосвященни
 
 "But, if you have such an area, you cannot maintain it without considerable manpower....... Я heard that similar problems are occurring in the former imperial territories of other empires."
 
-"Yazen-сан, who was in the territory of Император Южнойacroith, Я wonder which way he wanted..."
+"Язен-сан, who was in the territory of Император Южнойacroith, Я wonder which way he wanted..."
 
 Тейза replied after a short time after Ронье doubted.
 
-"...... In the vision that Асуна-сама saw through the Past Reflection art, Yazen-сан said that he was『no longer an active tenant of the Император’s domain』, so he did not intend to go back."
+"...... In the vision that Асуна-сама saw through the Past Reflection art, Язен-сан said that he was『no longer an active tenant of the Император’s domain』, so he did not intend to go back."
 
 "That... that's right. Я wish he could enjoy a new career he had just found......."
 

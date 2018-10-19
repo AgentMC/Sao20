@@ -446,7 +446,7 @@ Looking at her painful expression, Ronye also shrieked her lips. *I would like t
 
 Asuna, whose whole body was now constantly trembling, moved her hands to the disk. She rapidly moved thin fingers, and the overflowing purple light followed, flickering irregularly.
 
-Suddenly a distorted voice, as if heard from under the ground.
+Suddenly a distorted voice sounded, as if heard from under the ground.
 
 『…… ou…… rent…… a serf Yaze…… rial do……』
 
@@ -454,7 +454,7 @@ Male voice ── but only that could be understood. Then sounded another male v
 
 『Ah, err…… not…… myself…… a active tenant…… perial……』
 
-『……erfs of my…… belong to my ter…… end to dislike that, then right here……』
+『……erfs of pri…… belong to private ter…… end to dislike that, then right here……』
 
 The voice of the first man, with unexpectedly increased clarity, said ruthlessly:
 
@@ -480,7 +480,7 @@ Kirito gently pressed down Asuna’s shoulders while she was trying to rise quic
 
 She ran over to the cupboard and poured some cold water that remained in the jug into the glass and brought it back. Kirito who took the glass slightly raised Asuna's body, bringing the glass closer to her mouth.
 
-AS she slowly drank three gulps of water, Vice-Prime Swordsman smiled at Ronye with a somewhat alive face.
+As she slowly drank three gulps of water, Vice-Prime Swordsman smiled at Ronye with a somewhat alive face.
 
 "Thank you, Ronye-san."
 
@@ -504,7 +504,7 @@ Kirito tightened his profile to these words, and Ronye also gazed at Tiese.
 
 "...... What did you see? Have you understood how the murderer killed Yazen by avoiding the Taboo Index?"
 
-As a question to jump in, Asuna made a long blinking as if to verify his memory and gave a slightly hoarse voice.
+As this question came in, Asuna closed her eyes for a while as if to verify her memory and said in a slightly hoarse voice:
 
 "In the glass disk, the first thing that I saw...... a man who cleaning the room moments ago. I think that it was Yazen-san. Then the second man, standing by the other side of the screen, said to Yazen-san: 『Thou, is not a serf Yazen of the Emperor’s domain?』...... like this."
 
@@ -512,7 +512,7 @@ As a question to jump in, Asuna made a long blinking as if to verify his memory 
 
 As Kirito repeated this quietly, Asuna nodded as well.
 
-"Yup...... Yazen-san nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of my territory belong to my territory until they run out of life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-san's chest with a dagger....... Yazen-san fell down on the spot and the man left the room holding the dagger. That was what I saw there..."
+"Yup...... Yazen-san nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of private territory belong to the private territory until they run out of life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-san's chest with a dagger....... Yazen-san fell down on the spot and the man left the room holding the dagger. That was what I saw there..."
 
 Asuna went silent, but no one tried speaking for a while.
 

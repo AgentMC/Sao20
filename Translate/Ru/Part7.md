@@ -39,11 +39,11 @@ Without that Yui’s actions, the Мира Людей Defense Forces led by Ас
 
 The on-the-spot survey in the Южной Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Индекс Табу which forbids the faking of any signs и signatures, of course.
 
-However, the man who killed the old Yazen with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Индекс Табу. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
+However, the man who killed the old Язен with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Индекс Табу. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
 
 Investigation in the administration ended after the noon, и as a result Южной Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Южной Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
 
-In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Yazen’s murder case, pleaded them to remain in the Собора. Then they wanted to at lВосточной gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
+In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Язен’s murder case, pleaded them to remain in the Собора. Then they wanted to at lВосточной gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
 
 Even Ayuha Furia, one of the Underworld best arts masters, could not use Past Reflection, и the reason it worked for Асуна, although for a very short period of time, as Ayuha speculated, was related to the power of God Stacia.
 
@@ -51,7 +51,7 @@ Even Ayuha Furia, one of the Underworld best arts masters, could not use Past Re
 
 Anyway, Ayuha thought that the spirit of Асуна was tolerant to some extent to excessive information throughput и hence she could endure the Past Reflection. In fact, the burden of the technique itself did not decrease, Асуна could use it because she strongly believed in herself, и because she was aware that the safety of the mountain гоблинов is a major problem directly linked to the crisis of all Мира Людей, or all Underworld.
 
-As in the case of old man Yazen killed in Мира Людей, the criminal who abducted the three people for sure was preparing a similar situation, that if three of them were found dead, the peace between two worlds finally getting its shape would receive a devastating blow.
+As in the case of old man Язен killed in Мира Людей, the criminal who abducted the three people for sure was preparing a similar situation, that if three of them were found dead, the peace between two worlds finally getting its shape would receive a devastating blow.
 
 If the mountain гоблинов are not found during the search of the whole city of Южной Центория, there was only one way remaining. Again, at that inn, Асуна would have to use Past Reflection to examine the destination of the carriage. But this was problematic. Since it was impossible to move during the ceremony, it was necessary to repeatedly move to the point where the carriage in the crystal plate becomes invisible и see through the past again, but yesterday she used it once и that seemed to be enough for her to collapse. Асуна did not know how many times she could invoke the art, even taking breaks.
 
@@ -91,7 +91,7 @@ As Кирито's word slowed down и broke off, Асуна tilted her head и l
 
 It was clear that the subject of the words were missing гоблинов. Асуна instantly shook her head.
 
-"It is impossible. Since Yazen's incident occurred, people и horse-drawn carriages passing through Great Южной Центория Gate are strictly checked up to the contents of the luggage. No matter how small the гоблинов were, Я cannot imagine anyone missing the three people on board... besides, all of them must have been either restrained or unconscious."
+"It is impossible. Since Язен's incident occurred, people и horse-drawn carriages passing through Great Южной Центория Gate are strictly checked up to the contents of the luggage. No matter how small the гоблинов were, Я cannot imagine anyone missing the three people on board... besides, all of them must have been either restrained or unconscious."
 
 "Yup, Я think that it is impossible to go through the Южной Gate, but...... what about other gates?"
 

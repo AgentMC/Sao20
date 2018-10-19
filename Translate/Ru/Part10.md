@@ -152,7 +152,7 @@ Having instantly answered, Ронье looked at the Восточной sky.
 
 The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
 
-But after the old Yazen was killed, the door was closed again. In that sense, the black Императорs’ conspiracy has already had certain effects. Besides, the incident had not been solved at all.
+But after the old Язен was killed, the door was closed again. In that sense, the black Императорs’ conspiracy has already had certain effects. Besides, the incident had not been solved at all.
 
 Recalling what she heard from knight Fizel in the large public bath, Ронье returned her gaze to the profile of Премьер-Мечник:
 

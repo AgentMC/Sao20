@@ -376,157 +376,157 @@
 
 Ответив священными словами "Услышал на **чекине**" на вопрос Асуны, Кирито подошёл к двери. Он приоткрыл её и проверил коридор, затем сразу кивнул и подал знак Ронье и остальным следовать за ним. Той было как минимум неспокойно, ведь было неясно что делать, но она следовала за ним, в тайне надеясь, что тот не выкинет ничего безумного в таверне.
 
-## Продолжение следует...
+Выйдя в коридор, Кирито без колебаний направился на север, прочь от лестницы. Проверяя одну за другой двери с правой стороны, они, наконец, дошли до четвёртой по очереди, на которой висел пергамент с надписью 『Не обслуживается』. А прямо над ним была тускло поблёскивавшая металлическая пластина с номером 『211』.
 
-<!-- Кирито who came out in the corridor headed Северной away from stairs without any hesitation. As he checked the doors on the right one by one, eventually they saw a parchment which had inscription 『Out of service』 pinned to the fourth door. Just above that, there was a dully glowing metal plate engraved with the number 『211』.
+"Здесь."
 
-"Here"
+Асуна кивнула в ответ на сказанное Кирито. Не было никаких сомнений что именно эта комната и есть местом преступления, где и произошло убийство старого уборщика Язена.
 
-Асуна nodded to Кирито’s muttering. There was no doubt that this room is the crime scene of the old cleaner Yazen’s murder.
+Премьер-Мечник потянулся было к латунной ручке, но по какой-то причине остановил руку на полпути. Он поднёс ладонь к глазам и пристально всмотрелся в кончики пальцев.
 
-Премьер-Мечник reached for a brass grip, but for some reason stopped moving. He brought the hand in front of his eyes и carefully peered at his fingertips.
+"... Что вы делаете, сенпай?"
 
-"... What are you doing, Сенпай?"
+На тихий вопрос Ронье, Кирито просто пробормотал что-то типа "Нет, ничего......", ничего не объяснив. Но когда вслед за ним Асуна сказала "Это не опасно, они бы ни за что не смогли воспроизвести уникальные отпечатки", он, наконец, кивнул и снова поднёс ладонь к ручке двери.
 
-To Ронье’s quiet question, Кирито merely muttered something like "No, nothing......" not saying anything clear. However, as soon as Асуна said "It's safe, no way could they reproduce unique fingerprints", he finally nodded и moved his hand to the handle again.
+Попытался повернуть в обе стороны, но конечно, она была заперта и не вращалась дальше пол-оборота. Не задумываясь что делать дальше, Кирито молча уставился на замочную скважину ──
 
-He twisted it to the left и right, but of course, it was locked и stopped halfway. Without thinking what to do next, Кирито silently stared at the keyhole ──
+Через несколько секунд раздался звук отпираемого замка.
 
-A few seconds later, the sound of an open lock sounded.
+"Ух ты... сенпай, вы и такое можете инкарнацией?"
 
-"Wow... Сенпай, you can do even that with incarnation?"
+В ответ Тейзе, спросившей задрожавшим голосом, в котором сплелись шок и восхищение, Кирито пожал плечами:
 
-To that Тейза’s voice reverbing with the mix of shock и admiration, Кирито answered, shrugging:
+"Ключ и замок в этом мире не механические устройства, а лишь часть системы, эм...... часть единого целого."
 
-"The key и keyhole in this world is not a mechanical device, it’s part of a system, ehm...... of the whole thing."
+Тейза сделала недовольное лицо, услышав этот расплывчатый ответ, но ситуация не позволяла развить дискуссию дальше. Кирито повернул ручку снова, и на этот раз она повернулась полностью, и дверь сдвинулась. Он быстро огляделся, заглянул вовнутрь и поторопил остальных зайти.
 
-Тейза made an unhappy face to that ambiguous reply, but the situation did not allow for more elaborate discussion. When Кирито twisted the handle again, it turned to the end this time и the door moved a little. He quickly looked around, peered in и encouraged others to get in.
+Комната, в которую девушки вступили вслед за Асуной, была вполне обычная комната на двоих. Было только одно окно, в восточной стене, по сторонам стояли кровати, и был ещё стол, немного меньше того, за которым их четвёрка только что пила чай.
 
-The room girls stepped in behind Асуна was a very common room for two people. There was only one window on the Восточной wall, there were beds on the left и right, и a table, somewhat smaller than the one at which the four of them drank tea just now.
+На первый взгляд, не ощущалось никакой разницы по сравнению с их комнатой. Разве что на столе не было фруктов, а шторы были задёрнуты. Однако, Ронье почувствовала что это место, где было совершено ужасное убийство.
 
-At first sight, there was no difference in appearance compared to their room. Perhaps, there were no fruits on the table и the curtains were closed. However, Ронье felt that this was the scene of a horrible murder.
+Кирито, зашедший последним, аккуратно прикрыл за собой дверь. Асуна остановилась около стола и оглянувшись вокруг, молча кивнула.
 
-Кирито who came in the last gently closed the door. Асуна stopped near the table и turned around, silently nodding.
+"... Это правда не опасно, Асуна?"
 
-"... Is it really safe, Асуна?"
+— взволнованно спросил Кирито. Ронье, равно как и Тейза, разделяли это чувство.
 
-— Кирито said with a worried tone. Ронье as well as Тейза shared the same feeling.
+Директор подразделения Священных Искусств Аюха Фуриа упоминала, что нагрузка от искусства отражения прошлого, обнаруженного накануне, была слишком высока. В Мире Людей она была одним из лучших практиков, и если уж она так говорила, то использовать его должно быть непросто даже для  Вице-Премьер-Мечника Асуны, обладавшей божественной силой.
 
-Sacred Art department head Ayuha Furia mentioned that the load of the past reflection art discovered yesterday was too big. In Мира Людей she was one of the best practitioner, и if she says so, it might not be easy to use even for Вице-Премьер-Мечник Асуна having the God power.
+Но Асуна снова кивнула с её привычной мягкой улыбкой.
 
-But Асуна nodded again with her usual gentle smile.
+"Ага, всё в порядке. Ради Орои-сан, которому пришлось терпеть лишения из-за этого всего... и гораздо больше ради убитого Язена-сан, преступника нужно поймать как можно скорее."
 
-"Yup, it’s OK. For Oroi-сан who has to endure the limitations because of this... и much more for Yazen-сан murdered, we must catch the criminal as soon as possible."
+Произнеся это чистым недрогнувшим голосом, она вынула кусок сложенной белой конопляной бумаги из кожаной сумки, висящей на мечевом поясе её простой рыцарской одежды. Одного взгляда, брошенного на развёрнутый лист, было достаточно,чтобы понять насколько плотно его покрывали множество строк священных символов.
 
-Having said so in a clear unwavering tone, she took a piece of folded white hemp paper from the leather bag hanging by the Меч belt of her simple knight clothes. A glimpse over the unfolded sheet would reveal that it’s densely covered with many lines of sacred characters.
+"............ Понял. Полагаюсь на тебя."
 
-"............ Got it. Relying on you."
+Кирито произнёс эту короткую фразу голосом, наполненным убеждавшей уверенностью, и подал им с Ронье сигнал отойти к стене.
 
-Кирито said the short phrase in a voice that made one feel the convincing confidence и signaled to Ронье и the other one to stand back to the wall.
+Асуна, оставшаяся одна в центре комнаты, в течение несколько десятков секунд перечитывала с бумаги про себя священные слова, затем снова аккуратно её сложила и вернула в кожаную сумку. Похоже, она заранее запомнила слова Священного Искусства и теперь просто освежила память.
 
-Асуна left alone in the center of the room silently read the sacred words from the paper for over several tens of seconds, then folded it carefully again и put into a leather bag. Apparently, she had memorized the words of sacred art beforehand и that was simply the last review.
+Священное Искусство определённо отличалось по вероятности успеха, точности и мощности, когда записанные слова читали с бумаги по сравнению с чтением полностью запомненного заклинания. Кирито упоминал, что причина в том, что Священное Искусство также переплетено с силой инкарнации. Поэтому для практиковавших его было лучше всего полностью запомнить слова Искусства, однако Искусство Отражения Прошлого, слова которого Асуна начала напевать, было намного длиннее, чем Ронье ожидала.
 
-Sacred Art certainly has a clear difference in success rate, accuracy, и power when reading a technique written on a paper compared to casting a completely memorized art. Кирито mentioned the reason is because Sacred Art is also intertwined with the power of incarnation. Therefore, the memorization of the art wording is the basic for the practitioner, but the past reflection art Асуна started to chant was much longer than Ронье's expectation.
+Она поняла, что сперва был сгенерирован хрустальный элемент, и ему была придана форма диска, но продолжалось заклинание чем-то таким, что она слышала впервые, так что значение было ей недоступно. И тем не менее, богатая интонация, которой Асуна зачитывала заклинание, завораживала её. И тогда…
 
-She could understand that first a crystal element was generated и formed into a thin disc but the continuation of the incantation was something she heard for the first time, so she could not understand it’s meaning. Regardless of this, the affluent intonation Асуна chanted the incantation with was fascinating. и then…
-
-Suddenly the room got dark.
+Внезапно в комнате потемнело.
 
 "............!!!"
 
-— Тейза pulled the air in grasping the hem of Ронье's cloak. As ethereal darkness crawled around the floor, their legs became cold.
+— Тейза втянула воздух, схватившись за подол плаща Ронье. От бесплотной тьмы, расползавшейся по полу, холодели ноги.
 
-The sound of Асуна's voice, which began to bear the trace of rumbling и reverberation, broke for a moment.
+Звук голоса Асуны, резонирующий гремящими нотками, на секунду прервался.
 
-Suddenly her upper body shook. Кирито moved his right foot half a step forward but stayed on the spot. Casting resumed, the darkness started to grow deeper.
+Внезапно верхняя часть её тела затряслась. Правая нога Кирито дёрнулась на пол-шага вперёд, но он остался на месте. Зачитывание продолжилось, тьма стала ещё более плотной.
 
-Suddenly the crystal disc lying on the table floated up in the air without any sound. Elegant purple light flowed from it illuminating Асуна’s face from below.
+Неожиданно, хрустальный диск, лежащий на столе, беззвучно воспарил в воздух. Из него полился фиолетовый свет, элегантно освещая снизу лицо Асуны.
 
 ![Image](/Translate/Img/p109.jpg)
 
-Looking at her painful expression, Ронье also shrieked her lips. *Я would like to help Асуна, but this technique is only for masters. Besides, she is challenging the gods’ work itself peeking at the past events. The secret the Первосвященник Администратор built, securely sealed in the deeps of the Elders Council ──*
+Видя её болезненное выражение, Ронье тоже поджала губы. *Я бы хотела помочь Асуне, но эта техника только для настоящих мастеров. К тому же, она сейчас спорит с самой волей богов, заглядывая в события прошлого. Тайна, которую Первосвященник Администратор создала и навеки запечатала в глубинах Совета Старейшин ──*
 
-Асуна, whose whole body was now constantly trembling, moved her hands to the disk. She rapidly moved thin fingers, и the overflowing purple light followed, flickering irregularly.
+Асуна, всё тело которой теперь беспрерывно дрожало, положила руки на диск. Она быстро двигала пальцами, и фиолетовый свет следовал за ними, неравномерно моргая.
 
-Suddenly a distorted voice, as if heard from under the ground.
+Внезапно раздался искажённый, словно из-под земли, голос.
 
-『…… ou…… rent…… a serf Yaze…… rial do……』
+『…… ы…… зве…… постной Язе…… рского дом……』
 
-Male voice ── but only that could be understood. Then sounded another male voice, a doubtful one.
+Голос был мужской ── но разве что это и можно было понять. Затем прозвучал другой мужской голос, в нём чувствовалось сомнение.
 
-『Ah, err…… not…… myself…… a active tenant…… perial……』
+『А, э…… нет…… льше…… дую над…… рато……』
 
-『……erfs of my…… belong to my ter…… end to dislike that, then right here……』
+『……стные час…… твенностью эт…… то не устраивает, то прямо здесь……』
 
-The voice of the first man, with unexpectedly increased clarity, said ruthlessly:
+Голос первого человека, неожиданно ставший более чётким, безжалостно произнёс:
 
-『…… enjoy the death……!』
+『…… прими же смерть……!』
 
-A thud sounded, overlapped with the scream of the second man.
+Раздался глухой удар, который перекрыл крик первого мужчины.
 
-Immediately afterwards, the crystal disk turned into a myriad of fragments и crumbled. The arms of Кирито, who jumped like a wind to catch Асуна falling down to the floor, firmly supported her body.
+Сразу после этого, хрустальный диск осыпался мириадами осколков. Руки Кирито, ринувшегося подобно ветру к падающей на пол Асуне, крепко поддержали её тело.
 
 ***
 
-Four people quickly left the room 211 where the darkness faded и hurriedly flew back to the first room.
+Четверо людей быстро покинули комнату 211, тьма в которой исчезла, и спешно переместились в изначальную комнату.
 
-Кирито laid Асуна, who was using his shoulders to move around, to one of the beds.
+Кирито положил Асуну, которая опиралась на его плечи чтобы передвигаться, на одну из кроватей.
 
-"It, it's all right now."
+"В-всё уже хорошо."
 
-Кирито gently pressed down Асуна’s shoulders while she was trying to rise quickly saying so и turned his face to Ронье.
+Кирито мягко придавил плечи Асуны, когда та попыталась подняться, произнося это, и обернулся к Ронье.
 
-"Excuse me, will you bring us a glass of water?"
+"Прости, ты не принесёшь нам стакан воды?"
 
-"Y-yes, just a second."
+"Д-да, одну секунду."
 
-She ran over to the cupboard и poured some cold water that remained in the jug into the glass и brought it back. Кирито who took the glass slightly raised Асуна's body, bringing the glass closer to her mouth.
+Она подбежала к серванту, налила немного холодной воды, остававшейся в кувшине, в стакан, и принесла его. Кирито, взяв стакан, несколько приподнял тело Асуны, поднося стакан ближе к её губам.
 
-AS she slowly drank three gulps of water, Вице-Премьер-Мечник smiled at Ронье with a somewhat alive face.
+Медленно выпив три глотка воды, Вице-Премьер-Мечник улыбнулась Ронье чуть более живым лицом.
 
-"Thank you, Ронье-сан."
+"Спасибо, Ронье-сан."
 
-"It’s nothing……"
+"Не сто́ит……"
 
-Was the answer as she looked down. *I’m useless for anything except such tasks, but at lВосточной Я can say that there are cases where Я can help the two of them in some way.*
+— был её ответ, в то время как она опустила очи долу. *От меня нет толку, кроме как в таких заданиях, но по крайней мере можно сказать, что есть ситуации, в которых я им двоим хоть как-то помогаю.*
 
-Since Асуна’s exhausted state was not due to decrease of the Life, it could not be recovered by Sacred Art. Кирито who should have been aware of it, but Премьер-Мечник returned the glass to Ронье и holding his hands in the air silently generated three light elements. Those softly floated around lying Асуна, gently illuminating the beautiful face with closed eyes и glossy chestnut hair.
+Поскольку истощение Асуны было не как результат уменьшения Жизни, Священным Искусством её было не восстановить. Кирито должен был понимать это, но Премьер-Мечник вернул стакан Ронье и подняв руку в воздух молча сгенерировал три световых элемента. Они медленно парили вокруг лежащей Асуны, мягко освещая красивое лицо с закрытыми глазами и шелковистые каштановые волосы.
 
-The light elements broke off from Кирито’s control и disappeared by scattering small light drops in less than one minute, but Асуна lifted the eyelids as if she gained some vitality from that shining.
+Световые элементы менее чем за минуту вышли из-под контроля Кирито и исчезли, рассыпав маленькие капельки света, но Асуна подняла веки, словно получив от этого сияния жизненную силу.
 
-"...Yes, I'm fine now."
+"...Да, теперь я точно в порядке."
 
-"Do not push yourself, you'd better take some rest."
+"Не заставляй себя, лучше немного отдохнуть."
 
-As Кирито quickly said this, Асуна completely raised her upper body.
+Когда Кирито быстро это сказал, Асуна полностью поднялась на кровати.
 
-"No, we have to hurry......."
+"Нет, нам нужно торопиться......."
 
-Кирито tightened his profile to these words, и Ронье also gazed at Тейза.
+У Кирито на лице при этих словах отразилось напряжение, а Ронье взглянула на Тейзу.
 
-"...... What did you see? Have you understood how the murderer killed Yazen by avoiding the Индекс Табу?"
+"...... Что ты видела? Ты поняла как преступник убил Язена в обход Индекса Табу?"
 
-As a question to jump in, Асуна made a long blinking as if to verify his memory и gave a slightly hoarse voice.
+Услышав этот вопрос, Асуна на какое-то время прикрыла глаза, словно проверяя свою память, и сказала хрипловатым голосом:
 
-"In the glass disk, the first thing that Я saw...... a man who cleaning the room moments ago. Я think that it was Yazen-сан. Then the second man, standing by the other side of the screen, said to Yazen-сан: 『Thou, is not a serf Yazen of the Император’s domain?』...... like this."
+"Первое, что я увидела в стеклянном диске...... человека, секунду назад убиравшего комнату. Я думаю, это был Язен-сан. Потом второй человек, стоявший по другую сторону экрана, сказал Язену-сан: 『Ты, разве ты не крепостной Язен Императорского доминиона?』...... вроде того."
 
-"Император’s...... domain."
+"Императорского...... доминиона."
 
-As Кирито repeated this quietly, Асуна nodded as well.
+Когда Кирито тихо это повторил, Асуна тоже кивнула:
 
-"Yup...... Yazen-сан nodded at first, but then immediately denied it: 『No, I’m not. Myself is no longer an active tenant of the impreial domain』...... Then the second person said with a sort of...... sneering tone: 『Serfs of my territory belong to my territory until they run out of life, so if you tend to dislike that, then right here enjoy the death granted』and stabbed Yazen-сан's chest with a dagger....... Yazen-сан fell down on the spot и the man left the room holding the dagger. That was what Я saw there..."
+"Ага...... Язен-сан сначала кивнул, но потом бросился отрицать: 『А, нет, уже нет. Я больше не арендую надел у Императора』...... Тогда второй сказал так, словно...... насмехался: 『Крепостные частных владений остаются собственностью этих владений, пока их жизнь не истечёт, так что если тебя это не устраивает, то прямо здесь и сейчас прими же смерть дарованную』и ударил Язена-сан в грудь кинжалом....... Язен-сан упал на пол, а человек с кинжалом в руке покинул комнату. Вот что я там видела..."
 
-Асуна went silent, but no one tried speaking for a while.
+## Продолжение следует...
 
-Since no high-level cleric can tamper with the past events, it was confirmed that it was not Орои who killed the old Yazen. It was a cheering evidence, but it undeniably the mystery has increased again.
+<!-- Асуна went silent, but no one tried speaking for a while.
+
+Since no high-level cleric can tamper with the past events, it was confirmed that it was not Орои who killed the old Язен. It was a cheering evidence, but it undeniably the mystery has increased again.
 
 Кирито, who was standing one knee beside the bed, raised his body и looked at the door of the room.
 
-"....... The man who killed Yazen-сан dropped the blooded dagger in the corridor, knocked nearby room и disappeared. The mountain гоблин Орои who was sleeping in the room noticed the dagger lying on the corridor, picked it up и was captured by Южной Центория guards who came to check the place. That is what happened after Yazen-сан's murder. "
+"....... The man who killed Язен-сан dropped the blooded dagger in the corridor, knocked nearby room и disappeared. The mountain гоблин Орои who was sleeping in the room noticed the dagger lying on the corridor, picked it up и was captured by Южной Центория guards who came to check the place. That is what happened after Язен-сан's murder. "
 
 Кирито’s explanation was enough to Ронье, but Тейза next to her said "But ..." uncertainly.
 
-"Кирито-сенпай, weren’t guards too quick to come to a murder location? The criminal who killed Yazen-сан knocked Oroi-сан's room и ran away, и it seems that only few minutes have passed before Oroi-сан picked up a dagger......."
+"Кирито-сенпай, weren’t guards too quick to come to a murder location? The criminal who killed Язен-сан knocked Oroi-сан's room и ran away, и it seems that only few minutes have passed before Oroi-сан picked up a dagger......."
 
 And it has be told, she was right. Кирито also nodded looking gloomily.
 
@@ -544,11 +544,11 @@ She slightly opened her mouth и blinked as if searching for words, but quickly 
 
 Said Кирито, coming close to Асуна и gently hugging her.
 
-"Even though Я could not see the criminal directly, Я could hear the voice, и Я understood many other things. For example, ...... the culprit who killed Yazen-сан did not utilize a complicated **trick**...... did not avoided the Индекс Табу somehow, it just seems that he normally stabbed his heart..."
+"Even though Я could not see the criminal directly, Я could hear the voice, и Я understood many other things. For example, ...... the culprit who killed Язен-сан did not utilize a complicated **trick**...... did not avoided the Индекс Табу somehow, it just seems that he normally stabbed his heart..."
 
 This was also true, come to think of it.
 
-Асуна took risk и used Past Reflection art to find out both "how" и "why" the criminal killed the old Yazen. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
+Асуна took risk и used Past Reflection art to find out both "how" и "why" the criminal killed the old Язен. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
 
 "The culprit is not bound by the Индекс Табу......."
 
@@ -562,17 +562,17 @@ This was also true, come to think of it.
 
 Вице-Премьер-Мечник appearing almost recovered said while looking at the faces of three people with her tea-with-milk-colored eyes.
 
-"...... Я think, the words of the criminal who killed Yazen... Я think that's why he could kill him."
+"...... Я think, the words of the criminal who killed Язен... Я think that's why he could kill him."
 
 "Words ...... 『Serfs of my territory belong to my territory』...?"
 
-"Yes...... The reason why the culprit could ignore the Индекс Табу was because Yazen-сан belonged to the aristocrat’s private territory и was a subject to the decision right of the one..."
+"Yes...... The reason why the culprit could ignore the Индекс Табу was because Язен-сан belonged to the aristocrat’s private territory и was a subject to the decision right of the one..."
 
 "……Indeed!"
 
 Кирито sharply inhaled и looked outside the window as if hoping to see the criminal standing there.
 
-"It may not only be the old Yazen but as well any other former peasant released from private territories could be killed in the same way.... That's why Асуна said 『We need to hurry』"
+"It may not only be the old Язен but as well any other former peasant released from private territories could be killed in the same way.... That's why Асуна said 『We need to hurry』"
 
 "Yup…… If we don’t hit his hands before the next victim comes, that’s what Я thought... but......."
 

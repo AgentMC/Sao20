@@ -121,9 +121,9 @@ If her friend’s guess is right, whom the kidnappers — who are Императ
 
 Кирито was also saying this as well.
 
-If the culprit was able to violate the Индекс Табу и kill Yazen-сан because he was a former private territory dweller, other former serfs could be killed in the same way.
+If the culprit was able to violate the Индекс Табу и kill Язен-сан because he was a former private territory dweller, other former serfs could be killed in the same way.
 
-Премьер-Мечник thought so because he could hear the voice of the murderer in Асуна's "past reflection art". The words of the culprit just before killing the old Yazen.
+Премьер-Мечник thought so because he could hear the voice of the murderer in Асуна's "past reflection art". The words of the culprit just before killing the old Язен.
 
 *── Serfs of my territory belong to my territory until they run out of Life, so if you tend to dislike that, then right here enjoy the death granted.*
 
@@ -137,11 +137,11 @@ Just because the subject is different, exactly the same phrase.
 
 That's it. Too weak for the evidence, purely circumstantial. But Ронье believed her intuition was correct.
 
-"...... That guy called Зеппос is the culprit who killed Yazen-сан in the inn."
+"...... That guy called Зеппос is the culprit who killed Язен-сан in the inn."
 
 As she said so in a shivering voice, Тейза who also felt the same, nodded deeply with a tight expression.
 
-"Yeah.... Я feel that too, don’t know how far he can break the Индекс Табу, but he’ll definitely try to use гоблинов-сан to cause a more serious incident than the one of Yazen-сан's case. We must stop him as soon as possible."
+"Yeah.... Я feel that too, don’t know how far he can break the Индекс Табу, but he’ll definitely try to use гоблинов-сан to cause a more serious incident than the one of Язен-сан's case. We must stop him as soon as possible."
 
 "Eeeh..."
 
@@ -382,7 +382,7 @@ She listened carefully to the weird voice, but could not understand the meaning 
 But just before that, Зеппос, who was retreating to the Южной window covered by the curtain, pulled out two daggers with almost no sound from the sheaths attached to the leather bands on both legs. The one in the right hand was slightly larger, but the blade in the left hand was covered with some green liquid.
 
 *The blade in the left hand, same poison knife he pointed to Шимосаки back there in the dungeon.  
-And perhaps the one in the right hand is the knife used to take old Yazen's life.*
+And perhaps the one in the right hand is the knife used to take old Язен's life.*
 
 While going around the candle circle in the center of the hall, Зеппос was getting closer и closer. The light of sunset flowing through the only window that has lost a curtain illuminated in red his face that was hidden under the hood until now.
 
@@ -787,7 +787,7 @@ The Рыцарь Целостности team won’t be able to fight back "sub-
 
 No, even more terrible things can happen than that.
 
-Император Крюгер и Зеппос abducted the mountain гоблинов и transformed them into minions in order to cause a new war between Мира Людей и Тёмной Территории. If these minions attack Центория и after a large number of casualties it turns out that their actual identities are гоблинов, the influence of that would not be limited to the Yazen’s murder scale. The anger и hatred far exceeding the ones of former Войны с Внешним Миром would rise и the people of Мира Людей will have the genuine wish to begin a reverse invasion into the Тёмной Территории.
+Император Крюгер и Зеппос abducted the mountain гоблинов и transformed them into minions in order to cause a new war between Мира Людей и Тёмной Территории. If these minions attack Центория и after a large number of casualties it turns out that their actual identities are гоблинов, the influence of that would not be limited to the Язен’s murder scale. The anger и hatred far exceeding the ones of former Войны с Внешним Миром would rise и the people of Мира Людей will have the genuine wish to begin a reverse invasion into the Тёмной Территории.
 
 In order to avoid that definite catastrophe, some knights may be able to break the seal of the right eye и fight minions.
 
