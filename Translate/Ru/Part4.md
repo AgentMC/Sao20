@@ -2,86 +2,86 @@
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-When Ронье came to dragon stables two hours later than usual, Цукигаке greeted her with a slightly unhappy cry.
+Когда Ронье пришла в драконьи стойла на два часа позже обычного, Цукигаке поприветствовала её немного невесёлым криком.
 
-"Kyu-ru-ru-ru!!!"
+"Кю-ру-ру-ру!!!"
 
-"Sorry, sorry, Я am late."
+"Извини, извини, я опоздала."
 
-As soon as she opened a fence of about 1 mel height, the young dragon covered in pale-yellow fur rushed to her flapping small wing. Caught with both arms, it aggressively pushed it’s rounded square-like grown head to the neck of Ронье.
+Стоило ей приоткрыть забор высотой примерно в 1 мел, как покрытая бледно-жёлтым мехом маленькая дракониха бросилась на неё, хлопая маленькими крыльями. Пойманная обеими руками, она агрессивно ткнулась своей округлой квадратной головой в шею Ронье.
 
-Nearby, Тейза got the similar unhappy greeting from Шимосаки. Both of them are still not large enough so one can hold them, but it will not be possible next year.
+По соседству, Тейзу тем же способом приветствовал обиженный Шимосаки. Оба дракона были ещё достаточно маленькими чтобы их можно было держать на руках, но уже через год это будет невозможно.
 
-"Arabel-dono, is everything all right?"
+"Арабель-доно, у вас всё в порядке?"
 
-Suddenly a voice sounded behind, и Ронье startlingly looked back.
+Внезапно позади раздался голос, и Ронье резко обернулась.
 
-There was tall и thin man standing there. He was wearing unusual clothes with many clasps where both upper и lower parts were tailored with a strange fabric reminiscent of small scales, и many large и small leather bags were hanging on his waistband. In his right hand he was holding a long spear-like wooden handle but attached to the head was not a metal tip a but a large brush of hard hair.
+Там стоял высокий и худой мужчина. Он был облачён в необычное одеяние со множеством заклёпок, в котором и верх, и низ были сшиты из странной ткани, напоминавшей чешуйки, а на поясе у него висело множество больших и маленьких кожаных сумок. В правой руке он держал длинную деревянную рукоять, как у копья, однако наконечником служило не металлическое остриё, а широкая щётка из жёсткого волоса.
 
-His shabby face looked somewhat older than Дюсольберт’s, but the actual age was not clear. This person had long been a keeper in dragon stables of Собора for a long time и his Life has been frozen just like Airy’s...... there was such a rumor.
+Его потрёпанное годами лицо выглядело ещё старше, чем у Дюсольберта, но о конкретном возрасте сложно было судить. Этот человек уже долгое время присматривал за драконьими стойлами Собора и его жизнь была заморожена так же как и у Эйри...... по крайней мере, по слухам.
 
-"Yes, Я guess so, Hainag-сан."
+"Да, полагаю что да, Хайнаг-сан."
 
-When Ронье nodded, the stable worker extended his slender, yet, upon closer look, quite stubborn right hand, pushing it under the chin of the young dragon.
+Когда Ронье кивнула, работник стойл протянул свою тонкую, но, при ближайшем рассмотрении, довольно крепкую правую руку, просунув её под подбородок маленькому дракону.
 
-"Recently Я gave some fish to Цукигаке, it wasn’t a lot, but she still left some. Dragons, of course, have individual food preferences, but there’s no chance one can choose food in the battlefield, so you’d better correct this behavior while she’s still young."
+"Недавно я дал Цукигаке немного рыбы, там было немного, но она всё равно оставила. Драконы, конечно, имеют определённые предпочтения в еде, но на поле боя возможности выбирать не будет, так что вам следует исправить это поведение пока она ещё мала."
 
-"Oh... is that so? Hey, Цукигаке, there’s no good in being picky, you know?"
+"Ой... правда? Эй, Цукигаке, нет ничего хорошего в том, чтобы быть переборчивой, ты в курсе?"
 
-When the Ронье softly scolded her, the young dragon, as if understanding the words, pushed its head и feathery ears down и said "Kyuuun".
+Когда Ронье мягко пожурила её, маленькая дракониха, словно понимая слова, опустила голову и уши в перьях вниз и сказала "Кюууун".
 
-"Well, what should Я do to correct this fish disliking?"
+"И что же мне делать чтобы исправить эту её нелюбовь к рыбе?"
 
-"The most effective thing would be to let them catch fish by themselves. If they eat freshly caught fish the issue usually gets fixed immediately, but it is difficult to have this within Собора. Previously, Я was excused by Bercouli-dono to take a young dragon to a lake outside the city."
+"Самым эффективным будет дать им самим ловить рыбу. Обычно, если они едят свежепойманую рыбу, проблема решается сама собой, но в пределах Собора такое сложно организовать. В прошлом я просил позволения Беркули-доно вывести молодого дракона за пределы города на озеро."
 
-"F-Fresh, freshly caught you say... Well then, Я will ask knight chief Фанатио or Кирито-sen... or the Премьер-Мечник-сама for the permission."
+"С-свежая, свежепойманая, говорите... Ясно, я спрошу позволения у главы рыцарей Фанатио или Кирито-сен... или у Премьер-Мечника-сама."
 
-"Please do so. и now please excuse me."
+"Будьте добры. А теперь прошу меня извинить."
 
-Having briefly bowed, Hainag the dragon stable keeper walked away to the dragon compartment in the back. Тейза who overheard the talk as she was taking care of her dragon nearby said:
+Коротко поклонившись, хранитель драконьих стойл Хайнаг отошёл к помещению для содержания драконов в глубине стойл. Тейза, услышавшая этот разговор в то время как она заботилась о своём драконе, спросила:
 
-"... are they supposed to catch fish by themselves?"
+"... а они что — сами могут рыбу ловить?"
 
-"Я wonder if they can swim in the first place..."
+"Мне вот интересно, смогут ли они вообще плавать..."
 
-As they tilted their heads in the same way, both dragons which understood they will be taken to a walk outside started to happily swing their tails.
+Пока они стояли, одинаково наклонив головы, оба дракона, поняв, что их выведут прогуляться наружу, начали радостно махать хвостами.
 
-"It seems so."
+"Походе на то."
 
-For the time being, they left the stables и let the dragons onto the lawn surrounding the building. Immediately, those two began running around the grass while squealing noisily.
+Пока что, они покинули стойла и пустили драконов на лужайку, окружавшую здание. Те двое сразу же начали гоняться друг за другом, радостно шумя.
 
-*As Я see this happening, naturally a wide smile emerges on my lips, but Я just don’t feel like running around together with them. Even now, somewhere on the upper floors of Собора, Кирито и Асуна continue discussions with the senior knights.*
+*Когда я смотрю на них, у меня сама собой появляется улыбка, но я просто не могу вот так взять и играть с ними. Ведь даже сейчас, где-то наверху Собора, Кирито и Асуна продолжают обсуждения со старшими рыцарями.*
 
-*The true identity of the person who called himself an official of the Южной Центория administration и took the three mountain гоблинов by the carriage could not be clarified with the available guards. Although we were able to meet the guardian of the room, he only said that the administrative seal was certainly pressed in the гоблинов transportation order the person produced.*
+*Истинную личность человека, назвавшего себя чиновником администрации Южной Центории и забравшего трёх горных гоблинов в карете, не удалось выяснить у присутствовавших стражников. Хотя мы и смогли встретиться со стражником, охранявшим комнату, он смог только сказать, что печать администрации совершенно точно присутствовала на приказе о перевозке гоблинов, который этот человек показал.*
 
-*Then we had to contact the administration directly, but it was not so easy. The administrations of the four cities are still under the heavy influence of the former senior aristocracy и they tend to oppose the Объединённого Совета Мира Людей; in particular, the Южной Центория administration officials displayed a stiff attitude to forcibly close the case of Язен's murder. Кирито и others judged that an official order was needed to investigate the matter of the transfer и returned to the Собора to prepare the documents from the Union Council и Рыцари Целостности name.*
+*Тогда нам пришлось связаться с самой администрацией, но это было не так просто. Администрации четырёх столиц всё ещё находятся под сильным влиянием бывшей старшей аристократии и они будут склоняться к противодействию Объединённому Совету Мира Людей; в особенности, чиновники администрации Южной Центория продемонстрировали твёрдое желание спустить дело об убийстве Язена на тормозах. Кирито и остальные рассудили, что дабы расследовать эту ситуацию с перевозкой им понадобится официальный ордер, и вернулись в Собор чтобы подготовить документы от имени Объединённого Совета и Рыцарей Целостности.*
 
-*Я do not think that Фанатио or Дюсольберт would oppose giving an investigation order to the administration. Because, Кирито already is almost convinced that both the order form и the official seen there were fakes. The problem is the behavioral guideline given. Кирито feels responsible for having the гоблинов kidnapped, и he would try to raise the search и rescue them. But since the life of the Премьер-Мечник has just been targeted at Obsidia Castle recently, Фанатио и others must also strongly argue that he should remain quiet this time.*
+*Я не думаю, что Фанатио или Дюсольберт будут противиться выдаче ордера для расследования относительно администрации. Потому что Кирито уже практически уверен, что и сам приказ, и чиновник, его предъявивший, были поддельными. Проблема в том, позволят ли ему самому действовать. Кирито чувствует себя виновным в том, что гоблинов похитили, и он попытается начать поиск и найти их. Но поскольку жизнь Премьер-Мечника только что была целью в замке Обсидия, Фанатио и остальные будут настаивать, что ему следует затаиться на этот раз.*
 
-"...... the Council, they will be against him......."
+"...... Совет, они будет против него......."
 
-Тейза, who seemed to think the same thing, muttered next to her, и Ронье nodded:
+— пробормотала рядом с ней Тейза, судя по всему, думавшая о том же, и Ронье кивнула:
 
-"It may continue tomorrow."
+"И это может продолжиться завтра."
 
-"Я hope Сенпай does not get out in the middle of the night..."
+"Я надеюсь, сенпай не сбежит посреди ночи..."
 
-*That is quite likely to happen.  
-Я would like Кирито to act freely, but as his valet in the past, Я must make sure he stays on the spot when detained.* Looking up at the large tower of chalk, Ронье said:
+*Что весьма вероятно.  
+Я бы хотела, чтобы Кирито дали свободу действий, но как его камердинер в прошлом, я обязана убедиться, что он остаётся там, где должен.* Взглянув вверх на высокую меловую башню, Ронье сказала:
 
-"Я will ask Асуна-сама...... to keep an eye on Сенпай."
+"Я попрошу Асуну-сама...... присмотреть за сенпаем."
 
-Тейза who heard that seemed to try saying something, but the words did not flow so she just breathed out. She briefly glared at the one nearby, и finally mumbled a word keeping doubtful expression:
+Тейза, услышавшая это, попыталась что-то сказать, но слова всё не выходили, так что она просто выдохнула. Она бросила быстрый взгляд на сидящую рядом, и наконец, пробубнила одно слово, сохраняя выражение, полное сомнения:
 
-"……what?"
+"…… что?"
 
-"No, nothing."
+"Нет, ничего."
 
-As two of them were having such a conversation, the young dragons let out a dissatisfied cry. Meaning the two of them should join the chase.
+Пока они вели этот разговор, молодые драконы испустили недовольный крик. Имея в виду, что этим двоим следует к ним присоединиться.
 
-"All right but be ready for the hard time!"
+"Ладно, но не думайте что легко отделаетесь!"
 
-Having cried so, Ронье began chasing Цукигаке и Шимосаки.
+Выкрикнув это, Ронье начала гоняться за Цукигаке и Шимосаки.
 
 <!--## Footnotes:
 

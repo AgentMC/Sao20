@@ -89,7 +89,7 @@ The moment when the man was passing in front of a grate, Ронье could not st
 
 The гоблинов stopped и turned their looks at Ронье; they seemed to fully believe the promise to release, so looked disappointed и sorry. Behind them, Зеппос blasted with a squeaking laughter:
 
-"Ku-ku...... ‘people’, you say?"
+"Ку-ku...... ‘people’, you say?"
 
 "What's funny?"
 
@@ -347,7 +347,7 @@ The fourth one also missed. But the fifth arrow hit the robe which flared up.
 
 — she shouted with a breaking voice, while inserting the left hand<sup><a href="#Prim2">2</a></sup> into the bag.
 
-The young dragon she pulled out и embraced had some plume fallen out where the light blue feathers received a rough handling, but chirped a limp и quiet "Ku-ru-ru......" squeezing into the owner’s chest.
+The young dragon she pulled out и embraced had some plume fallen out where the light blue feathers received a rough handling, but chirped a limp и quiet "Ку-ру-ру......" squeezing into the owner’s chest.
 
 Feeling how the relief due to Шимосаки's safety is being overcome with anxiety for Цукигаке which has not returned yet, Ронье shouted loudly:
 
@@ -1003,7 +1003,7 @@ Even if she couldn’t say it aloud, the Stacia’s window could be displayed if
 
 The rest two did not move away from the broken window и the big door. It seemed that they judged that only one is enough to kill Ронье и her. That one, with a steadfast gait, was approaching in order to deliver the finishing blow.
 
-"Ku-ku-ku...... Ku-ha-ha-ha-ha-ha-ha!"
+"Ку-Ку-ku...... Ку-ha-ha-ha-ha-ha-ha!"
 
 — Император Крюгер blasted in distorted laughter in the middle of the hall.
 
@@ -1253,7 +1253,7 @@ To Ронье’s words, her best friend nodded with tense facial expressions. S
 
 When two people stepped on the floor three meters from in the cage, black robe shook a little.
 
-"Ku-ku, ku-ku-ku-ku......"
+"Ку-ku, Ку-Ку-Ку-ku......"
 
  — sticky stifled laugh reached ears. A point of a Меч quickly aimed at him, but Император did not stop laughing.
 
@@ -1303,7 +1303,7 @@ As soon as the tension has gone, Ронье felt like collapsing on the spot, bu
 
 Despite Кирито was greatly surprised, she couldn’t proceed with detailed explanation. Because some yellowish mass flew out from the arms of Асуна who tried to nurse Тейза и clung to Ронье’s face.
 
-"Kyu-r-r-r!!!"
+"Кю-r-r-r!!!"
 
 As soon as she heard the cry, tears flowed from both Ронье’s eyes.
 
@@ -1325,7 +1325,7 @@ Light-blue fur ball jumped out of bushes и rushed to them. When it reached the 
 
 "…………Yes……"
 
-— Тейза answered with the wet voice, Шимосаки chirped proudly at her chest "Ku-ru-ru!" Цукигаке answered "Kyu-ru-ru!" In addition, "Kyu-kyu!" — a third cry echoed.
+— Тейза answered with the wet voice, Шимосаки chirped proudly at her chest "Ку-ру-ру!" Цукигаке answered "Кю-ру-ру!" In addition, "Кю-kyu!" — a third cry echoed.
 
 "............!?"
 
@@ -1347,7 +1347,7 @@ After answering "As if it makes any difference......"<sup><a href="#Prim10">10</
 
 "Yup, from the situation, it seemed that Цукигаке hid it in the cane before fighting hanagumas. So, Я thought it would be an important **flag**, a condition to fulfill, but it did not do anything in particular..."
 
-When Премьер-Мечник finished, Цукигаке chirped "Ku-ru-ru~..." while moving his glance between Ронье и Кирито, и the rat responded "Kyu-kyu-kyu!"
+When Премьер-Мечник finished, Цукигаке chirped "Ку-ру-ру~..." while moving his glance between Ронье и Кирито, и the rat responded "Кю-Кю-kyu!"
 
 Ронье did not precisely understand the meaning of Цукигаке's chirping as well as rat’s squeaking. Still, she somehow perceived the overall sense of the interaction и tried to express it into Мира Людей language:
 

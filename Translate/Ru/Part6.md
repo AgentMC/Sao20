@@ -12,7 +12,7 @@ All the private areas were released after Rebellion of Four Empires, и now anyo
 
 Мира Людей Calendar year 382, February 24th.
 
-After completing the morning practice, Ронье и the other one took permission from instructor Дюсольберт и knights leader Фанатио, и even from Премьер-Мечник for Цукигаке и Шимосаки to leave Собора. Кирито was sorry that he could not go with them — but Ронье was fine with that, since the two of them did not just come to play. They were going to practice the advice they got from the stable keeper Hainag yesterday.
+After completing the morning practice, Ронье и the other one took permission from instructor Дюсольберт и knights leader Фанатио, и even from Премьер-Мечник for Цукигаке и Шимосаки to leave Собора. Кирито was sorry that he could not go with them — but Ронье was fine with that, since the two of them did not just come to play. They were going to practice the advice they got from the stable keeper Хайнаг yesterday.
 
 When Solus reached zenith, two young dragons that were running around the grassland и playing, came in front of Ронье и Тейза sitting on the rocks of the lakeshore и began to yap one after another. Probably running so much finally made them hungry.
 
@@ -20,7 +20,7 @@ The small horse-driven carriage they used for the movement so far ─ despite th
 
 "Цукигаке, Шимосаки, today you two are going to catch the lunch for yourselves."
 
-"Kyu-ru......?"
+"Кю-ру......?"
 
 It is unclear how much the dragons understand human words, but when they saw the pair tilting their heads having a confused look, Тейза smiled и rose from the rock.
 
@@ -46,7 +46,7 @@ That wasn’t true, и furthermore since she terribly wanted to laugh hearing th
 
 Ронье и Цукигаке kept staring at each other for some time until ──
 
-"Kyu-ru-ru!!!"
+"Кю-ру-ру!!!"
 
 Шимосаки who cried loudly swung small wings a couple of times to inspire himself, then quickly jumped over the water. He folded the wings in the air, straightened the long neck, и dived into the lake head in front.
 
@@ -62,7 +62,7 @@ In spite of his turning the face away from the water drops, Ронье noticed s
 
 Цукигаке approached и moved his nose to the caught trout being kept in Шимосаки's mouth и carefully smelled it. But shortly afterwards Шимосаки turned his head upwards и swallowed the fish.
 
-"Kyu-ru-ru-ru!!!"
+"Кю-ру-ру-ру!!!"
 
 To a satisfied cry of a young dragon, Тейза added in a somewhat astonished voice:
 
@@ -82,7 +82,7 @@ in a loud voice, Цукигаке also jumped into the water.
 
 As it jumped out of the water surface, a splendid trout, of about 25 cen, was held in the mouth of the young dragon returning to the shore.
 
-"Ku-ru-ru-ru!!!"
+"Ку-ру-ру-ру!!!"
 
 Ронье also happily shouted to Цукигаке who boastingly showed the prey giving the loud cooing:
 
@@ -102,7 +102,7 @@ After blinking couple of times, she asked the young dragon:
 
 Then Цукигаке cried as if enjoying she finally understood:
 
-"Ku-ru-ru~!"
+"Ку-ру-ру~!"
 
 "All right...... Thank you, Цукигаке."
 
@@ -619,7 +619,7 @@ Judging that there was no choice but to take them along, Ронье bent backwar
 
 "You guys keep quiet."
 
-After she lightly stroke the head of Цукигаке who responded with a quiet **ku-ru-ru**, the dragon slowly stretched the back.
+After she lightly stroke the head of Цукигаке who responded with a quiet **Ку-ру-ру**, the dragon slowly stretched the back.
 
 Another glance at the footpath revealed that the footprints of light had already disappeared, but there was no danger of getting lost due to the size of the forest. They with Тейза nodded to each other и stepped inside together.
 
@@ -679,13 +679,13 @@ But, on the other hand, they’d need to find a bar about 3 mel length, to take 
 
 When Ронье thought again, what on earth this building is exactly, that happened.
 
-That moment they heard the dragon's roaring "Ku-ru-ru-ru.......". Looking down, they saw the light-blue feathered Шимосаки trying to thrust his body into the gap in the grid. Тейза who saw it asked, worriedly:
+That moment they heard the dragon's roaring "Ку-ру-ру-ру.......". Looking down, they saw the light-blue feathered Шимосаки trying to thrust his body into the gap in the grid. Тейза who saw it asked, worriedly:
 
 "Hey Шимосаки, you think you can get through this gap...?"
 
 But before she finished, Цукигаке’s head showed Шимосаки's back. The body of the young dragon passed through the gap at once, и after one full somersault, he stood up in front of the staircase.
 
-"Kyu-ru-ru!!!"
+"Кю-ру-ру!!!"
 
 Шимосаки proudly chirped, и although some rust stuck to his feathers, there seemed to be no injury. It looked wide due to fluffy fur и feathers, but the body of the young dragon in reality was still small.
 
@@ -859,7 +859,7 @@ On the floor, widely spreading the wings, just in front of Ронье's feet —
 
 "Цукигаке, Шимосаки, get into the cell now и stay quiet!"
 
-Young dragons leaked unhappy "Ku-ru-ru......", but obeyed the order. First, Цукигаке squeezed through the gap in the iron grid. Rattling the grating with both legs, she bent the body to go through the gap, и rolled up in the center of the cell. Mountain гоблинов let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
+Young dragons leaked unhappy "Ку-ру-ру......", but obeyed the order. First, Цукигаке squeezed through the gap in the iron grid. Rattling the grating with both legs, she bent the body to go through the gap, и rolled up in the center of the cell. Mountain гоблинов let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
 
 Next, Шимосаки tried to go through the grid. The hidden door was already half-lifted, и white-smoke-cold air flowed out of the darkness on the other side. The darkness was too dense, it wasn’t possible to see the appearance of the one who was behind the door, but the presence felt somehow familiar.
 
@@ -871,7 +871,7 @@ She thought about pushing by hand, but if it is done too aggressively, one might
 
 "Шимосаки, you're good! Behind us!"
 
-Тейза shouted again without hesitation while holding the Меч ready. Шимосаки also answered "Ku-ru", pulled the body out from the iron grid и ran behind the two of them.
+Тейза shouted again without hesitation while holding the Меч ready. Шимосаки also answered "Ку-ру", pulled the body out from the iron grid и ran behind the two of them.
 
 At last the hidden door lifted almost to the very ceiling и stopped with a loud sound.
 
@@ -960,7 +960,7 @@ As these fragmentary thoughts sparked in her mind, Ронье quickly turned aro
 
 And the man's left hand was gripping the neck of the young dragon wrapped in blue feathers.
 
-"Gyu-ru-ru-u!!!"
+"Gyu-ру-ру-u!!!"
 
 — the dragon screamed painfully.
 
@@ -990,7 +990,7 @@ The Император Крюгер standing in front of the hidden door — or 
 
 "Tell him to let Шимосаки go. If you scratch as much as his hair, none of you two will get outta here alive."
 
-"Ku-ku-ku, becoming a knight, one also gains power."
+"Ку-Ку-ku, becoming a knight, one also gains power."
 
 After letting out a gruesome laugh, the Император-like man traced the left side of his chest with his finger. A year ago, that place was deeply penetrated by Тейза’s Меч.
 
@@ -1024,7 +1024,7 @@ As Ронье turned the key to the right, at certain point she felt a kind of r
 
 Император Крюгер who caught it with a pale right hand smiled again while returning the key to the bosom of robe.
 
-"Ku-ku... quite a wise decision. Я wouldn’t want to defile this historic place with lizard blood."
+"Ку-ku... quite a wise decision. Я wouldn’t want to defile this historic place with lizard blood."
 
 "...!!!"
 
@@ -1048,7 +1048,7 @@ But even aristocrats could not violate the Индекс Табу, which prohibit
 
 When Ронье pointed that out in hoarse voice, the Император laughed again:
 
-"Ku, ku-ku-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Императорs of the four empires и of a senior aristocracy existed only due to the exploitation of that method."
+"Ku, Ку-Ку-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Императорs of the four empires и of a senior aristocracy existed only due to the exploitation of that method."
 
 The moment she heard the words, the abominable memory ripped her mind like a lightning flash in the dark night.
 
@@ -1164,7 +1164,7 @@ That's right — there was only one reason why Император Крюгер c
 
 "Thank you very much……"
 
-When she thanked them again, there was also a quiet chirping "Ku-ru".
+When she thanked them again, there was also a quiet chirping "Ку-ру".
 
 Цукигаке who passed through the iron grid back appeared in front of Ронье. When the young dragon tried to push the body through the grid again, Ронье crouched и pushed him back with both hands.
 

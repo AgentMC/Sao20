@@ -546,7 +546,7 @@ Said Kirito, coming close to Asuna and gently hugging her.
 
 This was also true, come to think of it.
 
-Asuna took risk and used Past Reflection art to find out both "how" and "why" the criminal killed the old Yazen. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
+*Asuna took risk and used Past Reflection art to find out both "how" and "why" the criminal killed the old Yazen. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words,............*
 
 "The culprit is not bound by the Taboo Index......."
 
@@ -562,7 +562,7 @@ Vice-Prime Swordsman appearing almost recovered said while looking at the faces 
 
 "...... I think, the words of the criminal who killed Yazen... I think that's why he could kill him."
 
-"Words ...... 『Serfs of my territory belong to my territory』...?"
+"Words ...... 『Serfs of private territory belong to the private territory』...?"
 
 "Yes...... The reason why the culprit could ignore the Taboo Index was because Yazen-san belonged to the aristocrat’s private territory and was a subject to the decision right of the one..."
 
@@ -608,7 +608,7 @@ Kirito tried to quickly support Asuna who got up from the bed, but it seemed unn
 
 "Of course. It is a room for four on the first floor, so it's probably just below here. The one that should have the guards in front of the door... half for the escort and half for the watch...."
 
-"It cannot be helped, but if we move them to the Cathedral, that need is gone. Let's go."
+"It could not be helped, but if we move them to the Cathedral, that need is gone. Let's go."
 
 Ronye and others chased Asuna who began walking quickly.
 

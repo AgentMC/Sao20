@@ -8,7 +8,7 @@ When Ronye came to dragon stables two hours later than usual, Tsukigake greeted 
 
 "Sorry, sorry, I am late."
 
-As soon as she opened a fence of about 1 mel height, the young dragon covered in pale-yellow fur rushed to her flapping small wing. Caught with both arms, it aggressively pushed it’s rounded square-like grown head to the neck of Ronye.
+As soon as she opened a fence of about 1 mel height, the young dragon covered in pale-yellow fur rushed to her flapping small wings. Caught with both arms, it aggressively pushed it’s rounded square-like grown head to the neck of Ronye.
 
 Nearby, Tiese got the similar unhappy greeting from Shimosaki. Both of them are still not large enough so one can hold them, but it will not be possible next year.
 
@@ -18,7 +18,7 @@ Suddenly a voice sounded behind, and Ronye startlingly looked back.
 
 There was tall and thin man standing there. He was wearing unusual clothes with many clasps where both upper and lower parts were tailored with a strange fabric reminiscent of small scales, and many large and small leather bags were hanging on his waistband. In his right hand he was holding a long spear-like wooden handle but attached to the head was not a metal tip a but a large brush of hard hair.
 
-His shabby face looked somewhat older than Dusolbert’s, but the actual age was not clear. This person had long been a keeper in dragon stables of Cathedral for a long time and his Life has been frozen just like Airy’s...... there was such a rumor.
+His shabby face looked somewhat older than Dusolbert’s, but the actual age was not clear. This person had long been a keeper in dragon stables of Cathedral and his Life has been frozen just like Airy’s...... there was such a rumor.
 
 "Yes, I guess so, Hainag-san."
 

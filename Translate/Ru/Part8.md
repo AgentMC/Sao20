@@ -27,7 +27,7 @@ She turned to the right и looked up at the top of a hedge. Tried to jump over a
 
 If that’s the case, there is no choice but to break through the hedge.
 
-"Ku-ru-ru..."
+"Ку-ру-ру..."
 
 After softly chirping to demonstrate the readiness, she folded the wings tightly и thrust the nose into the surface by the roots of the hedge.
 
@@ -55,7 +55,7 @@ Running around a thick tree, Цукигаке's keen nose caught something smell
 
 A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp и sticky, unlike the soft soil of the flowerbed in the front of the Собора garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely he couldn’t see anything at the bottom.
 
-"Ku-ru……"
+"Ку-ру……"
 
 Цукигаке slowly moved away from the edge of the hole. It was unclear if she can escape if she falls, nor had she time to loiter having a snack at that time.
 
@@ -65,7 +65,7 @@ Grassland surrounding the forest had been dyed in bright yellow, illuminated in 
 
 Looking around, she saw a white wall across the meadow on the right side, a glittering water surface of the lake on the left side, и a small human town in the front. *It is farther than Я thought, but if Я run hard, Я will be able to arrive sooner or later. No, “sooner or later” won’t work. At this very moment, my Master и her best friend are trapped in the dungeon, и Шимосаки is taken to the mansion, и he must have been scared so much.*
 
-"Kyu-ru-ru!"
+"Кю-ру-ру!"
 
 Цукигаке began to run again after quietly chirping, so that black people would not hear by any chance.
 
@@ -83,11 +83,11 @@ However, it wasn’t possible lying down forever. The area was a wetland coverin
 
 His front и left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
 
-"Ku-ru-ru..."
+"Ку-ру-ру..."
 
 Цукигаке who had no idea what to do next inadvertently leaked a miserable voice.
 
-Then, as if hearing this voice, a small creature came out from a grassy place a little away, и shrilly chirped "Kyu-kyu?!".
+Then, as if hearing this voice, a small creature came out from a grassy place a little away, и shrilly chirped "Кю-kyu?!".
 
 A creature with short brown fur, ears almost as long as the body, и small round eyes, looked up at Цукигаке, turning the neck to the right as if saying ‘what the heck is this thing’.
 
@@ -101,13 +101,13 @@ Whether or not Цукигаке was able to communicate a request to wait ─ no
 
 *If Я scare it again — it will run away at once.* Цукигаке lowered her body as low as possible и squeaked in low voice pretending that she is not going to eat it.
 
-"Ru-ru-ru-ru......"
+"ру-ру-ру-ру......"
 
 This time the rat tilted its head to the left и slowly moved the body out of the grass.
 
 If you look closely, the tips of elongated limbs had swim fins. It was surely a creature living on this land for a long time. Then it might know the way through the swamp.
 
-"Kyu-ru, Kyu-ru-ru-run."
+"Кю-ру, Кю-ру-ру-руn."
 
 *── Я want to go to the Южной. Tell me if you know the way.*
 
@@ -125,7 +125,7 @@ While Цукигаке spoke, a small dark object floated on the water surface b
 
 From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to the lake from the trees growing on its banks would flow over time to wetlands. Rat immediately brought the precious thing to the mouth with both hands, but even though it had long front teeth, there was no crunchy sound but only sound of damp и moist. *Meanwhile, as Я stand immersed in water, my Life runs out.*
 
-"Ku-ru-ru-ru, kyu-ru!!!"
+"Ку-ру-ру-ру, Кю-ру!!!"
 
 *── If you guide me, Я will give you a lot of fresh nuts. Not damp, crunchy ones.*
 
@@ -143,7 +143,7 @@ From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to
 
 The rat stopped close to an entrance to the tunnel и waved a short tail as if calling for her to hurry. Цукигаке was slightly bigger than its width и height, so had to shrink a bit, but not as much as to get through the gap in the iron grid that was in the dungeon, besides, the dry grass spreading all over the floor helped, too.
 
-"Ku-ru-ru!!!"
+"Ку-ру-ру!!!"
 
 After chirping in a loud voice to inspire herself, Цукигаке started running in a narrow и dark tunnel. The rat also faced ahead и moved as if sliding while moving short legs only a little.
 
@@ -159,13 +159,13 @@ The rat stopped at the end of the tunnel, protruded only a sharp nose into the g
 
 After a bit of fighting with the grass Цукигаке also left the tunnel finding herself already at the Южной part of the wetland area. The dry grassland spread ahead, и after it a wooden fence was seen that seemed to have been made by humans. Behind was the field she saw from the carriage.
 
-"Kyu-ru-ru, Ku-ru!!!"
+"Кю-ру-ру, Ку-ру!!!"
 
 *── Thank you, Rat. From here Я can go alone.*
 
 When Цукигаке said so, the brown rat tilted the neck to the right again:
 
-"Kyu-ii?!"
+"Кю-ii?!"
 
 *── When will give nuts?*
 
@@ -189,7 +189,7 @@ To the words of Цукигаке, the rat blinked curiously.
 
 That said, Цукигаке tried to resume movement. However, the rat grabbed the end of her tail.
 
-"Ku-ru-ru!!"
+"Ку-ру-ру!!"
 
 *── What's the matter?*
 
@@ -205,7 +205,7 @@ That said, Цукигаке tried to resume movement. However, the rat grabbed t
 
 Besides, Цукигаке’s hunger was approaching the limit. *If Я don’t find something to eat in the field, it looks like Я won’t be able to run any more.*
 
-"Ku-ru-ruu..."
+"Ку-ру-руu..."
 
 *── It's okay, there’s nothing to be scared of anymore. You can’t go to the city without going over there.*
 
@@ -257,7 +257,7 @@ Once again, it was a bВосточной she saw for the first time. Slender sid
 
 Цукигаке called out carefully to the bВосточной which silently stopped on the road.
 
-"Kyu-ru-ru-ru..."
+"Кю-ру-ру-ру..."
 
 *── Let us pass. We just want to go to the city.*
 

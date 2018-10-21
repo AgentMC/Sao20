@@ -71,7 +71,7 @@ After blinking, Кирито looked out the window.
 
 When she quietly chuckled, Кирито also relaxed his lips.
 
-"Apparently. Hainag, the stable keeper advised them, they should let them eat fish they caught themselves. "
+"Apparently. Хайнаг, the stable keeper advised them, they should let them eat fish they caught themselves. "
 
 "Ah, it's oddly delicious when you get it with your own hands. The old days Я used to gather wild plants и mushrooms at grandpa’s place in Miyagi<sup><a href="#Prim1">1</a></sup>...."
 

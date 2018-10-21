@@ -39,7 +39,7 @@ That's fine, but no matter how few people were in the Собора’s ninety-fi
 
 "Ah...... It is not advisable to compete against the work of Кирито-сенпай...."
 
-when Ронье Unintentionally said so, Тейза cheerfully laughed. Цукигаке и Шимосаки who were eating dried fish on the floor also chirped "ku-ru-ru”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
+when Ронье Unintentionally said so, Тейза cheerfully laughed. Цукигаке и Шимосаки who were eating dried fish on the floor also chirped "Ку-ру-ру”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
 
 Three days have passed since the incident in Император's domain, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four Императорs was planned to be held extensively in the whole city of Центория, и the Собора was a little more crowded than usual.
 
@@ -190,7 +190,7 @@ She reflexively reached the hand out и touched her best friend's back. *Тей�
 
 Both Кирито и Асуна did not say anything. Resolve was supposed to be the characteristic of the Order’s member, however, sincerely caring of Тейза’s feelings, they remained silent.
 
-"Kyu-ru......"
+"Кю-ру......"
 
 Шимосаки, who was chasing with Цукигаке и Nuts around the middle of the garden, shortly chirped, came close to the table и licked Тейза's right hand fingers. Тейза slowly raised her face after gently plucking the neck of the young dragon with her hand.
 
@@ -354,7 +354,7 @@ Actually, she did not want to let it go so quickly, but she wouldn’t be able t
 
 "Hey Цукигаке, Шимосаки, Nuts, let’s go!"
 
-When she turned back и called, the young dragons answered "Ku-ru-ru!" и the rat jumped on Цукигаке’s back.
+When she turned back и called, the young dragons answered "Ку-ру-ру!" и the rat jumped on Цукигаке’s back.
 
 The two people и three animals began running cheerfully down from the Lookout where early spring flowers bloomed.
 

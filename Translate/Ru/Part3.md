@@ -514,112 +514,109 @@
 
 "Ага...... Язен-сан сначала кивнул, но потом бросился отрицать: 『А, нет, уже нет. Я больше не арендую надел у Императора』...... Тогда второй сказал так, словно...... насмехался: 『Крепостные частных владений остаются собственностью этих владений, покуда их Жизнь не истечёт, так что если тебя это не устраивает, то прямо здесь и сейчас прими же смерть дарованную』и ударил Язена-сан в грудь кинжалом....... Язен-сан упал на пол, а человек с кинжалом в руке покинул комнату. Вот что я там видела..."
 
-## Продолжение следует...
+Асуна замолчала, и на какое-то время воцарилась тишина.
 
-<!-- Асуна went silent, but no one tried speaking for a while.
+Поскольку ни один высокоуровневый клерик не смог бы подделать события прошлого, подтверждалось, что это не Орои убил старого Язена. Это были отрадные новости, но они, без сомнения, только рождали больше вопросов.
 
-Since no high-level cleric can tamper with the past events, it was confirmed that it was not Орои who killed the old Язен. It was a cheering evidence, but it undeniably the mystery has increased again.
+Кирито, стоящий на одном колене у кровати, поднялся и взглянул на дверь комнаты.
 
-Кирито, who was standing one knee beside the bed, raised his body и looked at the door of the room.
+"....... Человек, убивший Язена-сан, выбрасывает окровавленный кинжал в коридоре, стучит в соседнюю дверь и исчезает. Горный гоблин Орои, спящий в комнате, замечает лежащий на полу в коридоре кинжал, поднимает его и в таком положении его ловят стражники Южной Центории, пришедшие дабы проверить это место. Вот что произошло после убийства Язена-сан."
 
-"....... The man who killed Язен-сан dropped the blooded dagger in the corridor, knocked nearby room и disappeared. The mountain гоблин Орои who was sleeping in the room noticed the dagger lying on the corridor, picked it up и was captured by Южной Центория guards who came to check the place. That is what happened after Язен-сан's murder. "
+Объяснения Кирито было достаточно для Ронье, но Тейза, стоящая рядом с ней, неуверенно произнесла "Но...".
 
-Кирито’s explanation was enough to Ронье, but Тейза next to her said "But ..." uncertainly.
+"Кирито-сенпай, разве стражники не слишком быстро оказались на месте совершения убийства? Преступник, убивший Язена-сан, постучал в комнату Орои-сан и убежал, и по всему выходит что лишь несколько минут прошло прежде чем Орои-сан поднял кинжал......."
 
-"Кирито-сенпай, weren’t guards too quick to come to a murder location? The criminal who killed Язен-сан knocked Oroi-сан's room и ran away, и it seems that only few minutes have passed before Oroi-сан picked up a dagger......."
+И надо сказать, она была права. Кирито кивнул с угрюмым лицом:
 
-And it has be told, she was right. Кирито also nodded looking gloomily.
+"Верно. Но по сообщениям, стража прибежала сюда, когда гражданин доложил в офис стражи 4-го района, что в таверне суб-человек с ножом опасно себя ведёт. Но по факту, Орои просто поднял упавший кинжал, в его действиях не было общественной опасности. Иными словами, заявителем был либо убийца, либо его напарник... ── Асуна, ты совсем не видела убийцу?"
 
-"That's right. It was supposed to have been that guards rushed here because a citizen reported to 4th district Guards office that there was a sub-human with a knife acting dangerously at the inn. But in fact, Орои just picked up a fallen dagger, there was no dangerous behavior in his actions. In other words, it was either the murderer themselves or their partner reporting... ── Асуна, did you not see the murderer at all?"
+Когда он спросил, Асуна с сожалением кивнула.
 
-When asked, Асуна nodded, regretting.
+"Ага... такое ощущение, что я постоянно была перед изображением, висящим на стеклянном блюде... или как бы......"
 
-"Yup... Я felt like Я was always in front of the image floating on the glass plate... or rather......"
+Она приоткрыла рот и моргнула, пытаясь подыскать слова, но затем вздохнула.
 
-She slightly opened her mouth и blinked as if searching for words, but quickly sighed.
+"... Прости, я лучше не опишу."
 
-"... Sorry, Я cannot say it better."
+"Ничего, тут не за что извиняться."
 
-"No, you do not have to apologize."
+— сказал Кирито, приблизившись к Асуне и мягко её обняв.
 
-Said Кирито, coming close to Асуна и gently hugging her.
+"Пускай я и не смогла напрямую увидеть убийцу, я чётко слышала его голос, и это прояснило несколько вещей. Например, ...... то, что виновный в убийстве Язена-сан не использовал никакого сложного трюка...... не избегал никоим образом Индекса Табу, похоже, что он совершенно естественно ударил того в сердце..."
 
-"Even though Я could not see the criminal directly, Я could hear the voice, и Я understood many other things. For example, ...... the culprit who killed Язен-сан did not utilize a complicated **trick**...... did not avoided the Индекс Табу somehow, it just seems that he normally stabbed his heart..."
+Если так подумать, это тоже было истиной.
 
-This was also true, come to think of it.
+*Асуна пошла на риск и использовала искусство Отражения Прошлого чтобы выяснить и "как", и "почему" преступник убил старого Язена. И хотя мотив всё так же оставался неясен, способ, тем не менее, был определён. Не было использовано какой-либо уловки, это был просто удар ножом в сердце. Иными словами,............*
 
-Асуна took risk и used Past Reflection art to find out both "how" и "why" the criminal killed the old Язен. Still the motif remains unclear, but the method has been discovered. There was no trick used but rather just a stab with a dagger. In other words, ............
+"Виновник не связан Индексом Табу......."
 
-"The culprit is not bound by the Индекс Табу......."
+— подтвердил Кирито тяжёлым голосом размышления Ронье:
 
-Кирито confirmed Ронье’s muttering with a heavy voice:
+"Вот в чём дело....... Я, однако, не знаю пока, почему..."
 
-"That's what it is....... Я do not know yet the reason for that though..."
+"Я знаю."
 
-"Я do."
+— прервала его Асуна, и трое обратили свои взгляды на кровать.
 
-Асуна interrupted, и the three turned their gazes to bed.
+Вице-Премьер-Мечник, походе, полностью восстановившаяся, произнесла, глядя на них троих своими глазами цвета чай-с-молоком:
 
-Вице-Премьер-Мечник appearing almost recovered said while looking at the faces of three people with her tea-with-milk-colored eyes.
+"...... Я думаю, слова, что сказал преступник, убивший Язена... Я думаю, поэтому-то он и смог его убить."
 
-"...... Я think, the words of the criminal who killed Язен... Я think that's why he could kill him."
+"Слова ...... 『Крепостные частных владений остаются собственностью этих владений』...?"
 
-"Words ...... 『Serfs of my territory belong to my territory』...?"
+"Да...... Причина, по которой преступник смог проигнорировать Индекс Табу в том, что Язен-сан принадлежал частной территории аристократа и, соответственно, был подвержен его праву суждения..."
 
-"Yes...... The reason why the culprit could ignore the Индекс Табу was because Язен-сан belonged to the aristocrat’s private territory и was a subject to the decision right of the one..."
+"…… ведь точно!"
 
-"……Indeed!"
+Кирито резко вдохнул и посмотрел в окно, словно надеясь увидеть стоящего там преступника.
 
-Кирито sharply inhaled и looked outside the window as if hoping to see the criminal standing there.
+"И речь идёт не только о Язене, но и о любом другом бывшем крестьянине, освобождённом от кабалы частных территорий, любого могут убить точно так же.... Вот почему Асуна сказала 『Нам нужно торопиться』"
 
-"It may not only be the old Язен but as well any other former peasant released from private territories could be killed in the same way.... That's why Асуна said 『We need to hurry』"
+"Ага…… Ведь если мы ему не надаём по рукам до появления новой жертвы, так я думала... но......."
 
-"Yup…… If we don’t hit his hands before the next victim comes, that’s what Я thought... but......."
+Ронье было очевидно почему Асуна закусила губу. Чтобы продвинуть разговор вперёд, она осторожно заметила:
 
-It was clear to Ронье why Асуна bitten her lip. Moving the discussion ahead, she cautiously said:
+"Но примерно 1000 бывших крестьян частных территорий было освобождено в одной только Северной Империи, вчетверо больше если брать весь Мир Людей...... Невозможно всех их защитить или приставить охрану."
 
-"There are nearly 1000 former private territories peasants in the Северной Empire alone, quadrupling in Мира Людей as a whole...... It is impossible to protect or give an escort to all of them."
+Тейза, стоявшая сбоку, сделала шаг вперёд и сказала, всплеснув руками:
 
-Тейза stepped ahead on a side и said, flinging her hands.
+"К тому же, не все освобождённые остались в Центории. Я слышала, что больше половины оставили центральную столицу и решили возделывать свои собственные земли там, где есть свободные территории. Да один только поиск их может занять недели..."
 
-"Besides, not all the people who have been released remain in Центория. Я heard that more than half have left the central capital и chose to have their own farmland where there is a free space. Even just searching for them, perhaps could take weeks..."
+"В Мире Людей...... по-моему здесь нет регистрации жителей."
 
-"In Мира Людей...... Я do not believe there is a family register."
+Вслед за Кирито, размышлявшем используя незнакомые слова, Асуна тоже какое-то время хмурилась, но вскоре подняла взгляд.
 
-Next to Кирито who speculated using unfamiliar words, Асуна also kept frowning for a while, but soon lifted her face.
+"...Но, если цель преступника в том, чтобы снова разжечь войну между Миром Людей и Тёмной Территорией, они не станут просто слепо убивать бывших арендаторов частных территорий. Этот грех, в нём не будет смысла, если только ответственность не возложат на туристов из Тёмной Территории."
 
-"...But, if the purpose of the criminal is to spark the war once again between Мира Людей и Тёмной Территории, they should not just blindly kill the former private territory tenants. That sin, it would be meaningless unless the responsibility is laid upon tourists from Тёмной Территории."
+"Тогда...... тех, кого нам стоит защищать — это жители Тёмной Территории...?"
 
-"Well then...... who we should protect are the Тёмной Территории people...?"
+Кирито уверенно кивнул, услышав слова Тейзы.
 
-Кирито who heard the words of Тейза nodded deeply.
+"Да...... Я и так думал о том чтобы прийти в эту таверну сегодня или завтра. Чтобы пригласить друзей Орои, ждущих здесь, прийти и посмотреть на Собор. Я думаю, сплину...... тоске по дому, что гложет Орои, на какое-то время это должно помочь......."
 
-"Yes...... Я actually thought of coming to this inn either today or tomorrow. To invite Oroi’s fellows who are waiting here to come и visit the Собора. Oroi's **homesick**...... hometown missing illness, Я think, should be aided for a while with that......."
+"Но Сенпай, туристов из Тёмной Территории так много......."
 
-"But Сенпай, there are lots of tourists from Тёмной Территории......."
+Когда Ронье так сказала, Кирито мягко пожал плечами.
 
-When Ронье said so, Кирито gently shrugged his shoulders.
+"Конечно. К счастью, их число и размещение тщательно записывается, так что поиск будет существенно проще, чем в случае бывших крестьян из частных территорий. Как ты можешь догадаться, разместить их всех в стенах Собора невозможно, так что я думаю, начиная с сегодняшнего дня нам нужно распланировать их преждевременное возвращение, чтобы они смогли вернуться домой в целости и сохранности. Если мы отправим колонну экипажей с охраной аж до самых Великих Восточных Врат, преступники ничего не смогут сделать."
 
-"Surely. Fortunately, their numbers и accommodations are recorded properly, so the search is easier than for the former private peasants. As expected, it is impossible for all of them to stay in the Собора, so Я think that we need to plan to schedule their return a little earlier beginning today so that they return home in order. If you construct a carriage formation with an escort getting them to the Великих Восточных Врат, the criminal cannot mess around it."
+"Если таково наше решение, отправляемся сейчас же."
 
-"If that’s decided, let's move right away."
+Кирито попытался было быстро поддержать Асуну, поднявшуюся с кровати, но в этом не было необходимости. Тем не менее, Вице-Премьер-Мечник улыбнулась с тихим "спасибо", однако выражение её лица быстро вернулось к решительному.
 
-Кирито tried to quickly support Асуна who got up from the bed, but it seemed unnecessary. Even so, Вице-Премьер-Мечник smiled with quiet "thank you" but quickly returned to a resolute expression.
+"Так... ты знаешь комнату, в которой остаются горные гоблины?"
 
-"So... do you know the room where the mountain гоблинов are staying?"
+"Разумеется. Комната на четверых на первом этаже, по идее, прямо под нами. У дверей ещё стража должна стоять... наполовину для охраны и наполовину для наблюдения...."
 
-"Of course. It is a room for four on the first floor, so it's probably just below here. The one that should have the guards in front of the door... half for the escort и half for the watch...."
+"Это было необходимо, но больше не будет, когда мы переместим их в Собор. Идёмте."
 
-"It cannot be helped, but if we move them to the Собора, that need is gone. Let's go."
-
-Ронье и others chased Асуна who began walking quickly.
+Ронье и остальные бросились вслед за Асуной, которая быстро пошла вперёд.
 
 ***
 
-However.
+Однако.
 
-The four people who went down to the first floor saw an unattended corridor и a vacant cleaned room. The receptionist, questioned by Кирито, told them with a puzzled expression, that in the morning an official of the Южной Центория administration brought a carriage и told them he takes three mountain гоблинов away.
--->
+Их четвёрка, спустившись на первый этаж, узрела коридор без охраны и пустую вычищенную комнату. Когда Кирито спросил её, регистратор сказала им с озадаченным лицом, что тем утром чиновник из администрации Южной Центории приехал с каретой и сказал ей, что он забирает горных гоблинов.
 
 ## Примечания:
 
