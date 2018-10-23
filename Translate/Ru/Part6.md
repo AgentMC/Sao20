@@ -8,7 +8,7 @@ The lake Norkia in the Северной Центория suburb was located in a
 
 This area was the richest ground in the suburbs of the capital area, where everyone could enjoy beautiful scenery in each of the four seasons, but for many years ─ more than 100 years actually, it has not been possible for general people or lower aristocrats to come here. Because Lake Norkia has always been part of the "Император’s domain", the largest one among aristocrats’ private territories.
 
-All the private areas were released after Rebellion of Four Empires, и now anyone could enjoy coming here freely, but due to the fact that spring was still somewhat away, there were no figures around the wide lake other than Ронье, и Тейза, и two young dragons.
+All the private areas were released after Rebellion of Four Империиs, и now anyone could enjoy coming here freely, but due to the fact that spring was still somewhat away, there were no figures around the wide lake other than Ронье, и Тейза, и two young dragons.
 
 Мира Людей Calendar year 382, February 24th.
 
@@ -52,7 +52,7 @@ That wasn’t true, и furthermore since she terribly wanted to laugh hearing th
 
 Small fish swimming near the bottom of about seventy centimeters depth scattered in all directions. Following one of them, Шимосаки showed some brilliant swimming skills, wriggling the whole body.
 
-A dragon is a creature specializing in flying in the sky as its name suggests<sup><a href="#Prim1">1</a></sup>, и the "Dragon nest" by the frontier of the Западной Empire is a steep alpine surrounded by a vast lake tens of times larger than Lake Norkia, so apparently wild dragons swim in the lake freely и catch fish. Цукигаке и Шимосаки, born in the Собора, have only bathed in shallow ponds in the front yard, but instinctively seem to know how to swim.
+A dragon is a creature specializing in flying in the sky as its name suggests<sup><a href="#Prim1">1</a></sup>, и the "Dragon nest" by the frontier of the Западной Империи is a steep alpine surrounded by a vast lake tens of times larger than Lake Norkia, so apparently wild dragons swim in the lake freely и catch fish. Цукигаке и Шимосаки, born in the Собора, have only bathed in shallow ponds in the front yard, but instinctively seem to know how to swim.
 
 After a few tens of seconds, Шимосаки broke through the water surface, jumping out и landing to the original shore while vigorously flapping its tiny wings. Тейза и Ронье had no time to avoid it shaking the whole body и sprinkling a lot of water drops from wet feathers all around.
 
@@ -142,7 +142,7 @@ When Ронье murmured that, Тейза, who was drinking tea from a bottle ne
 
 Ронье raised the gaze when she heard it.
 
-The Норлангарт Северной Empire spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the Северной gate of Центория they were in, the timeless wall separating the land between the Западной и the Восточной was still clearly visible.
+The Норлангарт Северной Империи spreads out in a shape of a fan from the central capital Центория. In other words, the nearer to the capital city, the narrower the land is; from the area about 10 kilolu away from the Северной gate of Центория they were in, the timeless wall separating the land between the Западной и the Восточной was still clearly visible.
 
 *Император's domain monopolized the land on the Западной side of the high road running straight Северной from Центория, и the territories of nobility were lined up on the Восточной side of the road. In other words, because the location of this territory is relatively close, there was no reason for onlookers to ignore it.*
 
@@ -158,7 +158,7 @@ Then Тейза coughed a little и pointed to the other side of Lake Norkia.
 
 Small nod.
 
-On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Норлангарт dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Empires, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
+On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Норлангарт dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Империиs, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
 
 "The Император's house? What's wrong with it?"
 
@@ -266,7 +266,7 @@ In order to move from the Восточной bank of Lake Norkia to the Запа
 
 The Южной side of the lake appeared to be wetlands, so the two of them headed Северной. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
 
-It took them more than ten minutes to reach the Северной end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Empire, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
+It took them more than ten minutes to reach the Северной end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Империи, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
 
 When they were at the Академии Искусства Меча, Кирито и Юдзио told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Тейза pointed out that if they would have made a small boat и sailed down the river they could reach Центория without having any hardships —Кирито и his friend were both silent for a while и then said simultaneously "Я could not think of it".
 
@@ -288,7 +288,7 @@ Hana said that when she was the exclusive cook of the Первосвященни
 
 "It seems that it is not decided yet even in the territory reuse plan whether to leave vineyards or turn into wheat fields. Some of the former private territory people who have taken care of these plants until now want to go back here и continue making grapes......."
 
-"But, if you have such an area, you cannot maintain it without considerable manpower....... Я heard that similar problems are occurring in the former imperial territories of other empires."
+"But, if you have such an area, you cannot maintain it without considerable manpower....... Я heard that similar problems are occurring in the former imperial territories of other Империиs."
 
 "Язен-сан, who was in the territory of Император Южнойacroith, Я wonder which way he wanted..."
 
@@ -323,7 +323,7 @@ She blinked и raised the face to see a beautiful black steel-made gate rising i
 
 After quickly walking the final hundred mels, the two stopped in front of the gate.
 
-In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Северной Empire, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
+In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Северной Империи, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
 
 In addition, the gates were severely blocked with a sturdy chain, и the chain stretched to the left и right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Мира Людей able to try to break the blockade after looking at such a sign.
 
@@ -625,7 +625,7 @@ Another glance at the footpath revealed that the footprints of light had already
 
 Just after a few mels on the dark path the air became freezingly cold. That day was warm manifesting the soon coming of spring, but the air the darkness exhaled seemed to be colored midwinter-white.
 
-*Я have bad feeling*, thought Ронье. The throne in the Норлангарт castle to which they rushed together with Тейза at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls и floor for a long time somehow deprived the warmth.
+*Я have bad feeling*, thought Ронье. The throne in the Норлангарт castle to which they rushed together with Тейза at the time of the Rebellion of Four Империиs was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls и floor for a long time somehow deprived the warmth.
 
 The two-thirty bell haven’t rung yet, but the darkness was steadily increasing as they proceeded. Both sides of the path were blocked by a hedge with sharp thorns, и more и more branches of old trees overlapped above their heads.
 
@@ -791,13 +791,13 @@ She recoiled, biting hard the branch in her right hand. In a second, Тейза�
 
 Тейза rounded her eyes и looked into the prison, clinging to Ронье's body. She returned to the original position in about three seconds и nodded.
 
-"It's really the case... but... how...? How did гоблинов kidnapped in Южной Центория end up in the Северной Empire Император's domain?"
+"It's really the case... but... how...? How did гоблинов kidnapped in Южной Центория end up in the Северной Империи Император's domain?"
 
 This question could not be answered right away.
 
 *In order to move from Южной Центория to Северной Центория, one would need to go through Восточной Центория or Западной Центория и in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic pass or a one-day passage permit, и of course, neither pass nor permit is easy to obtain.*
 
-*No, a fake official who abducted the гоблинов would fake the identity of the Южной Центория administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Северной Empire. There is also a vast land in the Южной Empire, и there should be enough places to hide the гоблинов.*
+*No, a fake official who abducted the гоблинов would fake the identity of the Южной Центория administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Северной Империи. There is also a vast land in the Южной Империи, и there should be enough places to hide the гоблинов.*
 
 "...... let’s think about it later."
 
@@ -896,7 +896,7 @@ Only three days have passed since the kidnapper in the black robe jumped out of 
 
 Trying to find the material to judge it, Ронье desperately looked him over.
 
-The kidnapper had his right arm cut off with a Меч of ambassador Шейта called "silent knight", и immediately after that his left arm was slashed with Ронье's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms и legs by healing techniques but certain awkwardness in motion should still remain for at lВосточной one week.
+The kidnapper had his right arm cut off with a Меч of ambassador Шейта called "silent knight", и immediately after that his left arm was slashed with Ронье's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms и legs by healing techniques but certain awkwardness in motion should still remain for как минимум one week.
 
 But the black robe man — still unclear whether or not it was him ─ stopped after making one step ahead и did not move anymore. From the darkness behind the deep hood, only his eyes glittered, fixed on Ронье и Тейза.
 
@@ -934,7 +934,7 @@ A fierce и violent appearance reminiscent of a bird of prey. Gray mustache и b
 
 Ронье also wanted to say exactly the same.
 
-Норлангарт Северной Empire Sixth Император, Крюгер Норлангарт....
+Норлангарт Северной Империи Sixth Император, Крюгер Норлангарт....
 
 A bursting with flames decoration hanging on the jet-black wall, distant sounds of Меч fight — the memories revived vividly.
 
@@ -980,7 +980,7 @@ The man retreated silently without saying a word и stopped in more than five me
 
 "You are knights, but care about that lizard."
 
-The Император Крюгер standing in front of the hidden door — or at lВосточной the man with his face и voice, began talking, sneering sarcastically.
+The Император Крюгер standing in front of the hidden door — or как минимум the man with his face и voice, began talking, sneering sarcastically.
 
 "Is it not just an animal after all? There will be many alternatives, Я find it hard to understand."
 
@@ -1048,7 +1048,7 @@ But even aristocrats could not violate the Индекс Табу, which prohibit
 
 When Ронье pointed that out in hoarse voice, the Император laughed again:
 
-"Ku, Ку-Ку-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Императорs of the four empires и of a senior aristocracy existed only due to the exploitation of that method."
+"Ku, Ку-Ку-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Императорs of the four Империиs и of a senior aristocracy existed only due to the exploitation of that method."
 
 The moment she heard the words, the abominable memory ripped her mind like a lightning flash in the dark night.
 

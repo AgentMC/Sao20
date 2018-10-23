@@ -26,7 +26,7 @@ Kirito, whose Underworld experience was longer than Asuna’s, said "The guys at
 
 Looking at a parchment calendar on the wall — it seems to have been used at older times, not made by Kirito or Asuna ─ which almost allowed to feel the rushing of time, she heard the door opening and closing in the entrance room.
 
-The black hair of Kirito who came into the living room was still a little wet. It seems that he came back from the big public bath on the ninetieth floor in a hurry. In the past, we used to have the one who was faster to wait for another one at the branch point of the corridor, but after noticing other staff members hesitating to go in as I was standing there, I decided to return to our room without waiting.
+The black hair of Kirito who came into the living room was still a little wet. It seems that he came back from the big public bath on the ninetieth floor in a hurry. *In the past, we used to have the one who was faster to wait for another one at the branch point of the corridor, but after noticing other staff members hesitating to go in as I was standing there, I decided to return to our room without waiting.*
 
 "Sorry for keeping you waiting."
 
@@ -212,7 +212,7 @@ Recollecting memories of that period that seem to be so long time ago, Asuna fel
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>This should be perceived as “posh”. Despite the actual size of more than 80 m<sup>2</sup>, it is significantly larger than the “default” size for a housing 2 in Japan (about twice as larger). For example, according to Vol.18 Epilogue 6, Higa Takeru’s apartment in Higashgotanda had 8-tatami main room, which corresponds to a western-style bedroom size.
+1. <a name="Prim1"></a>This should be perceived as “posh”. Despite the actual size of more than 80 m<sup>2</sup>, it is significantly larger than the “default” size for a housing 2 in Japan (about twice as larger). For example, according to Vol.18 Epilogue 6, Higa Takeru’s apartment in Higashigotanda had 8-tatami main room, which corresponds to a western-style bedroom size.
 <!--2. <a name="Prim2"></a>.
 3. <a name="Prim3"></a>.
 4. <a name="Prim4"></a>.

@@ -33,7 +33,7 @@ Although it was a crisis situation, unexpectedly Ронье bitterly smiled to h
 
 She returned a silent denial to that whispered question.
 
-While her best friend was trying the Pick of Mind, Ронье was looking over the dungeon walls, but as expected no hidden door or a destructible location could be found. It was impossible to quietly extract the Северной Empire granite stone forming a wall without even a 1 mil gap, even with the power of apprentice knights, и if you try to forcibly destroy walls or grating the sound would be transmitted to the mansion above.
+While her best friend was trying the Pick of Mind, Ронье was looking over the dungeon walls, but as expected no hidden door or a destructible location could be found. It was impossible to quietly extract the Северной Империи granite stone forming a wall without even a 1 mil gap, even with the power of apprentice knights, и if you try to forcibly destroy walls or grating the sound would be transmitted to the mansion above.
 
 Тейза who finally raised her body, sat hugging her knees и said as if to herself:
 
@@ -149,7 +149,7 @@ While muttering, Ронье gazed at the darkness behind the secret door on the 
 
 *Я do not know how much exactly time has elapsed, but if everything went well, about now Цукигаке would be arriving at the Северной gate of Центория. But, of course she<sup><a href="#Prim1">1</a></sup> cannot speak in human language. A gatekeeper guard will notice that Цукигаке is a little dragon, will send a message to the Собора, a report will reach someone like Кирито or Асуна, or an Рыцарь Целостности, и it will take tens of minutes for help to come to this location ──*
 
-Moreover, the carriage which Ронье и Тейза rode on was parked on the Восточной bank of the lake. It would be impossible for Премьер-Мечник or anyone else to guess that two of them are held in a dungeon of a mansion in the forest on its Западной bank. The only hope was to expect that Цукигаке would guide the rescue team, but it also takes time, и overall it was clear that it will take at lВосточной an hour to get help no matter how optimistic estimations are.
+Moreover, the carriage which Ронье и Тейза rode on was parked on the Восточной bank of the lake. It would be impossible for Премьер-Мечник or anyone else to guess that two of them are held in a dungeon of a mansion in the forest on its Западной bank. The only hope was to expect that Цукигаке would guide the rescue team, but it also takes time, и overall it was clear that it will take как минимум an hour to get help no matter how optimistic estimations are.
 
 *It would be too naïve to think that until then nothing will happen to the гоблинов that were taken to the upper floor. If we do not act now, it will be too late.*
 
@@ -195,7 +195,7 @@ Indeed, at that time Император Крюгер continued to attract their 
 
 The drawn Мечs that the two of them dropped on the floor were kicked to the other side of the door by Император Крюгер, but there was no evidence that they were taken from there to the upper floors. Should they be able to escape from the cell, there was a high chance of retrieving the Мечs back right away.
 
-*If Я have my beloved Меч, even if that one was a genuine Император Крюгер, Я do not feel like losing. But, again, Я am worried about Шимосаки. Even if there are only two enemies there, it is necessary to at lВосточной know where he is kept in the mansion in advance to rescue him with surprise attack as Тейза suggested.*
+*If Я have my beloved Меч, even if that one was a genuine Император Крюгер, Я do not feel like losing. But, again, Я am worried about Шимосаки. Even if there are only two enemies there, it is necessary to как минимум know where he is kept in the mansion in advance to rescue him with surprise attack as Тейза suggested.*
 
 "Тейза."
 
@@ -534,9 +534,9 @@ When Ронье shouted that, Зеппос, with its belly и chest penetrated b
 
 — this time Тейза exclaimed in surprise.
 
-Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Северной Empire, the other three empires for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
+Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Северной Империи, the other three Империиs for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
 
-*But Зеппос said that the Императорs of the four empires had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
+*But Зеппос said that the Императорs of the four Империиs had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
 
 "What is that art!?"
 
@@ -580,7 +580,7 @@ Those whose Lives have been frozen must go through repeated separation from the 
 
 Black blood scattered from his mouth pronouncing curses.
 
-*Even if Зеппос is minion as Тейза guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged и belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood at lВосточной appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
+*Even if Зеппос is minion as Тейза guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged и belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood как минимум appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
 
 Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, и the other one was split in two with the Меч-like hand slash by the ambassador Шейта. With skills of Ронье и the other one, it was difficult to give a fatal injury ── Кирито и others would call it "**damage**", but if one can slip through two knives и slash one of the limbs then there is a winner.
 
@@ -734,7 +734,7 @@ Unexpectedly, Зеппос’ words he said a few minutes ago echoed in her mind
 
 For these three minions in front of them, or rather for the three mountain гоблинов transformed by the Император's technique и the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of your body would be as long as two и a half mels, their heads would reach the ceiling if they fully extend the bent legs.
 
-*Зеппос ─ perhaps, also the Император ─ were revived as a humanoid minions by embedding their dead corpses in clay after the Rebellion of Four Empires. и the three гоблинов were taken into the clay alive и transformed into huge minions.  
+*Зеппос ─ perhaps, also the Император ─ were revived as a humanoid minions by embedding their dead corpses in clay after the Rebellion of Four Империиs. и the three гоблинов were taken into the clay alive и transformed into huge minions.  
 There must be someone further standing in the shadows of the two phenomena. Someone who used the remnants to revive the Император и the other one, и taught them minions manufacturing method. и that person must be the key to a kidnapping incident in Obsidia Castle и a series of events in Мира Людей.  
 But, rather than that, we should think about how to restore the гоблинов.  
 If we destroy minions in a normal way, гоблинов will definitely die as well. It is necessary to remove only the black clay without hurting them who still should be inside. It may be possible if we hit the anti-attribute, light element, in large amounts, but as much as 10 or even 20 might not be enough. Moreover, there is probably not much sacred power remaining in this hall.*
@@ -825,7 +825,7 @@ In lieu of Ронье who raised the eyebrows, Тейза exhaled "Eh......". Th
 
 Listening to that interaction, Ронье finally realized who it was.
 
-One who lost his life in the Rebellion of Four Empires, the Император of the Eastabarieth Empire.
+One who lost his life in the Rebellion of Four Империиs, the Император of the Eastabarieth Империи.
 
 However, Император Крюгер misunderstood something. In the battle of a year ago Ронье и Тейза rushed into the Северной Центория Imperial castle, и never stepped into the Восточной Центория. They were knight Nergius и knight Entokia who attacked the Восточной Центория Imperial castle и slashed Император Hozaica.
 
@@ -873,7 +873,7 @@ As he said so, satisfied Крюгер stroked Minion's powerful arm with his lef
 
 *Katashiro, that badge that came out from the head of Зеппос. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
 The Император Hozaica, whose arms were cut off by ambassador Шейта и Ронье, threw himself out of the window on the top floor of Obsidia Castle. The corpse was not found not because he flew away or ran, the katashiro was destroyed when he fell, и the clay body melted.  
-But if we believe in Крюгер's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Норлангарт empire и gave Крюгер the memory и knowledge of Hozaica ──  
+But if we believe in Крюгер's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Норлангарт Империи и gave Крюгер the memory и knowledge of Hozaica ──  
 If the guess so far is correct.  
 That red gemstone is the heart of a gigantic conspiracy intertwining Мира Людей и Тёмной Территории.*
 
@@ -887,7 +887,7 @@ That red gemstone is the heart of a gigantic conspiracy intertwining Мира Л
 
 "After slashing the Император, гоблинов may return to the original."
 
-It was a slight hope, but at lВосточной they can earn some time if there is no one to control them.
+It was a slight hope, but как минимум they can earn some time if there is no one to control them.
 
 The problem was that the poison hasn’t come out of the wounds above the right knee и right instep. Strong posture was essential for secret Меч moves, as well as to release several whole-body blows. Still there was no choice but to try.
 
@@ -1387,7 +1387,7 @@ Suddenly, **bakin!** — impact-like sound echoed.
 
 The chain that it was pulled with by the power of mind seemed to break apart.
 
-And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Empire Wesdarath.
+And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Империи Wesdarath.
 
 ## Footnotes:
 

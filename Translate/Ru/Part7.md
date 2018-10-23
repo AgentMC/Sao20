@@ -43,7 +43,7 @@ However, the man who killed the old Язен with his own hand whom Асуна h
 
 Investigation in the administration ended after the noon, и as a result Южной Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Южной Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
 
-In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Язен’s murder case, pleaded them to remain in the Собора. Then they wanted to at lВосточной gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
+In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Язен’s murder case, pleaded them to remain in the Собора. Then they wanted to как минимум gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
 
 Even Ayuha Furia, one of the Underworld best arts masters, could not use Past Reflection, и the reason it worked for Асуна, although for a very short period of time, as Ayuha speculated, was related to the power of God Stacia.
 
@@ -81,7 +81,7 @@ Memories of childhood reviving vividly made her to forget recent sorrow, и Ас
 
 "Where is the lake that they two went to?"
 
-"Err, well, Я guess it is not in the Северной Empire Император's domain. Looks like the ice hasn’t melted yet...... although............"
+"Err, well, Я guess it is not in the Северной Империи Император's domain. Looks like the ice hasn’t melted yet...... although............"
 
 As Кирито's word slowed down и broke off, Асуна tilted her head и looked at him.
 
@@ -111,7 +111,7 @@ They said, Первосвященник Администратор had made it a
 
 Because of that perception, Асуна has never imagined someone could be able to trespass the Timeless Wall, of walking on top of it like Кирито did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain гоблинов passed the wall.
 
-"... In order to pass through the four gates on the Timeless Wall, it is necessary to have a pass issued by Собора or a day permit issued by the administration of one of the four empires... but......."
+"... In order to pass through the four gates on the Timeless Wall, it is necessary to have a pass issued by Собора or a day permit issued by the administration of one of the four Империиs... but......."
 
 Кирито continued after Асуна’s murmuring:
 
@@ -221,13 +221,13 @@ Although he asked for permission, Фанатио и Дюсольберт who wer
 
 "Where else do you plan to go to?"
 
-"Actually, the apprentice knights Ронье и Тейза have left for the lake in the Северной Empire Император's domain. Something about teaching dragons to catch fish......."
+"Actually, the apprentice knights Ронье и Тейза have left for the lake in the Северной Империи Император's domain. Something about teaching dragons to catch fish......."
 
 "Ah, is it a correction of unbalanced diet?"
 
 When Nergius nodded, Entokia stretched his lips in a smile:
 
-"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the Южной Empire’s jungle where we were going to find the best sweet potato in this world..."
+"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the Южной Империи’s jungle where we were going to find the best sweet potato in this world..."
 
 "Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the lake in the area to the Северной, it is Lake Norkia. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
 

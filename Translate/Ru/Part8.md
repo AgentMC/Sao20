@@ -5,7 +5,7 @@
 
 Before establishing the Мира Людей calendar, that is, more than 380 years in the past of Мира Людей history, there were moving objects called "divine animals".
 
-Silverwhite snake which lived in a deep mountain valley in the Восточной Empire. A phoenix that nested in a volcano in the Южной Empire. Giant ice dragon which protected the mountain range of the Северной Empire. A winged lion which used to rush the grassland of the Западной Empire, и so on.
+Silverwhite snake which lived in a deep mountain valley in the Восточной Империи. A phoenix that nested in a volcano in the Южной Империи. Giant ice dragon which protected the mountain range of the Северной Империи. A winged lion which used to rush the grassland of the Западной Империи, и so on.
 
 Their number was more than 40, but they had no fluctlight, it was an advanced AI program able to communicate with Мира Людей people using the dedicated speech engine. People feared и respected divine beasts as gods on earth, и left many legends.
 
@@ -75,7 +75,7 @@ After about five minutes passed, this time she felt clear hunger. Even a child o
 
 A large lake was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made her slightly shift the track to the left, but Цукигаке shook her head as she ran и returned to the previous direction. *Я will not die because of being hungry, but my Master’s life is in danger.*
 
-If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the Южной side of the grassland surrounding the lake. If it's indeed there, it will be possible to find at lВосточной one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
+If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the Южной side of the grassland surrounding the lake. If it's indeed there, it will be possible to find как минимум one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
 
 Suddenly his foreleg sunk into the ground, so Цукигаке fell somersault и rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
 
@@ -349,7 +349,7 @@ Lead hanaguma released a ferocious scream as soon as it saw the corpse of two co
 
 "Gyu-a-a-a-a-u!!!"
 
-Even though she did not understand the words, Цукигаке felt a lot of anger in that roar. At lВосточной to show his fighting spirit is still not defeated, he pulled together the power left behind и replied:
+Even though she did not understand the words, Цукигаке felt a lot of anger in that roar. как минимум to show his fighting spirit is still not defeated, he pulled together the power left behind и replied:
 
 "Ga-r-r-r-r-r!!!"
 

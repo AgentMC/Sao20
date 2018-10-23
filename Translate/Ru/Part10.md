@@ -45,9 +45,9 @@ Three days have passed since the incident in Император's domain, it was
 
 But for the Union Council people, it was totally not a time to slack off.
 
-Император Hozaica Eastabarieth of the Восточной Empire и Император Крюгер Норлангарт of the Северной Empire, who should have been eliminated a year ago, were revived in minion bodies и became deeply involved in a series of incidents. Especially, Император Крюгер who was hiding in the territory directly beside the center capital Центория и was about to proceed with mass production plan of fusion-type minions which are much stronger than the prototype; Фанатио и Дюсольберт, as well as director of intelligence Xiao Shukas, received a deep shock when learned about it.
+Император Hozaica Eastabarieth of the Восточной Империи и Император Крюгер Норлангарт of the Северной Империи, who should have been eliminated a year ago, were revived in minion bodies и became deeply involved in a series of incidents. Especially, Император Крюгер who was hiding in the territory directly beside the center capital Центория и was about to proceed with mass production plan of fusion-type minions which are much stronger than the prototype; Фанатио и Дюсольберт, as well as director of intelligence Xiao Shukas, received a deep shock when learned about it.
 
-In response to the incident, the imperial territory of the four empires и private territories were searched all over again, but there were no discoveries of any hidden property of senior aristocrats leading to the conspiracy. What was most searched was the red gem that flew away from the Император's villa to the Западной sky, but for the moment there were no results there, too. Since the object was jewelry not even of a human’s but only about of a bird’s egg size, it seems knights Fizel и Linel which were leading the search in the Западной empire, were also struggling.
+In response to the incident, the imperial territory of the four Империиs и private territories were searched all over again, but there were no discoveries of any hidden property of senior aristocrats leading to the conspiracy. What was most searched was the red gem that flew away from the Император's villa to the Западной sky, but for the moment there were no results there, too. Since the object was jewelry not even of a human’s but only about of a bird’s egg size, it seems knights Fizel и Linel which were leading the search in the Западной Империи, were also struggling.
 
 Another artifact remaining after Император Крюгер, the ring with the imperial house emblem, was jointly analyzed by Ayuha и Sones, the two greatest clerics in the Собора. There was no doubt that the secret of resurrection was hidden in that ring which the Император called "katashiro", but *it is a hundred times harder to extrapolate the art synopsis given only an object used as an art medium......* that’s what Sones said.
 
@@ -156,7 +156,7 @@ But after the old Язен was killed, the door was closed again. In that sense,
 
 Recalling what she heard from knight Fizel in the large public bath, Ронье returned her gaze to the profile of Премьер-Мечник:
 
-"Oh, Кирито-сенпай. It was only the Император of the Западной Empire, Ardales Wesdarath V, whose corpse wasn’t found... wasn’t he?"
+"Oh, Кирито-сенпай. It was only the Император of the Западной Империи, Ardales Wesdarath V, whose corpse wasn’t found... wasn’t he?"
 
 "Yeah, Я heard that. The Западной Центория Imperial Palace was burned to the ground by Фанатио-сан’s memory liberation technique...... It took them three months to remove the rubble, so even if the corpse of Император Ardales was buried there, by the time they reached insides of the castle, it should have dissolved to sacred power long time ago."
 
@@ -168,7 +168,7 @@ When Асуна pointed that out, Кирито muttered with his arms folded:
 
 "However, what?"
 
-"According to Fizel и Linel's investigation, there were several former disseminated Западной Empire Konoe knights order и whose current location cannot be confirmed. If they swore loyalty to the Император, Я don’t think it’d be possible to quickly move to Мира Людей Defense Army..."
+"According to Fizel и Linel's investigation, there were several former disseminated Западной Империи Konoe knights order и whose current location cannot be confirmed. If they swore loyalty to the Император, Я don’t think it’d be possible to quickly move to Мира Людей Defense Army..."
 
 "If the former knights joined the Император, it would not be difficult to get food, you may need to expand the scope of the search if it is the case."
 
@@ -274,7 +274,7 @@ The Меч Кирито put in the middle of the table was definitely the Меч
 
 Кирито had shut his heart since fighting the Первосвященник till the end of the Войны с Внешним Миром, и for a long time could not speak or walk, but he never let go of the Меч Ночного Неба и the Меч Синей Розы. But Кирито smiled и said with a voice full of a strong will:
 
-"I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but at lВосточной you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
+"I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but как минимум you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
 
 Encouraged by Кирито, Тейза steadily extended her hands и grasped the long Меч contained in the white leather sheath.
 

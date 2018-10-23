@@ -1,118 +1,120 @@
-# Part 5
+# Часть 5
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-From the 20th to the 30th floor of Центрального Собора there were residences of staff, Sacred Art masters и knights.
+С 20-го по 30-й этажи Центрального Собора размещались комнаты персонала, мастеров Священный Искусств и рыцарей.
 
-The room where Асуна и Кирито lived was in the ЮжнойВосточной corner of the of the thirtieth floor. Coincidentally, it was the same arrangement as the inn room in the Южной Центория borrowed at six hundred sheers per day, but the sizes were not comparable.
+Комната, в которой жили Асуна с Кирито, находилась в юго-восточном углу тридцатого этажа. По странному стечению обстоятельств, расположение её было точно таким же, как и у комнаты в таверне в Южной Центории, которую они сняли за шестьсот широв за сутки, но размеры их были несопоставимы.
 
-Opening a thick door from the corridor, one first gets into an entrance room of about four tatamis size, и behind it, separated with another door, lies a huge living room of thirty tatamis size.
+Открыв тяжёлую дверь из коридора, попадаешь в прихожую размером примерно 4 татами, и за ней, отделённая собственной дверью, лежит огромная гостиная размером в тридцать татами.
 
-There are high windows with a grid on the Южной wall, from floor to near the ceiling, a complete kitchen и a bathroom are on the Западной side, и a spacious bedroom is on the Восточной side. It is not as good as living room, but it is still about 15 tatamis<sup><a href="#Prim1">1</a></sup>.
+В южной стене находились высокие, от пола почти до самого потолка забранные решёткой окна, полноценная кухня и ванная находились с западной стороны, а просторная спальня — с восточной. Она была не столь хороша как гостиная, но всё равно занимала порядка 15 татами<sup><a href="#Prim1">1</a></sup>.
 
-However, in Мира Людей / Underworld, the unit "tatami" was not used. To begin with, there were no татами mats at lВосточной in Собора и Северной Центория. The size of the boarded or tiled floor was only expressed in square mel и square kilolu, и they were also abbreviated as "he-mel" и "he-kilolu", respectively. According to this, is the living room size was about 50 he-mels.
+Однако, в Мире Людей / Подмирье, единица "татами" не использовалась. Прежде всего, как минимум в Соборе и Северной Центории вообще не существовало матов татами. Размеры выстеленного досками или выложенного плиткой пола могли выражаться лишь в квадратных мелах и квадратных килолу, которые сокращались как "хе-мел" и "хе-килолу", соответственно. Соответственно, размер гостиной был 50 хе-мелов.
 
-*Cleaning this large one would be a serious task*...... would be a first thought when someone is introduced to the room the first time, but Underworld basically had only some dirt- or dust-like feeling effect, which did not require an entity object, и disappeared if one runs over it with a broom or a duster. Substantially it was retouching a digital image rather than cleaning, though this wasn’t something Асуна could say bluntly, but Кирито could very well.
+*Убраться в такой громадине будет непростой задачей*...... будет первой мыслью любого, кто впервые увидит эту комнату, однако в Подмирье присутствовало лишь некое подобие ощущения пыли или грязи, которое не требовало наличия сущностного объекта и исчезало, стоило провести веником или щёткой. По сути, это скорее был ретушь цифрового изображения, чем уборка, хотя Асуна никогда в этом себе не призналась бы, в отличие от Кирито, легко готового согласиться с подобным.
 
-Besides, there was another reason why cleaning is easy. 
+К тому же, была и ещё одна причина, почему уборка была несложной. 
 
-Surprisingly, Собора...... no, entire Underworld had no toilets at all. Because the inhabitants of this world did not excrete even though they ate. Of course, same went for Асуна и Кирито who came from Real World but had to get accustomed to it; yet still, a thought of *where does all the stuff that allows to feel satiety go* can occur in one’s mind after eating too much.
+На удивление, в Соборе...... нет, во всём Подмирье вообще не было туалетов. По той простой причине, что обитатели этого мира не испражнялись, хотя они и питались. Конечно, тоже самое относилось и к Асуне с Кирито, которым после Реального Мира пришлось привыкать к такому; и всё же, мысли вроде *и куда же всё, что позволяет чувствовать насыщение, девается?* могли возникнуть в голове после хорошего обеда.
 
-Кирито, whose Underworld experience was longer than Асуна’s, said "The guys at RATH judged that simulating excretion is not necessary for training AI", but Асуна who had chosen human development science class at the high school in the real world could not agree with that idea. According to Freud's developmental theory, young children have a growing stage called "anal period", where learning confidence и controlling impulses и own sexuality is achieved through training to use a toilet...... that was what she remembered learning.
+Кирито, опыт которого в Подмирье был дольше, чем у Асуны, сказал, что "Ребята в RATH посчитали, что симуляция испражнений для обучения AI не нужна", но Асуна, выбравшая в старшей школе в реальном мире факультатив по антропологии, не могла с этим согласиться. Согласно теории развития Фрейда, у маленьких детей наблюдается период взросления, называемый "анальный период", во время которого путём приучения ребёнка к использованию туалета достигается обретение им уверенности в себе и умения контролировать импульсы и собственную сексуальность...... так, по крайней мере, она помнила.
 
-*Although it is unlikely that eliminating excretion is causing problems for Underworld people's personality, the doubt still remains. Underworld people say "shit" occasionally when cursing, but how do they recognize the meaning of that word? While Я was thinking Я would like to ask someone someday about it, more than a year has passed.*
+*Хотя и трудно представить, что исключение процесса испражнения может создать личностные проблемы жителям Подмирья, но сомнение остаётся. Житель Подмирья же говорят "дерьмо" когда ругаются, но как они представляют себе значение этого слова? Пока я раздумывала, что неплохо было бы спросить кого-то об этом, прошло уже больше года.*
 
-*Precisely — one year, three months и sixteen days.*
+*Если точно — один год, три месяца и шестнадцать дней.*
 
-Looking at a parchment calendar on the wall — it seems to have been used at older times, not made by Кирито or Асуна ─ which almost allowed to feel the rushing of time, she heard the door opening и closing in the entrance room.
+Она смотрела на пергаментный календарь на стене — не созданный Кирито или Асуной, его, судя по всему, использовали в прежние времена,─ который почти физически позволял ощутить бег времени, когда раздался звук открытия и закрытия двери в прихожую.
 
-The black hair of Кирито who came into the living room was still a little wet. It seems that he came back from the big public bath on the ninetieth floor in a hurry. In the past, we used to have the one who was faster to wait for another one at the branch point of the corridor, but after noticing other staff members hesitating to go in as Я was standing there, Я decided to return to our room without waiting.
+Чёрные волосы Кирито, вошедшего в гостиную, всё ещё были влажными. Похоже было, что он в спешке спустился с девяностого этажа, где располагалась большая публичная ванная. *Раньше тот, кто заканчивал первым, ждал второго на развилке в коридоре, но когда я заметила, что если стою там, то персонал не решается войти, то решила вернуться в нашу комнату, не дожидаясь его.*
 
-"Sorry for keeping you waiting."
+"Прости, что заставил тебя ждать."
 
-Said Кирито while approaching her, Асуна unwrapped a towel hanging on his shoulder и responded to greeting.
+— сказал Кирито, подходя к ней, и Асуна расправила полотенце, висящее на его плече, и ответила на приветствие:
 
-"You should wipe around your hair properly."
+"Тебе нужно тщательнее вытирать волосы."
 
-She wrapped his head with a towel и shook it with both hands. *There is no hairdryer in this world, but as you scrub hair with a dry cloth for a certain period of time, the moisture will leave, so after-bath hair care is easier than in the real world.*
+Она укутала его голову полотенцем и потёрла её обеими руками. *В этом мире нет сушки для волос, но если какое-то время тереть волосы сухой тканью, то влага уходит, так что следить за волосами после купания легче, чем в реальном мире.*
 
-While enduring without resistance, Кирито objected to her remark in somewhat childish tone:
+Терпя без попыток сопротивляться, Кирито возразил на её замечание немного по-детски:
 
-"Асуна, it’s because you were faster over there... Я wondered if Я could catch up with you on the corridor..."
+"Асуна, это всё из-за того, что ты быстрее справилась... Я думал, смогу поймать тебя в коридоре..."
 
-"Hey, it’s not me being fast, it’s Кирито-kun having a long bath. Today it was an hour."
+"Эй, это не я быстро справилась, это Кирито-кун долго купался. Сегодня это был целый час."
 
-"Oh, really?"
+"Ой, правда?"
 
-As soon as Кирито said so, the evening ten o'clock bell quietly echoed.
+Стоило Кирито это произнести, как послышался тихий звук вечернего десятичасового колокола.
 
-"Wow, seriously.... The nine-thirty bell, Я missed it..."
+"Ух ты, и точно.... Я, похоже, пропустил колокол в девять-тридцать..."
 
-"No way, Я take it you were swimming in the bathtub?"
+"Да ладно, я так понимаю, ты снова плавал в ванной?"
 
-While asking a question she removed the towel и watched him with a serious look.
+Задав этот вопрос, она убрала полотенце и серьёзно на него посмотрела.
 
-"S-such thing Я wouldn’t do... except when Я am alone......."
+"Т-ты что, да я бы никогда... ну разве только когда я там один......."
 
-"Is that so? Here, sit on the sofa. "
+"Ой ли? Так, сядь-ка на диван."
 
-She pushed his shoulders down и made him sit at the end of the large sofa in the middle of the living room. Асуна took up the brush she was using until a while ago from the low table и carefully combed the dry black hair. A brush with a silverwork on the ebony handle depicting a dragon that once used to live in the Восточной Empire — not a Западной style dragon but an oriental dragon with elongated body — made the hair grow, because it was a magic item that made hair lustrous by simply combing. The two of them were firmly against any luxury, but this brush was given by knight chief Фанатио for the celebration of Вице-Премьер-Мечник's 1st anniversary, и she sincerely appreciated it since then.
+Она надавила на его плечи, заставив сесть на край широкого дивана, стоящего в середине гостиной. Асуна взяла с низкого столика расчёску, которой только что пользовалась, и стала аккуратно причёсывать сухие чёрные волосы. Расчёска с серебряным украшением на эбеновой ручке, изображавшем дракона, когда-то жившего в Восточной Империи — не западного вида, а китайского дракона с продолговатым телом — была волшебным предметом, заставляющим волосы расти и делающим их роскошными просто за счёт причёсывания. Они оба были строго против всяческой роскоши, но эту расчёску им подарила глава рыцарей Фанатио на празднование первой годовщины Вице-Премьер-Мечника, и она высоко ценила этот подарок.
 
-Кирито, whose head was entrusted to Асуна’s hands, suddenly said to himself:
+Кирито, голова которого находилась в руках Асуны, внезапно сказал вполголоса:
 
-"...... Я wonder if Я will be able to complete the clock soon."
+"...... интересно, смогу ли я в ближайшее время закончить часы?"
 
-"Same here. But you have already been prototyping it for a long time, is it... is it so difficult?"
+"Мне тоже. Но ты делаешь прототипы уже довольно долго, это... это так сложно?"
 
-"Yup. Я need a lot of precision gears to move the hands properly, и gears in this world are in the hoisting device of the castle gate, or in the accelerator of the water turbine, they are good only for applying a big force...... So when Я combined them, it does not work properly as a clock.... The stupid hour bell runs with the perfect precision, but the clock Я made goes crazy и makes no sense..."
+"Ага. Чтобы правильно двигать стрелки. нужно много точных шестерёнок, а шестерни в этом мире разве что в подъёмном устройстве замковых ворот, или в ускорителе в водяных турбинах, они хороши только для большой силы...... Так что когда я их совмещаю, достаточно точно для часов оно не работает.... Дурацкий часовой колокол звенит с абсолютной точностью, а часы, которые я делаю, сходят с ума и показывают ерунду..."
 
-" Я guess so."
+"Да, пожалуй."
 
-A nod, и ponderingly:
+— кивок, и задумчиво:
 
-"... Wait, I’ll ask Фанатио-сан. Certainly, in the past there was a clock in this Собора, right? The Первосвященник-сан made Bercouli-сан’s Меч out of it. So, who made it?"
+"... погоди, я спрошу Фанатио-сан. Раньше ведь здесь в Соборе, были часы, да? Первосвященник-сан ещё сделала из них меч Беркули-сан. Тогда, кто-то их же сделал?"
 
-"Ehm…well, Я guess, it was in the Underworld from the very beginning. The place where this Центрального Собора is located was a small village three hundred years ago, where the staff of RATH brought up the first generation artificial fluctlights. It was just an object they set up in the village. "
+"Эм… ну, я думаю, они с самого начала были в Подмирье. Место, где расположен этот Центральный Собор, триста лет назад было маленькой деревушкой, в которой персонал RATH вырастили искусственные флактлайты первого поколения. Это просто был объект, который они установили в поселении. "
 
-"’The first four’......"
+"’Изначальная четвёрка’......"
 
-While these quiet words reminded of a story she heard from the RATH supervisor Seijiro Kikuoka back at the Ocean Turtle in Real World, Кирито thrusted his right hand into the brushed hair.
+Под эти тихие слова, напомнившие о рассказе, что она слышала от главы RATH Сэйдзиро Кикуоки ещё на Оушен Тётл в Реальном Мире, Кирито засунул правую руку в причёсанные волосы.
 
-"Should the system console on the hundredth floor still function...... I’d call the object data of the clock и could just recreate it."
+"Если бы системная консоль на сотом этаже ещё работала...... я бы вытащил объектные данные часов и просто воссоздал их."
 
-A bitter smile was an answer to these selfish words.
+Горькая улыбка была ответом этим эгоистичным словам.
 
-"Hey, if you can do such a thing, you don’t even have to make a clock as an object, you could just add a time display to the menu window...... to Stacia's window... but before that......."
+"Вообще-то, если бы ты смог это сделать, то даже создавать часы как объект не нужно, ты мог бы просто добавить время в окно меню...... в окно Стасии... но прежде......."
 
-*── you would be able to stop the Critical Acceleration Phase.*
+*── неплохо было бы прервать Фазу Предельного Ускорения.*
 
-Асуна left out these last words.
+Асуна проглотила последние слова.
 
-That moment Underworld was operating at a tremendous speed of five million times the reality. It could hardly be believed, but all the long days of one year и three months Асуна has been diving in that world took only about 8 seconds in the Real World. Imagining the huge amount of data that would be exchanged between the STL she was lying in и the fluctlight of her brain vaguely scared her. She feared that the brain could simply burn out someday.
+В этот самый миг Подмирье работало на ужасной скорости, в пять миллионов раз превосходящей реальность. Это не укладывалось в голове, но все эти долгие дни одного года и трёх месяцев, которые Асуна провела, нырнув в этот мир, заняли в реально мире всего-то около 8 секунд. Представляя огромные объёмы информации, которыми обменивались STL, в котором она лежала, и флактлайт её мозга, она испытывала неосознанный страх. Ей было страшно, что в один прекрасный день её мозг просто сгорит до тла.
 
-However, if the system console is revived и it becomes possible for them to log out ── Асуна was not sure she could do it without hesitation.
+Однако, оживи системная консоль, подарив им возможность разлогиниться ── Асуна не знала, сможет ли она без раздумий сделать это.
 
-Асуна и Кирито intervened in the governance system of Мира Людей, entire Underworld, which brought enormous и rapid changes. They did not regret it, but the aftermath of the reforms still could be felt и the murder incident happened five days ago was a part of that. The two of them had a responsibility to witness the fate of the world, и should they have to logout without a reason, to look from the outside into Underworld watching the civilization collapsing, — that would be truly regretful.
+Асуна и Кирито вторглись в систему власти Мира Людей, всего Подмирья, что принесло мгновенные огромные изменения. Они не сожалели об этом, но последствия жёстких реформ всё ещё живо ощущались, и инцидент с убийством, произошедший пять дней тому назад, был частью этого. Они оба чувствовали, что должны собственными глазами увидеть судьбу этого мира, и если бы им пришлось беспричинно разлогиниться и затем смотреть на Подмирье снаружи, наблюдая как разрушается его цивилизация, — это было бы истинно печально.
 
-Perhaps, feeling that there’s something that words can’t express, Кирито unexpectedly raised his hands from behind his head, grabbed Асуна’s body, pulled her forward turning around и sat on his knee.
+Возможно, ощутив что-то чего не выразить словами, Кирито неожиданно поднял руки из-за головы, схватил Асуну за талию, развернул её вокруг оси и усадил себе на колено.
 
-"Kya~"
+"Кья~"
 
-She exclaimed, protesting against the stuffed-toy-like treatment.
+— взвизгнула та, недовольная, что с ней обращаются как с плюшевой игрушкой:
 
-"Hey, careful!"
+"Эй, осторожно!"
 
-But Кирито behind her answered with a tone suggesting a wide grin.
+Но Кирито ответил голосом, намекавшим на широкую ухмылку:
 
-"It's all right, I've supported you with incarnation."
+"Всё в порядке, я ещё инкарнацией поддержал."
 
-"No problem then! Indeed, what other than superpowers remain to a human at a time of decline...."
+"А, ну тогда никаких проблем! И правда, что ещё кроме суперспособностей остаётся человеку в период упадка...."
 
-"Decline is terrible."
+"Упадок — это ужасно."
 
-In response, Кирито lightly hugged Асуна from behind.
+В ответ, Кирито легонько обнял Асуну сзади.
 
-That moment her body suddenly lose all the energy. Long ago ── seemed like in a previous life, after they just married in the floating castle Incrad, Асуна used to sit the same way on Кирито's knees many times every day, sometimes falling asleep.
+## Продолжение следует...
+
+<!--That moment her body suddenly lose all the energy. Long ago ── seemed like in a previous life, after they just married in the floating castle Incrad, Асуна used to sit the same way on Кирито's knees many times every day, sometimes falling asleep.
 
 A long, long time has passed since that time, but the feeling of being completely protected и that there is nothing to fear when he hugged her this way did not change at all. Holding the dragon-inscribed hair brush in both hands, she leaned against Кирито's chest и closed her eyelids.
 
@@ -210,10 +212,8 @@ Come to think of it, when she came across Кирито at SAO, he was high schoo
 
 Recollecting memories of that period that seem to be so long time ago, Асуна fell into the deep и soft sleep.
 
-## Footnotes:
+-->
 
-1. <a name="Prim1"></a>This should be perceived as “posh”. Despite the actual size of more than 80 m<sup>2</sup>, it is significantly larger than the “default” size for a housing 2 in Japan (about twice as larger). For example, according to Vol.18 Epilogue 6, Higa Takeru’s apartment in Higashgotanda had 8-татами main room, which corresponds to a Западнойern-style bedroom size.
-<!--2. <a name="Prim2"></a>.
-3. <a name="Prim3"></a>.
-4. <a name="Prim4"></a>.
-5. <a name="Prim5"></a>.-->
+## Примечания:
+
+1. <a name="Prim1"></a>Это следует воспринимать как “роскошно”. Не смотря на реальную площадь около 80 м<sup>2</sup>, это значительно превосходит “стандартную” площадь для проживания двоих в Японии (примерно в два раза больше). Например, в томе 18, Эпилог 6, квартира Хиги Такеру в Хигашиготанде имела основную комнату на 8 татами, что соответствует размеру спальни в западной культуре.
