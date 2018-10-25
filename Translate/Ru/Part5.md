@@ -112,107 +112,103 @@
 
 В ответ, Кирито легонько обнял Асуну сзади.
 
-## Продолжение следует...
+В этот миг силы внезапно покинули её тело. Давным давно ── словно ещё в прошлой жизни, когда они только поженились в парящем замке Айнкрад, Асуна точно также сидела на коленях Кирито помногу раз за день, иногда засыпая.
 
-<!--That moment her body suddenly lose all the energy. Long ago ── seemed like in a previous life, after they just married in the floating castle Incrad, Асуна used to sit the same way on Кирито's knees many times every day, sometimes falling asleep.
+Много, очень много времени минуло с тех дней, но это чувство абсолютной защищённости, чувство, что бояться нечего, возникающее когда он так обнимал её, совсем не изменилось. Держа обеими руками расчёску с изображением дракона, она откинулась на грудь Кирито и закрыла глаза.
 
-A long, long time has passed since that time, but the feeling of being completely protected и that there is nothing to fear when he hugged her this way did not change at all. Holding the dragon-inscribed hair brush in both hands, she leaned against Кирито's chest и closed her eyelids.
+*Вот бы так и заснуть, да и Кирито отнесёт меня в кровать если я это сделаю, но нельзя. Если я засну, Премьер-Мечник, которому сегодня неспокойно, выберется из Собора и отправится на поиски трёх пропавших гоблинов.*
 
-*Я want to fall asleep like this, и Кирито will carry me to bed even if Я do, but Я can’t do that. If Я fall asleep, Премьер-Мечник who feels uneasy today will get out of Собора и will depart to search for the three missing гоблинов.*
+На чрезвычайном собрании, проведённом после обеда, было решено выдать ордер о расследовании относительно администрации Южной Центории от имени Объединённого Совета Мира Людей и ордена Рыцарей Целостности, но в этот момент прозвенел вечерний 5-часовой колокол, так что конкретные действия отложили до утра. К тому же, поскольку чиновник, показавшийся в таверне, скорее всего был ненастоящим, даже если расследование в администрации будет проведено, вывод будет скорее всего "ордера на перевозку гоблинов выдано не было, а такого чиновника не существует". Асуна полагала, что было плохой идей оставлять целый день на откуп способному быстро перемещаться убийце. А ещё, что вряд ли кто-то ещё кроме Кирито сможет прочесать всю Центорию и найти гоблинов, так что это вполне может быть ловушкой, заманивающей Премьер-Мечника прямо как в Обсидии.
 
-In the emergency meeting held in the afternoon, it was decided to issue an investigation order to the Южной Центория administration in the name of Объединённого Совета Мира Людей и the Рыцарь Целостности group, but at that time the 5 pm bell rang, so it was the next morning to take actions. Moreover, since the official who appeared in the inn was probably a fake, even if the investigation in the administration is done, the outcome will most likely be "there was no order issued to transfer гоблинов и there is no such official." Асуна thought it was a bad idea to leave an entire day to the quick-moving killer for granted. Besides, it is unlikely that anyone but Кирито can search the whole Центория и find гоблинов, so it could be a trap inviting Премьер-Мечник just like in Obsidia.
+Но прежде всего, Асуну попросила ученик рыцаря Ронье, чтобы она последила за Кирито, и она не могла подвести доверие той. *Я обязана сдержать своё обещание ей.*
 
-And above all, Асуна was asked by an apprentice knight Ронье to keep an eye on Кирито, и she couldn’t afford failing the trust. *Я must keep my promise to her.*
+Как только она задумалась о серьёзном лице Ронье, беспокоившейся за благополучие Кирито, в глубине её груди что-то кольнуло.
 
-As soon as she thought of the serious face of Ронье who is worried of Кирито's welfare, the back of her chest hurt.
+Она давно знала о чувствах той ── это стало очевидным ещё до инаугурации Объединённого Совета Мира Людей, она впервые заметила это той ночь, которую они провели вчетвером, вместе с Алисой и генералом Армии Защиты Мира Людей Солтериной во время Войны с Внешним Миром. Но Асуна ни разу не говорила с Ронье об этом с тех пор.
 
-She knew about her feelings for long time already ── it became apparent even before the Объединённого Совета Мира Людей was inaugurated, she has first noticed that the night she spent with the four of them, including knight Алиса и Мира Людей Defense Army general Solterina during the Войны с Внешним Миром. But Асуна has never talked to Ронье about it since then.
+Асуна с болью осознавала, что в свои 17 лет та страдала от безответных чувств. Но что с этим делать она не представляла.
 
-Асуна was painfully conscious that the other one was still 17 years old и suffering from unrewarding feelings. But she did not know what to do with that.
+Такое же безрадостное чувство, бывало, посещало её в реальном мире.
 
-This disconsolance she felt was the same as sometimes touched her in the real world.
+Их друзья в Реально Мире, связанные крепкими узами...... Лизбет, Силика, Синон, и Лифа. У всех них были сильные чувства к Кирито, но при Асуне они скрывали их или обращали в шутку. Напротив, они использовали всякую возможность чтобы обрадовать и поддержать Асуну.
 
-Their friends of the real world who were tied to them by true bonds...... Lisbeth, Silica, Shinon, и Leafa. All of them had strong feelings to Кирито, but in front of Асуна they hid it or turned it into a joke. On the contrary, they used every opportunity to cheer и encourage Асуна.
+Как и всегда, она была этому рада, но в то же время, и чувствовала боль. Мысли о Кирито, который никак не ставил точку в этой опасной ситуации, лишь приносили ей горечь.
 
-As always, she was happy about it, but felt some pain as well. Thinking of Кирито, who did no effort to make up his mind in such a dangerous situation, only given her this bitter sensation.
+Но сам Кирито не сильно поменялся с того момента, как они впервые встретились на первом этаже Айнкрада. С широко раскрытыми объятиями, готовый принять всё что угодно, никогда не сдаваясь. Человек, отчаянно прокачивающийся в высокоуровневых зонах с лабиринтами экстремальной сложности чтобы в конце протянуть руку помощи павшей Асуне. И несмотря на его статус абсолютно ключевого игрока в пати в последовавшей битве с боссом этажа, он на своей шкуре прочувствовал ненависть и антипатию по отношению к бывшему бета-тестеру, избрав в итоге путь, на котором он так и остался "битером".
 
-But Кирито didn’t change much since the first time she met him in the first level of Incrad. With both hands widely open и accepting everything, never giving up. A person desperately continuing to level-up in the top ranking extremely dangerous labyrinth areas to finally lend a helping hand to fainting Асуна. и despite being an absolutely key player of the party in the following floor boss fight, he embraced hatred и antipathy to former beta tester choosing the road where he remained being called "beater".
+Тот самый Кирито, которого Асуна любила.
 
-This was exactly Кирито Асуна loved.
+Так что, когда они с Кирито оказались заперты в этом мире вдвоём, Асуна всего лишь на чуть-чуть, но почувствовала облегчение.
 
-Therefore, when the two of them with Кирито got trapped in this world, Асуна for just a little, but felt something similar to a relief.
+И на финальном этапе Войны с Внешним Миром, её сердце не позволило ей оставить Кирито одного в этом мире, так что она позволила лишь Рыцарю Целостности Алисе сбежать в Реальный Мир, а сама осталась в Подмирье. Нет, когда всё закончилось, она поняла, что в тот момент у неё в голове даже мысли не появилось о том, чтобы разлогиниться одной. Так что она не думала об этом как о способе сберечь Кирито для себя одной, однако, по прошествии более чем года, она чувствовала, что никаких извинений не хватит, чтобы перекрыть постоянно копящееся чувство вины перед друзьями и семьёй, которых она уже никогда больше не увидит.
 
-And in the final stage of the Войны с Внешним Миром, her heart could not allow her to leave Кирито alone in this world, so she let only Рыцарь Целостности Алиса to escape to the real world и stayed in Underworld herself. No, after all was over, she understood that the option of logging out alone did not even appeared in her head at that time. So she did not think at all that it is a way to monopolize Кирито, however, after more than one year has passed, she felt no apology would be enough to resolve the ever-growing feeling of guilt before her friends и family whom she would never meet again.
+И всё же ──
 
-Still ──
+Уголок её сердца постоянно грела мысль, что в этом мире не нужно разделять его любовь с Лизбет, Силикой и всеми остальными.
 
-The feeling that in this world there is no need to spare his love with Lisbeth, Silica и others was constantly present in one corner of her heart.
+Асуна положила расчёску на колени, развернулась к нему и накрыла руки Кирито своими.
 
-Асуна put the brush on the knee, turned around to him и covered Кирито’s hands with both of her own.
+Объятие стало крепче.
 
-The hug became a little stronger.
+Когда они снова встретились в "Алтаре Завершения" на южной оконечности Тёмной Территории, Кирито лежал на белокаменных ступенях, а из глаз его текли неиссякающие слёзы. Ей не нужно было спрашивать, чтобы понять, что это были слёзы по всем тем людям, которых им уже не суждено было увидеть.
 
-When they meet again at the "Altar of the End" at the Южной end of the Тёмной Территории, Кирито was lying on top of the white stone steps, endless tears flooding from his eyes. Without asking, she knew that those were tears for the people whom they could not meet anymore.
+Немало времени прошло с тех пор, но она редко упоминала при Кирито о воспоминаниях из реального мира, об их друзьях и семьях, с кем они навеки попрощались. Это, наравне с причинами внутри этого мира, полном вещей, о которых нужно было беспокоиться, было причиной того, что Асуна до сих пор не привела свои чувства в порядок. Возможно, для Кирито это было так же.
 
-A long time has passed from that time, but she rarely mentioned to Кирито any memories of the real world, their friends и families whom they would now bid eternal farewells. This, as well as reasons of this world, where there were too many things to think about, were why Асуна has still not managed to organize her emotions. Perhaps, for Кирито it was the same.
+*Вот почему я должна относиться к Ронье серьёзно. Вместо того чтобы повторять свои ошибки из реального мира, мне стоит задуматься о том что я могу для неё сделать и что из этого я действительно буду делать. Всегда так думать ──*
 
-*That's why Я want to face Ронье seriously. Rather than repeating the same mistakes as in the real world, Я need to think about what Я can do for her и what should Я do. Always think this way ──*
+"...... скоро будет спать пора."
 
-"...... It is about time to sleep."
+Когда Асуна прошептала, Кирито выдохнул "Точно", прямо за её правым ухом.
 
-When Асуна whispered, Кирито responded "Right", just behind her right ear.
+Она попыталась слезть с колен, но прямо перед этим правая рука Кирито обернулась вокруг её талии, и поднял её сам, придерживая с обеих сторон.
 
-She tried to get off the knees, but the right hand of Кирито moved around her back just before that, и he lifted her up holding from both sides.
+"Ой, ... подо...."
 
-"Oh, ... wai...."
+Когда он неожиданно развернул её, расчёска с изображением дракона, которую Асуна держала на себе, скатилась вниз. Однако, она беззвучно остановилась в 50 сантиметрах над полом, скользнула в сторону и приземлилась на низкий столик. Кирито поймал её с помощью "руки разума".
 
-As soon as he unexpectedly moved her, the dragon-decorated hair brush that Асуна had on her body, rolled down. However, it stops silently around 50 centimeters above the floor, slid sideways и landed on the low table. Кирито caught it with the "hand of mind".
+В то время Асуна тренировала эту сверхъестественную способность, которой обладали только Кирито и старшие рыцари, но её пределом было передвинуть маленький медный шир. Считалось, однако, что когда кто-то столь свободно перемещает предметы, его Жизнь уменьшается, и её это несколько пугало. Тем не менее, её вполне можно было применить для задач по уборке дома вроде мытья посуды и уборки комнат.
 
-At that time, Асуна has practiced this supernatural ability that only Кирито и the senior knights could use, but her limit was to move a small Shear copper coin. However, when one can move things around so freely, the life seemed to be decreasing и she was a little bit afraid of that. But still, it surely could be of use for occasional housekeeping tasks like dishes и own rooms cleaning.
+"...... больше тебя это не удивляет."
 
-"...... it is not surprising anymore."
+Она исподлобья взглянула на Кирито, на лице снова хитрая улыбка:
 
-She glanced at Кирито sullenly, a mischievous smile returning to the face.
+"Я сегодня совершила невозможное с помощью Отражения Прошлого, ты об этом, не так ли?"
 
-"Я made an impossible today with the Past Reflection, it's about that, is not it?"
+"Об этом самом."
 
-"It’s all about that."
+Ответив так, Кирито расслабленным шагом пересёк широкую гостиную и открыл дверь спальни, снова использовав инкарнацию.
 
-While answering so, Кирито crossed the wide living room with a relaxed walk и opened the door of the bedroom again using the incarnation.
+Посредине комнаты, едва ли не вдвое превышающей комнату Асуны в реальном мире, стояла кровать, на один размер больше, чем королевский. Когда она впервые её увидела, то пошла жаловаться Фанатио о словами "Это слишком роскошно", которая сказал ей, что эту кровать установили одновременно с постройкой 30-го этажа Собора, и её нельзя убрать из комнаты не разломав ─ на это смекалистое объяснение у неё не нашлось что ответить. К тому же, Асуна, которой до определённой степени нравилась натуральная деревянная мебель, не могла отрицать, что массивное изголовье из чёрного ореха притягивало её взгляд.
 
-In the middle of a room nearly double of Асуна's own room in the real world, there was a bed one size larger than a king size. When she saw it for the first time, she complained to Фанатио, "That’s too luxurious ", who told her that this bed was brought in at the time when the 30th floor of the Собора was built, и it could not be taken out of the room unless it is already broken ─ a smart explanation to which there was nothing she could say. Besides, Асуна, who was somewhat fond of natural wooden furniture, could not deny that the massive black walnut solid headboard was keeping her glances.
+Согласно Хиге Такеру из RATH, Подмирье использовало местность и объекты, созданные программой "Семя", трансформированные в формат "мнемовизуальных" данных сверхвысокого разрешения. И поскольку Семя было урезанной версией системы Кардинал, которая управляла SAO, в какой-то степени можно было утверждать, что эти ореховые деревья, растущие в Подмирье, принадлежат к тому же электронному роду, что и в Айнкраде.
 
-According to Higa Takeru from RATH, Underworld used terrain и objects generated by the "The Seed" program transformed into a super-high-resolution "mnemonic-visual" data format. и since The Seed was a shrunk version of the Cardinal system that had run SAO, in a way it could be said that walnut trees growing in Underworld were of the same electronic genus as those of Incrad.
+Асуна легла на правую сторону кровати, Кирито обошёл вокруг и сел слева. Его взгляд пробежал по светильникам на световых элементах, мягко горевших в двух местах на стене, и под действием его инкарнации элементы исчезли. Когда искусственный свет погас, лунный свет, льющийся в комнату через большое окно слева от Асуны, осветил комнаты светло-голубым.
 
-Асуна laid down on the right side of the bed, Кирито walked around the footboard и seated on the left side. His line of sight turned to light element lanterns shining softly in two places on the wall, и elements disappeared controlled by his incarnation. When the artificial light went out, the moonlight flowing in through the large window on the left side of Асуна shaded the room lightly blue.
+Кирито потянул сложенный в ногах плед и плотно, до самой шеи, укрыл Асуну. Как если бы он укрывал маленького ребёнка, он слегка похлопал от верха до самого матраса, и затем тоже лёг.
 
-Кирито then pulled up the quilt folded down at feet и covered Асуна tightly up till the neck. As if to make a bed for small child, he lightly tapped it from the top to the futon, и then also lied down.
+"..... даже когда я засну, и не надейся что сбежишь."
 
-"..... even when Я fall asleep, have no hope of sneaking out."
+— прошептала Асуна, чувствуя успокаивающую сонливость. Справа до неё долетел вздох горькой улыбки.
 
-Асуна whispered, feeling a calming drowsiness. From the right side, came a sigh of bitter smile.
-
-"Я won’t, indeed, in this large Центория there’s no way to locate those гоблинов..."
+"Я не собираюсь, и вообще, в этой огромной Центории нет никакой возможности найти этих гоблинов..."
 
 ![Image](/Translate/Img/p137.jpg)
 
-"Fine, they will be found safely. Even for the criminals, to have another incident, preparations are necessary.... should be..."
+"И хорошо, найдут их. Даже для преступников, чтобы подготовить следующий инцидент, нужно подготовиться.... наверное..."
 
-Her right hand moved towards Кирито, resisting the drowsiness the body suddenly sunk into. Immediately a large и warm left hand found Асуна's hand и gently grasped.
+Её правая рука двинулась к Кирито, сопротивляясь пропасти сонливости, в которую понемногу скатывалось её тело. Его большая и тёплая левая рука сразу же нашла руку Асуны и ласково сжала.
 
-Recently, when just two of them remained alone, she let herself to behave in a more childish way. It happened unintentionally и for no specific reason.
+В последнее время, когда они оставались вдвоём, она позволяла себе вести себя по-детски. Это происходило не специально и без какой-либо особой причины.
 
-Perhaps the reason might be that the mental age of the two of them was reversed.
+Возможно, причина была в том, что разница в их психологическом возрасте инвертировалась.
 
-Асуна's birthday was September 30, 2007. Кирито's birthday was October 7, 2008. Асуна was one year older all the time, but Кирито spent two years eight months of life in Underworld where time has been accelerated before Асуна dived. However, he was in unconscious state for half a year of which he did not have memory. Therefore, even if six months are deducted, Кирито is now one year и two months older than her by mental age.
+Асуна родилась 30 сентября 2007. Кирито — 7 октября 2008. Асуна всегда была на один год старше, но Кирито провёл в Подмирье, где время было ускорено, два года восемь месяцев к тому моменту как Асуна нырнула туда. Однако, полгода из этого периода он был в бессознательном состоянии, и не сохранил воспоминаний про это время. Поэтому, даже если и отнять шесть месяцев, Кирито теперь был на год и два месяца старше её по психологическому возрасту.
 
-There were few opportunities to be conscious of it in an everyday life, but in small gestures и words they exchanged when left alone, she didn’t feel anymore that immaturity Кирито of the Incrad era sometimes had. The accumulation of that sensation might make Асуна childish.
+В обыденной жизни было мало возможностей проявиться этому отличию, но в тех мелких жестах и словах, которыми они обменивались, оставаясь наедине, она больше не чувствовала той незрелости, которой обладал Кирито эпохи Айнкрада. Накапливающееся осознание этого и могло заставить Асуну вести себя несерьёзно.
 
-Come to think of it, when she came across Кирито at SAO, he was high school student of only 14 years old. и Асуна was also a high school third grader just before taking the exam. The two who decided to unite in the course of action, communicated in a childish way with each other.
+Если так подумать, когда она встретила Кирито в SAO, тот был учеником старшей школы всего 14 лет. И Асуна тоже училась в старшей школе, в третьем классе, незадолго до сдачи выпускных экзаменов. Эти двое, решившие по ходу дела объединиться, общались тогда друг с другом по-детски.
 
-Recollecting memories of that period that seem to be so long time ago, Асуна fell into the deep и soft sleep.
-
--->
+Вспоминая события того периода, случившиеся столь давно, Асуна погрузилась в глубокий и спокойный сон.
 
 ## Примечания:
 
