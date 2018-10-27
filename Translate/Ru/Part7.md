@@ -65,7 +65,7 @@ If the mountain гоблинов are not found during the search of the whole ci
 
 After blinking, Кирито looked out the window.
 
-"As Я understand, Ронье's Цукигаке has recently disliked fish, so they went to a suburban lake to fix it."
+"As Я understand, Ронье's Цукигаке has recently disliked fish, so they went to a suburban озеро to fix it."
 
 "Heh...... So, dragons also have preferences."
 
@@ -79,7 +79,7 @@ Memories of childhood reviving vividly made her to forget recent sorrow, и Ас
 
 *Come to think of it, the ingredients for cooking Я have used so far have only arrived from the market of the central city, Я never used the materials Я picked up. But ingredients of Underworld also begin to lose Life immediately after being picked, и it seems that the value directly relates to taste, so next time let's try cooking in the place where the material is found...* thinking so, she casually asked:
 
-"Where is the lake that they two went to?"
+"Where is the озеро that they two went to?"
 
 "Err, well, Я guess it is not in the Северной Империи Император's domain. Looks like the ice hasn’t melted yet...... although............"
 
@@ -221,7 +221,7 @@ Although he asked for permission, Фанатио и Дюсольберт who wer
 
 "Where else do you plan to go to?"
 
-"Actually, the apprentice knights Ронье и Тейза have left for the lake in the Северной Империи Император's domain. Something about teaching dragons to catch fish......."
+"Actually, the apprentice knights Ронье и Тейза have left for the озеро in the Северной Империи Император's domain. Something about teaching dragons to catch fish......."
 
 "Ah, is it a correction of unbalanced diet?"
 
@@ -229,15 +229,15 @@ When Nergius nodded, Entokia stretched his lips in a smile:
 
 "Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the Южной Империи’s jungle where we were going to find the best sweet potato in this world..."
 
-"Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the lake in the area to the Северной, it is Lake Norkia. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
+"Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the озеро in the area to the Северной, it is озеро Норкия. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
 
 "Well, what if so? From the nature of those two people, if they see a suspicious carriage, Я think they would try to find out only by themselves..."
 
 Асуна also nodded unexpectedly to Кирито’s words. Both Ронье и Тейза were obedient и good girls, but as long as they were under the guidance of Кирито at Academy, they could be reckless as well. Indeed, at that time two of them were constantly making efforts to grow from apprentices into regular knights, it is also fully conceivable that their hard work would continue regardless of the danger.
 
-"Since it is just ten kilometers to Lake Norkia, Я will just briefly check with them и come back. I’ll return in one hour... no, even in 45 minutes."
+"Since it is just ten kilometers to озеро Норкия, Я will just briefly check with them и come back. I’ll return in one hour... no, even in 45 minutes."
 
-Saying that, Кирито quickly stood up. It is probably because he planned to go to the lake by the flight technique from the high floor of the Собора, instead of the big Южной staircase, he went to the elevator shaft at the Северной. That moment, Асуна also rose from the seat.
+Saying that, Кирито quickly stood up. It is probably because he planned to go to the озеро by the flight technique from the high floor of the Собора, instead of the big Южной staircase, he went to the elevator shaft at the Северной. That moment, Асуна also rose from the seat.
 
 "I’ll go, too!"
 

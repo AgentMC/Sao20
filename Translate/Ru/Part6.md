@@ -1,126 +1,128 @@
-# Part 6
+# Часть 6
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-The Северной wind that was getting warmer day by day gently stroke the blue lake. The light of Solus reflecting on the surface of water burst into a bunch of small sparkles jumping across ripples.
+Северный ветер, с каждым днём приносивший всё больше тепла, легонько касался поверхности озера. Свет Солуса, отражавшийся от поверхности воды, рассеивался множеством искорок, весело прыгавших по волнам.
 
-The lake Norkia in the Северной Центория suburb was located in an area full of low hills, и although the ice has just melted half a month ago, young early plants already sprouted on the shore и small yellow flowers colorized the view.
+Озеро Норкия было расположено в холмистой местности в окрестностях Северной Центории, и хотя лёд растаял всего лишь месяц назад, первая зелень уже проклюнулась вдоль берега, и пейзаж украшали маленькие жёлтые цветы.
 
-This area was the richest ground in the suburbs of the capital area, where everyone could enjoy beautiful scenery in each of the four seasons, but for many years ─ more than 100 years actually, it has not been possible for general people or lower aristocrats to come here. Because Lake Norkia has always been part of the "Император’s domain", the largest one among aristocrats’ private territories.
+Эта область была самой плодородной землёй в окрестностях столичной территории, где можно было наслаждаться прекрасными видами в течение всех четырёх сезонов, но много лет ─ больше 100 лет, к слову, простые люди и низшая аристократия не могли сюда попасть. Поскольку озеро Норкия всегда было частью "Доминиона Императора", величайшей среди всех частных территорий аристократов.
 
-All the private areas were released after Rebellion of Four Империиs, и now anyone could enjoy coming here freely, but due to the fact that spring was still somewhat away, there were no figures around the wide lake other than Ронье, и Тейза, и two young dragons.
+После Восстания четырёх Империй все частные территории были упразднены, и теперь любой мог свободно приходить сюда, но из-за того, что весна всё ещё не вступила в свои права, вокруг широкого озера не было других фигур кроме Ронье, Тейзы и двух молодых драконов.
 
-Мира Людей Calendar year 382, February 24th.
+Год 382 по календарю Мира Людей, 24-е февраля.
 
-After completing the morning practice, Ронье и the other one took permission from instructor Дюсольберт и knights leader Фанатио, и even from Премьер-Мечник for Цукигаке и Шимосаки to leave Собора. Кирито was sorry that he could not go with them — but Ронье was fine with that, since the two of them did not just come to play. They were going to practice the advice they got from the stable keeper Хайнаг yesterday.
+По завершении утренней тренировки, они с Ронье спросили разрешения у инструктора Дюсольберта и главы рыцарей Фанатио, и даже у Премьер-Мечника, чтобы позволить Цукигаке и Шимосаки покинуть Собор. Кирито сожалел, что он не мог к ним присоединиться — но Ронье была не против, поскольку они намеревались не только играть. Они собирались воспользоваться советом полученным ими вчера от работника драконьих стойл Хайнага.
 
-When Solus reached zenith, two young dragons that were running around the grassland и playing, came in front of Ронье и Тейза sitting on the rocks of the lakeshore и began to yap one after another. Probably running so much finally made them hungry.
+Когда Солус достиг зенита, два маленьких дракона, которые до этого бегали по траве вокруг и играли, встали перед Ронье и Тейзой, сидящими на прибрежных камнях, и и начали по очереди тявкать. Наверное, они набегались и проголодались.
 
-The small horse-driven carriage they used for the movement so far ─ despite the coach was inexperienced, Тейза hired him to get them out ─ contained two lunches of dried meat и dried fruit just in case, but Ронье said without delaying any further:
+В маленькой повозке, запряжённой лошадьми, которую они использовали, чтобы добраться сюда,─ хоть возница и был неопытен, Тейза наняла его чтобы их вывезли наружу,─ на всякий случай были припасены два порции еды из сушёного мяса и засушенных фруктов, но Ронье, дабы не затягивать дальше, сказала:
 
-"Цукигаке, Шимосаки, today you two are going to catch the lunch for yourselves."
+"Цукигаке, Шимосаки, сегодня вы двое сами поймаете себе обед."
 
 "Кю-ру......?"
 
-It is unclear how much the dragons understand human words, but when they saw the pair tilting their heads having a confused look, Тейза smiled и rose from the rock.
+Было неясно, насколько драконы понимают человеческую речь, но увидев что они оба с озадаченным видом наклонили головы вбок, Тейза улыбнулась и встала с камней.
 
-"Here, come on!"
+"Пошли, за мной!"
 
-Тейза walked on to the waterside stepping on short grass, Цукигаке и Шимосаки followed her shaking their tails. Behind them, Ронье also got up и walked silencing the footsteps.
+Тейза прошагала по короткой траве до берега озера, Цукигаке и Шимосаки следовали за ней, виляя хвостами. Позади них, Ронье тоже поднялась и пошла, стараясь не шуметь.
 
-Тейза stopped at the shore where whitish rocks were exposed и carefully looked into the water, murmuring:
+Тейза остановилась на берегу, покрытом белёсыми камнями и пробормотала, аккуратно заглядывая вглубь:
 
-"Is there any..."
+"А там вообще есть хоть..."
 
-Ронье’s eyes caught countless shadows that swam quickly next to each other in transparent water. A number of small fish that overwintered under ice were forming schools. She crouched down и whispered to the dragons sticking their necks out between the two of them:
+Глаза Ронье сумели различить бесчисленные тени, быстро мелькавшие одна за другой в прозрачной воде. Много мелкой рыбы, перезимовавшей подо льдом, плавающие косяками. Она присела на корточки и прошептала драконам, вытянувшим свои шеи между ними с Тейзой:
 
-"Here, Цукигаке, it's fish. и it’s surely delicious."
+"Вон там, Цукигаке, рыба. И она точно вкусная."
 
-The young dragon which recently left fish uneaten looked up at Ронье’s face и said "Kururu......." in a suspicious voice. Holding down the back of the dragon which began to back with the right hand she added some more words:
+Молодая дракониха, совсем недавно недоевшая рыбу, посмотрела снизу вверх на лицо Ронье и издала "Ку-ру-ру.......", в котором ощущалось подозрение. Придерживая правой рукой зад драконихи, которая начала было отступать, та добавила:
 
-"Today, if you do not catch fish, there will be no lunch."
+"Сегодня, если не поймаешь рыбу, обеда не будет."
 
-"Kuru~......"
+"Ку-ру~......"
 
-That wasn’t true, и furthermore since she terribly wanted to laugh hearing the miserable voice of the dragon, but had to push, she frowned making a merciless face.
+Это была неправда, и поскольку, услышав несчастный голос дракона, ей ужасно хотелось смеяться, но нужно было стоять на своём, она нахмурилась, сделав безжалостное лицо.
 
-Ронье и Цукигаке kept staring at each other for some time until ──
+Ронье и Цукигаке какое-то время играли в гляделки, когда вдруг ──
 
-"Кю-ру-ру!!!"
+"Кю-р-р!!!"
 
-Шимосаки who cried loudly swung small wings a couple of times to inspire himself, then quickly jumped over the water. He folded the wings in the air, straightened the long neck, и dived into the lake head in front.
+Издав громкий крик, Шимосаки пару раз взмахнул маленькими крылышками чтобы раззадориться, и затем быстро прыгнул в воду. Ещё в воздухе он сложил крылья и вытянул длинную шею, и затем нырнул в озеро головой вперёд.
 
-Small fish swimming near the bottom of about seventy centimeters depth scattered in all directions. Following one of them, Шимосаки showed some brilliant swimming skills, wriggling the whole body.
+Плавающие у самого дна водоёма глубиной около семидесяти ценов рыбёшки бросились во все стороны. Преследуя одну из них, Шимосаки продемонстрировал отличное умение плавать, извиваясь всем телом.
 
-A dragon is a creature specializing in flying in the sky as its name suggests<sup><a href="#Prim1">1</a></sup>, и the "Dragon nest" by the frontier of the Западной Империи is a steep alpine surrounded by a vast lake tens of times larger than Lake Norkia, so apparently wild dragons swim in the lake freely и catch fish. Цукигаке и Шимосаки, born in the Собора, have only bathed in shallow ponds in the front yard, but instinctively seem to know how to swim.
+Как и предполагает его название, дракон — это существо, специализирующееся на полёте в небе<sup><a href="#Prim1">1</a></sup>, и "драконье гнездо" на дальней границе Западной Империи — это крутая и высокая гора, окружённая обширным озером, в десятки раз большим, чем озеро Норкия, так что наверное дикие драконы умеют свободно плавать в том озере и ловить рыбу. Цукигаке и Шимосаки, рождённые в Соборе, только и купались, что в мелком пруду в переднем дворе, но похоже, инстинктивно умели плавать.
 
-After a few tens of seconds, Шимосаки broke through the water surface, jumping out и landing to the original shore while vigorously flapping its tiny wings. Тейза и Ронье had no time to avoid it shaking the whole body и sprinkling a lot of water drops from wet feathers all around.
+Через несколько десятков секунд, Шимосаки, разорвав водную гладь, выпрыгнул наружу и приземлился на берег, откуда он нырнул, энергично махая маленькими крылышками. У Тейзы и Ронье не было времени, чтобы убежать до того, как он начал отряхиваться всем телом, забрызгав всё вокруг веером капель от мокрых перьев.
 
-"Wow."
+"Ух ты."
 
-In spite of his turning the face away from the water drops, Ронье noticed something glittering in Шимосаки's mouth и tried to look closer. It was a trout of a silver body with small red spots visible over it. It appeared small when it was swimming underwater, but when looking closer it seemed to be a twenty cen full-length.
+Не смотря на то, что она отворачивала лицо в сторону чтобы защитит его от разлетающихся кругом капель, Ронье заметила, что что-то блестело у Шимосаки во рту и попыталась посмотреть поближе. Это была треска, с серебристым телом, покрытым красными пятнышками. Пока она плавала под водой она казалась маленькой, но при ближайшем рассмотрении она была около 20 ценов.
 
-Цукигаке approached и moved his nose to the caught trout being kept in Шимосаки's mouth и carefully smelled it. But shortly afterwards Шимосаки turned his head upwards и swallowed the fish.
+Цукигаке подошла, приблизила нос к пойманной треске, которую Шимосаки продолжал держать во рту, и аккуратно её понюхала. Но затем Шимосаки повернул голову вверх и проглотил рыбу.
 
-"Кю-ру-ру-ру!!!"
+"Кю-р-р-р!!!"
 
-To a satisfied cry of a young dragon, Тейза added in a somewhat astonished voice:
+Тейза добавила радостным голосом к довольному крику дракона:
 
-"The one who gets it, the one eats it."
+"Кто ловит, тот и ест."
 
-But Шимосаки waved his tail again as if to say that he was still hungry и jumped into the water again. Цукигаке also looked into the surface of the lake but stopped its movement.
+Но Шимосаки снова помахал хвостом, словно говоря, что он ещё голоден, и снова прыгнул в воду. Цукигаке тоже стала смотреть на поверхность озера, но остановилась.
 
-"Hey Цукигаке, do your best."
+"Эй Цукигаке, постарайся."
 
-When Ронье encouraged it, after moving the body back и forth numerous times hesitating between hunger и diffidence, finally crying:
+Когда Ронье подбодрила её, после нескольких колебаний и нелёгкого выбора между голодом и робостью, наконец, громко крикнув:
 
-"Kuru~~!"
+"Ку-ру~~!"
 
-in a loud voice, Цукигаке also jumped into the water.
+— Цукигаке тоже прыгнула в воду.
 
-*Я can chase the light-yellow figure with my eyes; although her movements feel slightly awkward compared to Шимосаки just now, she swims hard to chase fish. But the swarm of trout quickly moved from side to side и could not be easily caught. To Цукигаке which is of a quieter personality than Шимосаки, Я guess, the burden of sudden fish hunt was too heavy......* At that time, Шимосаки who overcame them earlier, jumped in front of the school of trout. Цукигаке plunged into the space where the surprised school got disarranged.
+*Я вижу её бледно-жёлтые перья; по сравнению с тем, как плавает Шимосаки, её движения выглядят несколько неуверенными, но она старается изо всех сил поймать рыбу. Но косяк трески быстро перемещается из стороны в сторону, и поймать что-то не так просто. Для Цукигаке, которая по натуре своей более тихая, чем Шимосаки, я полагаю, груз внезапной рыбной ловли оказался слишком тяжёл......* В это время, Шимосаки, который обогнал их, ринулся наперерез косяку трески. Цукигаке врезалась в пространство, где замерла в беспорядке не знающая, что делать, рыба.
 
-As it jumped out of the water surface, a splendid trout, of about 25 cen, was held in the mouth of the young dragon returning to the shore.
+Когда она выпрыгнула из воды, отличная треска, около 25 ценов, была в пасти молодой драконихи, выходящей на берег.
 
 "Ку-ру-ру-ру!!!"
 
-Ронье also happily shouted to Цукигаке who boastingly showed the prey giving the loud cooing:
+Ронье тоже радостно выкрикнула в сторону Цукигаке, которая горделиво показывала добычу, громко лая:
 
-"You did it, congratulations Цукигаке!"
+"Ты сделала это, поздравляю, Цукигаке!"
 
-And of course, it is all great to make the young dragon happy, but Ронье unexpectedly sighed. Apparently, it was fun to catch fish, but it seems it didn’t help with the problem of fish disliking.
+И конечно, это всё здорово, что её дракон доволен, но Ронье неожиданно для себя вздохнула. Похоже, хоть ловить рыбу и было весело, но непохоже что это исправило проблему нежелания есть эту самую рыбу.
 
-*If you do not eat it, you’ll have no lunch......* Тейза interrupted her just before she was going to begin scolding.
+*Если не съешь, обеда не будет......* Тейза прервала её когда та собиралась начать отчитывать дракона.
 
-"Hey Ронье, that, she gives it to you, does she not?"
+"Эй Ронье, это, она же вроде тебе отдаёт, разве нет?"
 
-"Eh……?"
+"Э……?"
 
-After blinking couple of times, she asked the young dragon:
+Моргнув несколько раз, она спросила молодую дракониху:
 
-"...... this fish, is this for me?"
+"...... эта рыба, это для меня?"
 
-Then Цукигаке cried as if enjoying she finally understood:
+Тогда Цукигаке выкрикнула, словно радуясь, что та наконец поняла:
 
 "Ку-ру-ру~!"
 
-"All right...... Thank you, Цукигаке."
+"Хорошо...... Спасибо, Цукигаке."
 
-She stretched the right hand и scratched the head covered with water drops. Lifted the still pounding fish up with her left hand и smiled.
+Она вытянула правую руку и почесала голову, покрытую каплями воды. Взяла всё ещё трепыхающуюся рыбину левой рукой и сказала:
 
-"Я will have this for my lunch, but the next one you can eat yourself."
+"Я этой пообедаю, но следующую можешь съесть сама."
 
-"Kuru!!!"
+"Ку-ру!!!"
 
-And of course, after a loud cooing, Цукигаке again jumped into the water.
+И тогда, ещё раз прокурлыкав, Цукигаке снова прыгнула в воду.
 
-From that point on, the progress of the dragons significantly advanced ahead. Instead of chasing independently, one chased a school of trout и the other went on ahead. At the moment when the flock was caught between the two of them и got disoriented, they simultaneously caught prey.
+С этого момента, драконьи потуги стали заметно успешнее. вместо того, чтобы гоняться за рыбой самостоятельно, один загонял косяк трески, а второй обгонял. В тот момент когда рыбья стая оказывалась между ними двоими и теряла ориентацию, она одновременно ловили добычу.
 
-By the time the flock ran away to a deep place, Цукигаке и Шимосаки caught five trouts together, ate three of them и gave two of them to Ронье и her friend. The trout simply roasted by the bonfire burnt of some dry branches had pretty much artless flavor compared to handmade paper wrapping cooking of Вице-Премьер-Мечник they enjoyed the other day, but they felt it was as tasty, either because the product itself was fresh or because Цукигаке и the other one got it.
+К тому моменту как косяк рыбы убрался подальше в более глубокое место, Цукигаке и Шимосаки вместе поймали пять рыбин, три из которых съели, а две отдали Ронье и ей подруге. Треска, поджаренная на костре, сложенном из случайных сухих веток, обладала весьма безыскусным ароматом, особенно в сравнении с запечённой завёрнутой в бумагу, как сделала Вице-Премьер-Мечник и которую они попробовали недавно, однако они были довольны вкусом, то ли потому что продукты были свежими сами по себе, то ли потому что они с Цукигаке выловили их.
 
 ***
 
-Just as the stable keeper said, Цукигаке’s fish dislike has been corrected in a blink of an eye и it became same way not picky like Шимосаки, which ran around the grass once again playing after finishing the meal. The gardens of Собора were also large enough, but the dragons were also comfortable in the nature.
+## Продолжение следует...
+
+<!--Just as the stable keeper said, Цукигаке’s fish dislike has been corrected in a blink of an eye и it became same way not picky like Шимосаки, which ran around the grass once again playing after finishing the meal. The gardens of Собора were also large enough, but the dragons were also comfortable in the nature.
 
 Ронье deeply inhaled fragrant air, thinking that they will go out more now.
 
@@ -150,7 +152,7 @@ Glancing at the profile of Тейза, she noticed that the area around her nost
 
 "............ Why is the imperial territory so unpopular?"
 
-Then Тейза coughed a little и pointed to the other side of Lake Norkia.
+Then Тейза coughed a little и pointed to the other side of озеро Норкия.
 
 "There, can you see the house over there?"
 
@@ -158,7 +160,7 @@ Then Тейза coughed a little и pointed to the other side of Lake Norkia.
 
 Small nod.
 
-On the other side of the lake there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Норлангарт dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Империиs, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
+On the other side of the озеро there was a small forest, with a sharp pointed black roof protruding from the middle. A building of a castle size rather than a mansion was a villa which Императорs of Норлангарт dynasty used for generations as a lodging when visiting the territory outside of the imperial capital. Before the Rebellion of Four Империиs, they said, that nearly 20 guards и servants were stationed there, but at this time it was completely blocked, the entire site was surrounded by a chain bearing ‘Keep Out’ signs with no exception for anyone.
 
 "The Император's house? What's wrong with it?"
 
@@ -262,11 +264,11 @@ To which the dragons, apparently full of energy after eating plenty of fish, syn
 
 ***
 
-In order to move from the Восточной bank of Lake Norkia to the Западной bank where the sealed mansion stood, they had to make a considerable detour Северной or Южной.
+In order to move from the Восточной bank of озеро Норкия to the Западной bank where the sealed mansion stood, they had to make a considerable detour Северной or Южной.
 
-The Южной side of the lake appeared to be wetlands, so the two of them headed Северной. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Norkia lake it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
+The Южной side of the озеро appeared to be wetlands, so the two of them headed Северной. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Норкия озеро it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
 
-It took them more than ten minutes to reach the Северной end of the lake where there was a small river flowing into Lake Norkia и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Империи, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
+It took them more than ten minutes to reach the Северной end of the озеро where there was a small river flowing into озеро Норкия и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Империи, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
 
 When they were at the Академии Искусства Меча, Кирито и Юдзио told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Тейза pointed out that if they would have made a small boat и sailed down the river they could reach Центория without having any hardships —Кирито и his friend were both silent for a while и then said simultaneously "Я could not think of it".
 
@@ -373,7 +375,7 @@ Then Тейза’s grin faded away for a moment, but the expression immediately
 
 While thinking that she was tricked anyway, Ронье started walking with her back being pushed.
 
-Supposedly, it had been more than half a year since this whole forest has been sealed, but the ground under the trees was kept unexpectedly clean. Or it may be that weeds are less likely to grow due to the deprivation of Solus’ и Terraria’s blessings because of the tall old trees. The air that was so refreshing when they were on the hill on the other side of Lake Norkia seemed to be a bit stagnant.
+Supposedly, it had been more than half a year since this whole forest has been sealed, but the ground under the trees was kept unexpectedly clean. Or it may be that weeds are less likely to grow due to the deprivation of Solus’ и Terraria’s blessings because of the tall old trees. The air that was so refreshing when they were on the hill on the other side of озеро Норкия seemed to be a bit stagnant.
 
 While walking, Ронье turned around to see Цукигаке и Шимосаки, who were well ahead of two of them until the gate, but now were following. The young dragons sniffed the smell of the road with a slightly disgusted faces и shook the raised tails left и right.
 
@@ -387,7 +389,7 @@ As the war had come to an end, situations when Цукигаке or Шимоса�
 
 *Today's day out is in the first place because of the dragons, so if they are uneasy, it would be better to stop studying the mansion......* she thought, but Тейза would not stop her feet. Forced to turn back, she lined up next to the partner.
 
-*Come to think of it, the attitude of Тейза is a bit weird, Я feel she is not the usual her. Even when suggesting to investigate the mansion, although it was a joke, she was strangely stubborn, и in the first place it was happening all of a sudden. It's as if she had planned this investigation mission since it was decided to go out to Lake Norkia.......*
+*Come to think of it, the attitude of Тейза is a bit weird, Я feel she is not the usual her. Even when suggesting to investigate the mansion, although it was a joke, she was strangely stubborn, и in the first place it was happening all of a sudden. It's as if she had planned this investigation mission since it was decided to go out to озеро Норкия.......*
 
 "Hey……"
 
@@ -427,7 +429,7 @@ Because there was an emblem of the Норлангарт family on the iron gate 
 
 They walked the path stretching through the dead grass, between the flower beds, и stopped in front of the large door.
 
-Ронье looked back, but the blue water surface of Lake Norkia obscured by trees could not be seen at all. When a thought that there was no meaning to build a lakeside house in such location came to her, there was a metal sound coming from behind. Тейза was grasping handles of both the left и the right doors with both hands trying to push them down.
+Ронье looked back, but the blue water surface of озеро Норкия obscured by trees could not be seen at all. When a thought that there was no meaning to build a lakeside house in such location came to her, there was a metal sound coming from behind. Тейза was grasping handles of both the left и the right doors with both hands trying to push them down.
 
 "…… does not open?"
 
@@ -940,7 +942,7 @@ A bursting with flames decoration hanging on the jet-black wall, distant sounds 
 
 *But, this is impossible. Император Крюгер certainly died by the throne in the throne hall of the Imperial Palace, just about a year ago.*
 
-Ронье и Тейза were engaged in the seesaw Меч fight directly with the Император, who attacked in the High Norkia style, which boasts the power of a blow, although the cooldown is also long, for more than five minutes. Then Дюсольберт, who came late, shoot the Император's right leg with a fire arrow from his Divine Object Conflagrant Flame Bow, so when his movement stopped, Ронье и the other one without missing a moment simultaneously executed their secret moves, deeply penetrating the Император's right и left sides of chest.
+Ронье и Тейза were engaged in the seesaw Меч fight directly with the Император, who attacked in the High Норкия style, which boasts the power of a blow, although the cooldown is also long, for more than five minutes. Then Дюсольберт, who came late, shoot the Император's right leg with a fire arrow from his Divine Object Conflagrant Flame Bow, so when his movement stopped, Ронье и the other one without missing a moment simultaneously executed their secret moves, deeply penetrating the Император's right и left sides of chest.
 
 There is no human being able to live with such wounds. The death of the Император was also confirmed by Дюсольберт, the body was taken to the Собора, и brought to cremation with the other two Императорs. Ронье certainly saw that the remnants of the Император became grains of divine power и melted away in the air.
 
@@ -1092,9 +1094,9 @@ That moment Император Крюгер has turned his sharp glance at her a
 
 Тейза replied instead of Ронье who could only silently nod because of this surprise attack, still holding the grid.
 
-"...... Today, we came to catch some fish in the lake to correct that child's fish dislike. Ронье's dragon is waiting in the Собора."
+"...... Today, we came to catch some fish in the озеро to correct that child's fish dislike. Ронье's dragon is waiting in the Собора."
 
-"Oh.... You girls do not know, but there are five kinds of fish living in Lake Norkia. Я allowed to fish four of them, but those who caught a forbidden golden trout quickly got into this prison."
+"Oh.... You girls do not know, but there are five kinds of fish living in озеро Норкия. Я allowed to fish four of them, but those who caught a forbidden golden trout quickly got into this prison."
 
 Тейза refuted to the Император who said that in a nostalgic tone.
 
@@ -1170,7 +1172,7 @@ When she thanked them again, there was also a quiet chirping "Ку-ру".
 
 "Цукигаке, Я beg you. Go along this aisle to the ground и get to the Северной gate of Центория somehow...... when guards-сан see you, they will take you to the Собора."
 
-It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Северной Центория, и it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ронье did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
+It was a difficult order for the young dragon only eight months old. озеро Норкия was ten kilolu away from the Северной Центория, и it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ронье did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
 
 But that moment, Цукигаке was the only hope remaining. It was probably impossible to break the grid without a Меч, и even if they do somehow it would certainly be noticed by the Император, и Шимосаки might be killed.
 
@@ -1183,10 +1185,13 @@ She retreated back from Ронье’s hands, flapped the wings twice, и then s
 Knelt on a hard stone, Ронье gripped both hands и prayed.
 
 ![Image](/Translate/Img/p205.jpg)
+-->
 
-## Footnotes:
+## Примечания:
 
-1. <a name="Prim1"></a>It is the default for Западной world that dragons fly. That’s why no translators of SAO Я ever read made an accent on it. However, in Japan, the dragon (竜, ryū) defaults to a prolonged Chinese dragon, which may not necessary fly at all. In these books all “dragons” of Рыцари Целостности, i.e. all dragons in Underworld — except, perhaps, for that legendary one depicted on the magic comb Асуна used — are “flying dragons” (飛竜, hiryū), which are more the traditional “euro-standard” dragons. Further Я will continue to use just word “dragon” referring to the dragons we all know.
+1. <a name="Prim1"></a>Для западного (в сравнении с Японией) мира является нормой, что драконы летают. Поэтому никто из переводчиков SAO, кого я когда-либо читал, не акцентировали на этом внимание. Однако в Японии, дракон (竜, рюу) по-умолчанию означает длинных китайских драконов, которым вообще не обязательно уметь летать. В этих книгах все “драконы” Рыцарей Целостности, т.е. вообще все драконы Подмирья — кроме, разве что, того легендарного, изображённого на волшебной рассчёске, которой пользовалась Асуна — это “летающие драконы” (飛竜, хирюу), которые соответствуют традиционным “евро-стандартным” драконам. Далее по тексту я продолжу использовать просто термин “дракон”, имея в виду тех драконов, которые нам привычны.
+
+<!--
 2. <a name="Prim2"></a>Тейза uses ансоку-ничи (安息日) which has a distinct meaning of Judaic Sabbath, but since it’s кандзи и not katakana, she probably doesn’t refer to the name of day itself, nor to a term (as Underworld people know nothing of other religions), but rather to the fact that it’s the last day of week when people rest.
 3. <a name="Prim3"></a>Я guess あっやしいなぁー can also mean that she doesn’t like the whole idea in the first place, и in fact it’s probably both.
 4. <a name="Prim4"></a>Yes Я am aware it’s still late February, several days after snow melted.
@@ -1194,3 +1199,4 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 6. <a name="Prim6"></a>The original says “lowered” but given both girls should be under 160 cm (you remember the 180 cm "giant", don't you?), you’ll have nightmares if you try imagining that.
 7. <a name="Prim7"></a>暁染, Color-of-the-dawn. Я wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Цукигаке is the only exception Я know), which would raise more questions about this never-heard-of-before dragon.
 8. <a name="Prim8"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.
+9. -->

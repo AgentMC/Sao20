@@ -263,7 +263,7 @@ After apologizing to the sheath in my mind, Ронье sharply breathed in.
 
 "Yaaaa!"
 
-With the increasingly loud screams, two people sharply swung down empty sheaths performing Norkia style secret move "Lightning slash", also known as Incrad style secret move "Vertical".
+With the increasingly loud screams, two people sharply swung down empty sheaths performing Норкия style secret move "Lightning slash", also known as Incrad style secret move "Vertical".
 
 It was probably an illusion that the sheath made of wood и leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid и crumbled down to pieces with a tremendous pulsing sound.
 

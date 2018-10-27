@@ -58,7 +58,7 @@ After a few tens of seconds, Shimosaki broke through the water surface, jumping 
 
 "Wow."
 
-In spite of his turning the face away from the water drops, Ronye noticed something glittering in Shimosaki's mouth and tried to look closer. It was a trout of a silver body with small red spots visible over it. It appeared small when it was swimming underwater, but when looking closer it seemed to be a twenty cen full-length.
+Despite turning the face away from the water drops, Ronye noticed something glittering in Shimosaki's mouth and tried to look closer. It was a trout of a silver body with small red spots visible over it. It appeared small when it was swimming underwater, but when looking closer it seemed to be a twenty cen full-length.
 
 Tsukigake approached and moved his nose to the caught trout being kept in Shimosaki's mouth and carefully smelled it. But shortly afterwards Shimosaki turned his head upwards and swallowed the fish.
 

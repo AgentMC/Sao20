@@ -47,7 +47,7 @@ A deep forest spread ahead. The yellow sunlight obstructed by the branches и le
 
 *The big city of humans which Master Ронье calls "Центория" is in the Южной. This forest is the place to come for the first time и Я do not know the distance well as Я got here on a carriage from the city, but Я have to arrive as soon as possible.*
 
-*Fortunately, Я ate plenty of fish from the lake a few hours ago so my stomach is not empty yet. Я did not like the smell of the dead fish given in the stables for the past few months, и Я did not eat much of it, but it was fun to catch the fish swimming in the water by myself и it was very tasty because it was fresh. Я feel that remembering the taste will only make me hungry, so better to forget about fish и start running on the forest sole with all four legs.*
+*Fortunately, Я ate plenty of fish from the озеро a few hours ago so my stomach is not empty yet. Я did not like the smell of the dead fish given in the stables for the past few months, и Я did not eat much of it, but it was fun to catch the fish swimming in the water by myself и it was very tasty because it was fresh. Я feel that remembering the taste will only make me hungry, so better to forget about fish и start running on the forest sole with all four legs.*
 
 Unlike the garden of "Собора" where Цукигаке lived or the grassland around the lake, the damp sole of the forest was slippery и stones и roots hidden under the fallen leaves made it difficult to run. Every time tipping over an obstacle, she felt и roll, but still kept going Южной on и on.
 
@@ -63,7 +63,7 @@ After getting around the badly smelling pit и running for a few more minutes it
 
 Grassland surrounding the forest had been dyed in bright yellow, illuminated in the light of sun bending to the sunset. After running for a while sucking cold but fresh air, she stopped at the top of the hill.
 
-Looking around, she saw a white wall across the meadow on the right side, a glittering water surface of the lake on the left side, и a small human town in the front. *It is farther than Я thought, but if Я run hard, Я will be able to arrive sooner or later. No, “sooner or later” won’t work. At this very moment, my Master и her best friend are trapped in the dungeon, и Шимосаки is taken to the mansion, и he must have been scared so much.*
+Looking around, she saw a white wall across the meadow on the right side, a glittering water surface of the озеро on the left side, и a small human town in the front. *It is farther than Я thought, but if Я run hard, Я will be able to arrive sooner or later. No, “sooner or later” won’t work. At this very moment, my Master и her best friend are trapped in the dungeon, и Шимосаки is taken to the mansion, и he must have been scared so much.*
 
 "Кю-ру-ру!"
 
@@ -73,7 +73,7 @@ Although it was somewhat better than in the forest, the grass around here was al
 
 After about five minutes passed, this time she felt clear hunger. Even a child of a dragon, to maintain Life level, requires much more food than dogs и foxes of the same size.
 
-A large lake was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made her slightly shift the track to the left, but Цукигаке shook her head as she ran и returned to the previous direction. *Я will not die because of being hungry, but my Master’s life is in danger.*
+A large озеро was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made her slightly shift the track to the left, but Цукигаке shook her head as she ran и returned to the previous direction. *Я will not die because of being hungry, but my Master’s life is in danger.*
 
 If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the Южной side of the grassland surrounding the lake. If it's indeed there, it will be possible to find как минимум one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
 
@@ -123,7 +123,7 @@ Although it was not possible to put the intention into a verbal form, the rat qu
 
 While Цукигаке spoke, a small dark object floated on the water surface between the two animals. Rat cried "Ki!!!", jumped in the water, и lifted it with both hands.
 
-From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to the lake from the trees growing on its banks would flow over time to wetlands. Rat immediately brought the precious thing to the mouth with both hands, but even though it had long front teeth, there was no crunchy sound but only sound of damp и moist. *Meanwhile, as Я stand immersed in water, my Life runs out.*
+From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to the озеро from the trees growing on its banks would flow over time to wetlands. Rat immediately brought the precious thing to the mouth with both hands, but even though it had long front teeth, there was no crunchy sound but only sound of damp и moist. *Meanwhile, as Я stand immersed in water, my Life runs out.*
 
 "Ку-ру-ру-ру, Кю-ру!!!"
 
