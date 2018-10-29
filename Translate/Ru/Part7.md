@@ -81,7 +81,7 @@ Memories of childhood reviving vividly made her to forget recent sorrow, и Ас
 
 "Where is the озеро that they two went to?"
 
-"Err, well, Я guess it is not in the Северной Империи Император's domain. Looks like the ice hasn’t melted yet...... although............"
+"Err, well, Я guess it is not in the Северной Империи доминион Императора. Looks like the ice hasn’t melted yet...... although............"
 
 As Кирито's word slowed down и broke off, Асуна tilted her head и looked at him.
 
@@ -221,7 +221,7 @@ Although he asked for permission, Фанатио и Дюсольберт who wer
 
 "Where else do you plan to go to?"
 
-"Actually, the apprentice knights Ронье и Тейза have left for the озеро in the Северной Империи Император's domain. Something about teaching dragons to catch fish......."
+"Actually, the apprentice knights Ронье и Тейза have left for the озеро in the Северной Империи доминион Императора. Something about teaching dragons to catch fish......."
 
 "Ah, is it a correction of unbalanced diet?"
 

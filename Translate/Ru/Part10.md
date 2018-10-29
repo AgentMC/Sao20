@@ -41,7 +41,7 @@ That's fine, but no matter how few people were in the Собора’s ninety-fi
 
 when Ронье Unintentionally said so, Тейза cheerfully laughed. Цукигаке и Шимосаки who were eating dried fish on the floor also chirped "Ку-ру-ру”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
 
-Three days have passed since the incident in Император's domain, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four Императорs was planned to be held extensively in the whole city of Центория, и the Собора was a little more crowded than usual.
+Three days have passed since the incident in доминион Императора, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four Императорs was planned to be held extensively in the whole city of Центория, и the Собора was a little more crowded than usual.
 
 But for the Union Council people, it was totally not a time to slack off.
 
