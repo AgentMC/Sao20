@@ -262,224 +262,224 @@ _── Но я не думаю, что она есть_<sup><a href="#Prim3">3<
 
 ***
 
+Для того чтобы перебраться с восточного берега озера Норкия на западный берег, где находилось опечатанный особняк, было необходимо сделать немаленький крюк с северной или южной стороны.
+
+На южной стороне озера, судя по всему, находились болота, так что их группа направилась на север. Идти было несложно, поскольку землю устилала засохшая трава<sup><a href="#Prim4">4</a></sup>. Однако, чтобы обойти обширное озеро Норкия, необходимо было пройти три килолу и они беспокоились, не слишком ли это сложное испытание для слабых маленьких драконов, но конечно, те были детёнышами существ, обладавшими величайшим значением Жизни в Мире Людей, так что они оба радостно топали позади двух людей.
+
+У них ушло больше десяти минут на то, чтобы достигнуть северной оконечности озера, где в озеро Норкия втекала маленькая речка, и стоял крепкий каменный мост. Эта речка была рукавом реки Рул, истоки которой были в северном пограничье Северной Империи Норлангарт, Горной Гряде-на-Грани, а основной поток нёс свои воды вдоль столбовой дороги в центральную столицу, наполняя каналы, протянутые по городу, питьевой водой.
+
+Когда они были в Академии Искусства Меча, Кирито и Юдзио говорили, что исток реки Рул был расположен в непосредственной близости от деревни Рулид, где они жили. Когда Тейза заметила, что если бы они сделали небольшую лодку и поплыли вниз по реке, то смогли бы достичь Центорию без каких-либо трудностей — Кирито и его друг какое-то время молчали, а потом одновременно произнесли "Да как-то в голову не пришло".
+
+По факту, на пути им бы встретились мели, стремнины и пороги, и добраться было бы непросто, но Кирито и Юдзио всё равно сказали, что если они когда-нибудь вернутся в Рулид, то попробуют этот способ на обратном пути. Тейза и Ронье мечтали, что если этот день когда-нибудь настанет, они присоединятся к тем двоим, но это путешествие больше не было возможным.
+
+Они спрыгнули с лужайки, немного приподнятой над поверхностью дороги, на мостовую и перешли мост.
+
+От этого места до особняка вела единственная дорога. После того, как они какое-то время шли по ней, справа открылось обширное поле. Посаженные ровными рядами кусты были виноградом, выращиваемым на вино.
+
+Отец Ронье, аристократ низкого класса, как-то сказал, что если обратить все виноградники на частных территориях Императора и высших аристократов в пшеничные поля, это бы покрыло годовое потребление хлеба во всей Северной Центории, и отпала бы необходимость заботы об импорте хлеба из Северного региона. Гигантские размеры виноградников немедленно убедили её, что это вовсе не было преувеличением.
+
+Более того, вино, что подносили Императору, делалось только из лучшего винограда среди этих кустов, так что вне зависимости от количества кустов, вино с этого виноградника не достигало ртов широких масс ещё и потому что его делалось совсем немного.
+
+Хана рассказывала, что когда она была личным поваром Первосвященника Администратор, сама Первосвященник не сильно заботилась о роскошной еде и напитках, так что вино, которое доставлялось из лавки со спиртным в центральной столице — конечно, оно тоже было высшего качества ─ её вполне устраивало; хотя, пожалуй, Император Норлангарт был в тайне горд, что он пил вино выше качеством, чем Первосвященник.
+
+"...... Что будет с этим виноградником...?"
+
+— тихо пробормотала идущая рядом с ней Тейза, и Ронье немного наклонила голову вбок.
+
+"Похоже, в плане переиспользования территорий пока не определено, оставить ли виноградники или де превратить их в пшеничные поля. Некоторые из бывших обитателей частных территорий, кто раньше ухаживал за этими растениями, хотели ы вернуться назад и продолжить растить виноград......."
+
+"Но такую огромную территорию не получится поддерживать без большого количества рабочей силы....... Я слышала, что подобные проблемы коснулись и бывших частных территорий в остальных Империях."
+
+"Язен-сан, принадлежавший территории Императора Саутакройт, интересно, чего он хотел..."
+
+Тейза ответила через какое-то время после того как Ронье задумалась об этом.
+
+"...... В видении, что открылось Асуне-сама сквозь искусство Отражения Прошлого, Язен-сан говорил 『Я больше не арендую надел у Императора』, так что обратно возвращаться он не собирался."
+
+"Это... это верно. Хотелось бы чтобы он смог только что обретённой работой......."
+
+Какое-то время они молчали, шагая вперёд под мягкими лучами солнца.
+
+Дующий сквозь безлюдные виноградники ветер теребил перья маленьких драконов, топавших немного впереди. Изогнутые лозы стояли голыми из-за холодов, но жёлто-зелёные молодые листки должны были уже скоро яркими пятнами покрыть все ветви. Если виноградники решат оставить, к этому времени кому-то нужно будет начать заботиться о тысячах кустов.
+
+"...... Знаешь, Тейза, если людей для работы на поле будет не хватать......."
+
+Ронье проговорила это неосознанно, но на середине фразы прервалась. Кажущейся заинтересовавшейся Тейзе она сказала "Нет, ничего", но это была ложь.
+
+*То просто нужно переселить гоблинские племена, вынужденные селиться в отдалённых уголках Тёмной Территории и пусть они и работают в полях —* вот как она собиралась продолжить.
+
+*Но тогда, гоблины всего лишь заменять крепостных, которым было так тяжело жить на частных территориях. Само собой, никто не будет их заставлять работать, но им придётся, поскольку доход будет обусловлен их трудом; так что когда дойдёт до "впрягаться и пахать", я думаю, к гоблинам будут относиться не лучше, чем к рабам.  
+── Нет, всё не совсем так.*
+
+Большинству людей, живших в Мире Людей, приходилось выбирать священный долг уже в возрасте 10 лет и начинать работать. Поступить в старшую школу, как сделали Ронье и Тейза, было скорее исключением, и даже для этих двух, не будь они учениками Рыцарей Целостности, у них не осталось бы иного выбора кроме как присоединиться к Армии Защиты Мира Людей или выйти замуж за кого-то, кого выберут их родители.
+
+*Я бы не смогла сама выбрать своё будущее, прямо как крепостные частных территорий, тогда, в сущности, а есть ли между нами разница?*
+
+Сомнение, никогда доселе её не посещавшее, вихрем закружилось в голове, и Ронье почти замерла на месте. Но внезапно, идущая рядом Тейза воскликнула:
+
+"А, вон, ворота уже видны!"
+
+Моргнув и подняв взгляд, она увидела красивые ворота из чёрной стали, возвышавшиеся в конце дороги, куда и указывала Тейза. По другую сторону ворот стояли ровными рядами величественные старые деревья, и дорога терялась во тьме, куда не достигал свет Солуса.
+
+Быстро пройдя последнюю сотню метров, пара остановилась перед воротами.
+
+В центре ворот, состоящих из стальных перекладин, была большущая эмблема Северной Империи Норлангарт, изображавшая лилию и ястреба. Под ней было прикреплено уведомление с нанесённым изображением белого древа, бывшего эмблемой Церкви Аксиом, и предложением, сообщавшем, что 【Проход без разрешения от Объединённого Совета Мира Людей запрещён】 написанным чёрными буквами.
+
+В дополнение, врата были надёжно опечатаны тяжёлой цепью, тянувшейся в обе стороны, и судя по всему окружавшей весь лес, совсем немалого размера. Конечно, можно было перерубить цепь или просто перепрыгнуть с любой стороны от ворот, но не было ни одного в Мире Людей, кто решился бы снять печать, увидев подобное предупреждение.
+
+Следуя за двумя людьми, Цукигаке и Шимосаки вместе изучили внушительную цепь, понюхали её и фыркнули.
+
+Тем временем, их хозяева переглянулись, и Тейза сказала:
+
+"...... Мы же члены Объединённого Совета Мира Людей, правильно?"
+
+"...... Ну а что — мы зря что ли каждый день на собраниях сидим?"
+
+— ответила Ронье, хотя будет верным заметить что она на собраниях была скорее зрителем чем участником. Однако, изредка ─ очень изредка — её мнение спрашивали, так что она и не была совсем уж человеком со стороны.
+
+Тейза, сглотнув, кивнула, затем внезапно сделав строгое лицо, приложила правый кулак к груди, а левую руку — на рукоять меча.
+
+"Ученик Рыцаря Целостности, Ронье Арабель! Именем Объединённого Совета Мира Людей, запрашиваю право прохода через эти ворота!"
+
+Вторая на мгновение замерла в немом изумлении, но смогла каким-то образом ответить "Д-да" на рыцарский салют, вернув такой же. Тейза опустила руки вниз и сказала "Теперь ты", исключая последний шанс на то чтобы развернуться и уйти.
+
+Тем же образом разрешение было получено и для молодых драконов, и они все вместе отошли около десяти мелов направо от дороги и пролезли под висящей цепью, поддерживаемой тонкими металлическими столбами.
+
+Воздух сразу же стал словно бы холоднее, и почувствовав это, они втянули шеи. Хотя они и успокаивали себя тем, что это просто тень от деревьев, но казалось, что в воздухе висела какая-то необъяснимая тяжесть.
+
+Пройдя под мшистыми деревьями и вернувшись на мощёную дорогу, Ронье уточнила цель этого неофициального визита у своей напарницы:
+
+"Эй Тейза, мы сюда пришли, чтобы расследовать слухи о призраках... верно?"
+
+"Точняк."
+
+"Это значит, мы можем войти в особняк?"
+
+"Точняк." <!--что играет: THISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUETHISCANNOTCONTINUE-->
+
+Дважды кивнув, Тейза зловредно ухмыльнулась:
+
+"Нуууу-ка, неужели же Ронье боится призраков?"
+
+Конечно, та не могла так просто взять и признать. Отрывки страшных историй из её детства готовы были всплыть в голове, но сделав серьёзное лицо, она ответила:
+
+"Для этого нет ни одной причины... к тому же, в наши дни призраков уже не осталось."
+
+На мгновение ухмылка сошла с лица Тейзы, но выражение тут же вернулось и она похлопала спину Ронье.
+
+"Раз так, то я позволю тебе войти в особняк первой! Вперёд, давай-давай!"
+
+"Я...... я поняла..."
+
+Понимая, что её всё равно обдурили, Ронье пошла вперёд, подталкиваемая в спину.
+
+Должно было пройти уже больше полугода с тех пор, как этот лес был опечатан, но земля под деревьями была неожиданно чистой. Возможно, это потому что сорняки не росли из-за недостатка благословения Солуса и Террарии из-за высоких старых деревьев. В воздухе, столь свежем, когда они сидели на холме по другую сторону озера Норкия, чувствовалось разложение.
+
+Идя вперёд, Ронье оглянулась на Цукигаке и Шимосаки, которые до ворот были далеко впереди их пары, но сейчас следовали сзади. Молодые драконы втягивали запах дороги с мордами, на которых читалось отвращение, и махали в стороны поднятыми хвостами. <!--Lewan o'het wai te lun-la-no e, kwai le ha'ai ah-roi in da fethenon he fe.-->
+
+"Что такое, Цукигаке?"
+
+На этот вопрос, шедшая позади дракониха ответил тихим "Ку-ру-ру......". Выглядело так, словно ей совсем не хотелось идти дальше, но остановиться она не могла.
+
+Дракон крепко связан с рыцарем и иной раз может попытаться защитить своего владельца ценой своей жизни. Да и Ронье своими глазами видела, как незадолго до конца Войны с Внешним Миром, чтобы защитить рыцаря Ренри от бесчисленных копий, брошенных красными рыцарями из Реального Мира, его любимый дракон Казенуи принял удар этих копий на себя.
+
+Война завершилась, и была надежда, что ситуация, в которой Цукигаке или Шимосаки, уже взрослым, придётся сделать подобное, уже не настанет. Всё же, Ронье ощутила, как у неё в груди что-то сжалось.
+
+*Сегодняшнее приключение, прежде всего, ради самих драконов, так что если им неуютно, было бы лучше бросить эту идею об изучении особняка......* подумалось ей, но Тейза не останавливалась. Насильно развернутая, она пошла рядом с напарницей.
+
+*Если подумать, поведение Тейзы несколько странное, я чувствую, что она сама не своя. Даже когда она предлагала исследовать особняк, хоть и в шутку, она была странно настойчива, и к тому же это всё происходит так внезапно. Как будто она планировала это расследование с того самого момента, как мы решили выбраться на озеро Норкия.......*
+
+"Хэй……"<!--Kal is dis mal? Ehha nis dei? Uldan ni elza kænda. Kal is dis mal? Ehha nis dei? Ikkrai de koßi haii...-->
+
+В тот момент, когда она попыталась заговорить со своей лучшей подругой, из центральной столицы, лежавшей далеко на юге, до них донёсся звук двухчасового колокола. Тейза тут же обернулась и сказала:
+
+"Скоро стемнеет, если не поторопиться. Побежали!"
+
+"У…угу."
+
+Неизбежно кивнув, Ронье погналась вслед за побежавшей Тейзой. Маленькие драконы тоже захлопали крыльями и побежали за ней, невысоко отскакивая от земли. Даже детёныши дракона могут устать и их Жизнь начнёт падать , так что им придётся съесть сухих фруктов, которые они захватили в повозку, когда настанет закат.
+
+Лес, окружавший особняк, снаружи не казался таким уж широким, но путь по извилистой дороге занял у них какое-то время. Прошло уже больше десяти минут с тех пор, когда они услыхали двухчасовой колокол, когда Ронье, наконец, с облегчением видела впереди свет.
+
+Посреди леса, в центре округлой прогалины около 100 мел шириной, стоял искомый особняк.
+
+Он был выстроен из серого камня, крутая крыша была чёрной. У него навскидку было три этажа, но поскольку окон было минимум, он выглядел скорее крепостью, нежели жилым домом. В переднем дворе виднелись едва различимые остатки цветочных клумб, но ощетинившаяся сухой травой земля порождала лишь печаль.
+
+"... И это и есть вилла Императора, правда что-ли...?"
+
+Когда Ронье пробормотала это, Тейза ноже немного наклонила голову вбок.
+
+"Агась, если...... если это так и есть, то даже дом какого-нибудь великого аристократа будет больше....... а, стоп, вон там."
+
+Она подняла правую руку и указала на большую входную дверь.
+
+"Там на двери герб с лилией и ястребом, который мог использовать только Император."
+
+"Угу……"
+
+Поскольку и на металлических воротах на входе в лес, и на двери особняка был фамильный герб семьи Норлангарт, не было никаких сомнений в том, что это вилла Императора.
+
+"... Пошли..."
+
+— прошептала Тейза и двинулась вперёд. За ней, понурив голову, потопал Шимосаки.
+
+Ронье взглянула на Цукигаке у своих ног и спросила: "Ты в порядке? Не устала?", на что маленькая дракониха ответила "Само собой" ну или что-то вроде того, поскольку она расправила крылья и коротко чирикнула.
+
+Они прошли по мёртвой траве, устилавшей дорожку, лежащую между цветочными клумбами, и остановились перед внушительной дверью.
+
+Ронье посмотрела назад, но голубую поверхность озера Норкия, закрытую деревьями, совсем не было видно. Когда её посетила мысль, что строить дом на озере в таком месте не имело ни малейшего смысла, позади раздался металлический звук. Тейза сжала ручки обеих створок двери, пытаясь повернуть их вниз.
+
+"…… не открывается?"
+
+В ответ на вопрос Ронье, её подруга мягко качнула рыжими волосами.
+
+"Да, судя по звуку, закрыто."
+
+"Ну, если задуматься, то это вполне ожидаемо... разве это не значит, что в особняке никого нет?"
+
+Ронье сказала это, надеясь убедить Тейзу, ног её подруга не отпускала ручки.
+
+"Но если это призрак, он сможет пройти даже если закрыто, разве нет?"
+
+"Ээээ...?"
+
+— нахмурилась на неожиданные возражения. Конечно, призраки из старых сказок обычно не обладали твёрдым телом и вроде были и  те, что проходили сквозь стены и запертые двери.
+
+"...... пусть так, мы не можем так просто это оставить..."
+
+Пробормотав это, Тейза закрыла глаза, всё ещё держа ручки, и испустила странное мычание.
+
+"... Н... н-м-м-м-м...."
+
+"Ч-что ты делаешь?"
+
+"М-м-м-м-м......!"
+
+"Х-хватит, Тейза, перестань!"
+
+Она наконец заметила что было что-то не так с чтем, как её подруга держалась за ручки.
+
+*Тейза должно быть пытается имитировать "Отмычку разума", которую Кирито вчера показал нам в таверне в Южной Центории.*
+
+"Хэй...... у нас даже "Руку разума" не получается пока использовать, и тем более у нас не получится что-то настолько сложное как взломать замок!"
+
+— заметила поражённая Ронье, но профиль Тейзы выглядел всё также решительно ─ возможно даже отчаянно; заметив это, она втянула воздух.
+
+И пару раз поколебавшись, тихо спросила:
+
+"....... Тейза, зачем, так стараться...... Что такого важного в изучении слухов о призраках...?"
+
+Тогда Тейза медленно выдохнула и отпустила дверные ручки.
+
+Однако, она продолжила опираться на них, и прошло немало времени, прежде чем её слабый голос вернул вопрос:
+
+"...... Ронье, эти призраки, как ты думаешь, это может быть правдой?"
+
+"Чё…………"
+
 ## Продолжение следует
 
-<!--In order to move from the Восточной bank of озеро Норкия to the Западной bank where the sealed mansion stood, they had to make a considerable detour Северной or Южной.
-
-The Южной side of the озеро appeared to be wetlands, so the two of them headed Северной. It was easy to walk because parched grassland<sup><a href="#Prim4">4</a></sup> continued there. However, in order to go around the vast Норкия озеро it was necessary to walk three kilometers и they were worried if it is too much for the physical strength of the young dragons, but surely, they were cubs of a creature being able to boast with the greatest value of life in Мира Людей, so both cheerfully walked after two people.
-
-It took them more than ten minutes to reach the Северной end of the озеро where there was a small river flowing into озеро Норкия и a solid stone bridge. This river was a branch of the Rul river, which originated in the Северной extremum of the Норлангарт Северной Империи, the Mountain Range at the Edge, и its main stream flew along the high road to the central capital, filling the waterways stretched in the city with clean water.
-
-When they were at the Академии Искусства Меча, Кирито и Юдзио told that the source of the Rul river is located in close proximity to the village of Rulid where they were living. When Тейза pointed out that if they would have made a small boat и sailed down the river they could reach Центория without having any hardships —Кирито и his friend were both silent for a while и then said simultaneously "Я could not think of it".
-
-In reality there were many shallows, torrents и waterfalls on the way и it would not be easy, but Кирито и Юдзио still said that when they’d come back to Rulid someday, they will try it on the way back to the capital. Тейза и Ронье used to dream that should such a time come, they would join the two people, but that adventure was no longer possible.
-
-They jumped down from a slightly shifted grassland to a fine cobblestone road и crossed the bridge.
-
-From there to the mansion there was a single road. After they walked for some time, a vast field came up on the right. Shrubs lined up in order were grapes grown as the source of wine.
-
-Ронье's father, a lower-class aristocrat, once said that if you turn all the vineyards in private territories of the Император и the Great Aristocrats into wheat fields, it would cover all the wheat consumption in the Северной Центория within a year и they won’t have to bother about the bread from the Северной region. The terrible size of the vineyard immediately convinced her that it was not an exaggeration at all.
-
-Moreover, the wine the Император drank was made only from the best grapes from these grape shrubs, so regardless such a vast number of shrubs, vine made on this vineyard did not reach the mouth of the general public because they brew only a small amount.
-
-Hana said that when she was the exclusive cook of the Первосвященник Администратор, the Первосвященник did not care much about the luxury of drinking и eating, so the vine delivered from a liquor store in the central city — of course it must have been top quality as well ─ was fine for her; but, perhaps, Император Норлангарт was secretly proud that he was drinking superior wine than the Первосвященник.
-
-"...... What will happen to this vineyard...?"
-
-Тейза walking next to her muttered this quietly, so Ронье slightly tilted her neck.
-
-"It seems that it is not decided yet even in the territory reuse plan whether to leave vineyards or turn into wheat fields. Some of the former private territory people who have taken care of these plants until now want to go back here и continue making grapes......."
-
-"But, if you have such an area, you cannot maintain it without considerable manpower....... Я heard that similar problems are occurring in the former imperial territories of other Империиs."
-
-"Язен-сан, who was in the territory of Император Южнойacroith, Я wonder which way he wanted..."
-
-Тейза replied after a short time after Ронье doubted.
-
-"...... In the vision that Асуна-сама saw through the Past Reflection art, Язен-сан said that he was『no longer an active tenant of the Император’s domain』, so he did not intend to go back."
-
-"That... that's right. Я wish he could enjoy a new career he had just found......."
-
-They kept silent for a while, walking under soft sunshine.
-
-The wind flowing though the unmanned vineyards shook feathers of the young dragons who were walking a little way ahead. Twisting grapevines stood leafless due to the cold, but yellow-green young leaves will soon bloom vividly throughout every branch. If they keep vineyards, by that time someone has to begin taking care for thousands of grapevines.
-
-"...... You know, Тейза, if there are not enough people to work in the field......."
-
-Ронье muttered this unconsciously but closed her mouth halfway. To Тейза who seemed to be curios, she said "No, nothing", which wasn’t truth.
-
-*In fact, you should migrate гоблин tribes who are forced to live in remote areas of the Тёмной Территории и have them to work in the fields —* that’s what she wanted to continue with.
-
-*But then, we will have the гоблинов replacing the serfs once forced to live a hard life in private territories. Of course, nobody is going to force them to work, but they will have to as the income will be the result of their labor; so, when it comes to "get inside и get to work", Я think it means the гоблинов will be treated almost as slaves.  
-── No, Я can’t say that.*
-
-The majority of people living in the Мира Людей was forced to decide on the Sacred Task in the age of just ten years и start to work. It was rather an exception for children to enter high school like Ронье и Тейза did, и even for those two people, if they have not been учениками Рыцарей Целостностиs, they should have had no choice but to either join the Мира Людей Defense Army or to marry someone their parents decide.
-
-*Я could not choose the future on my own, just like private territories serfs, so, in the essence, is there any difference between us?*
-
-The doubt that had never occurred to her before swirled in her head, и Ронье almost froze in her steps. But suddenly, Тейза next to her exclaimed:
-
-"Ah, there, the gate can be seen!"
-
-She blinked и raised the face to see a beautiful black steel-made gate rising in the end of the road, where Тейза pointed to. On the other side of the gate there were magnificent old trees standing in lines, и the road continued into the darkness where the light of Solus did not reach.
-
-After quickly walking the final hundred mels, the two stopped in front of the gate.
-
-In the center of the gate consisting of thin steel bars, there was the huge emblem of the Норлангарт Северной Империи, depicting a lily и a hawk. Beneath, there was a sign attached bearing a white tree, being an emblem of the Церковь Аксиом, и a sentence saying 【No trespassing without permission of the Объединённого Совета Мира Людей】 written in black.
-
-In addition, the gates were severely blocked with a sturdy chain, и the chain stretched to the left и right, it seems it surrounded the whole forest which was not small at all. Of course, it was possible to cut the chain or jump over anywhere around the gate, but there was no one in Мира Людей able to try to break the blockade after looking at such a sign.
-
-Following the two people, Цукигаке и Шимосаки looked up at the exquisite chain, snuffed it и snorted at the same time.
-
-Meanwhile, their owners exchanged looks и Тейза said:
-
-"...... We are the members of the Объединённого Совета Мира Людей, right?"
-
-"...... Every day we attend those meetings, is it not?"
-
-Ронье replied this way but it should be mentioned that she used to onlook rather than attend the meeting. However, sometimes ─ sometimes she was asked for remarks, so she was not a complete outsider either.
-
-Тейза nodded with gulp, then suddenly made a stern face и put the right fist on her chest и the left hand on the handle of the Меч.
-
-"учениками Рыцарей Целостности, Ронье Arabel! In the name of Объединённого Совета Мира Людей, requesting the passage through this gate!"
-
-The other one for a moment froze in a mute amazement, but somehow replied "Y-Yes" to a knight’s salute returning the same. Тейза took down her hands и said "Now, you too", eliminating the last resort to go back.
-
-Similarly, the young dragons got permissions as well, и they all walked about ten mel to the right of the road и passed under the chain supported by thin iron poles.
-
-As soon as they felt the air getting cold, they shrunk their necks. They would keep thinking that they just entered the shade, but it seemed that some unexplainable heaviness was contained in the air.
-
-After they walked under the mossy trees и returned to the cobblestone road, Ронье confirmed the purpose of this unofficial mission with her partner.
-
-"Hey Тейза, we came here to investigate ghost rumors... is this correct?"
-
-"That's right."
-
-"This means, we can go into the mansion?"
-
-"That's right."
-
-After nodding twice in a row, Тейза gave a mischievous grin:
-
-"Weeeell, could it be that Ронье is afraid of ghosts?"
-
-Of course, she couldn’t admit it there. The memories of the scary stories heard during childhood were likely to be revived, but she denied with a sturdy face:
-
-"There’s no reason for that... besides, there are no ghosts in the present age."
-
-Then Тейза’s grin faded away for a moment, but the expression immediately returned и she tapped Ронье's back.
-
-"If so, Я let you go into the mansion first! Yup, go, go!"
-
-"I...... Я understood..."
-
-While thinking that she was tricked anyway, Ронье started walking with her back being pushed.
-
-Supposedly, it had been more than half a year since this whole forest has been sealed, but the ground under the trees was kept unexpectedly clean. Or it may be that weeds are less likely to grow due to the deprivation of Solus’ и Terraria’s blessings because of the tall old trees. The air that was so refreshing when they were on the hill on the other side of озеро Норкия seemed to be a bit stagnant.
-
-While walking, Ронье turned around to see Цукигаке и Шимосаки, who were well ahead of two of them until the gate, but now were following. The young dragons sniffed the smell of the road with a slightly disgusted faces и shook the raised tails left и right.
-
-"What's wrong, Цукигаке?"
-
-When she said it, the dragon following behind responded with a quiet "Kururu......". It looked like she is quite reluctant to proceed, but she wouldn’t stop.
-
-A dragon is tied with a strong bond to a knight и sometimes tries to defend the owner by sacrificing it’s life. In fact, Ронье saw, just before the end of the Войны с Внешним Миром, in order to protect the knight Ренри from countless spears thrown by real world red knights, his beloved dragon Казенуи received those spears by itself.
-
-As the war had come to an end, situations when Цукигаке or Шимосаки, already grown-ups, must do such a thing will hopefully never come. Still, Ронье was hit by a sense that something tightened in her chest for a moment.
-
-*Today's day out is in the first place because of the dragons, so if they are uneasy, it would be better to stop studying the mansion......* she thought, but Тейза would not stop her feet. Forced to turn back, she lined up next to the partner.
-
-*Come to think of it, the attitude of Тейза is a bit weird, Я feel she is not the usual her. Even when suggesting to investigate the mansion, although it was a joke, she was strangely stubborn, и in the first place it was happening all of a sudden. It's as if she had planned this investigation mission since it was decided to go out to озеро Норкия.......*
-
-"Hey……"
-
-The moment she tried to talk to her best friend, the sound of the 2 o'clock bell far in the Южной in the central capital was heard. Тейза quickly turned the face to her и said:
-
-"It will be dark if we don’t hurry. Let’s run!"
-
-"U…uhu."
-
-Inevitably nodding, Ронье chased after Тейза who began running. Young dragons also fluttered small wings и followed bouncing off the ground. Even a child of a flying dragon can get tired и it’s Life then starts to decrease the weather, so they’ll have to eat dried fruits brought from the carriage by the time the dawn comes.
-
-The forest surrounding the mansion did not seem to be wide from the outside, but the winding road took them some time. About ten minutes passed since they heard the two o'clock bell, и finally Ронье was relieved to see the light ahead.
-
-In the middle of the forest, a circular space of about 100 mel wide was cleared, и the problematic mansion was quietly standing in the middle.
-
-It was built of dark gray stone, и the steep roof was black. It seemed to have 3 floors, but because it has few windows, it looked more like a fortress than a mansion. The front yard had already almost disappeared flower beds, but they only gave cold feelings because only the withered grass was growing there.
-
-"... This is the villa of the Император, for real...?"
-
-When Ронье muttered, Тейза also tilted her head a little.
-
-"Yeah, this...... this being the case, even residence of some great aristocrat would seem bigger....... ah, wait, there."
-
-She lifted the right hand и pointed at the big front door.
-
-"There is a lily и a hawk crest on the door, which should be only used by the Император."
-
-"Yup……"
-
-Because there was an emblem of the Норлангарт family on the iron gate at the entrance to the forest и on the door of the manor, there was no doubt that this was the Император's villa.
-
-"... Let’s go..."
-
-Тейза whispered и started walking. Next, head down, followed Шимосаки.
-
-Ронье looked down at Цукигаке by her feet и asked: "Are you all right? Not tired?", to which the young dragon answered "Of course" or something similar since she spread her wings и gave a short chirp.
-
-They walked the path stretching through the dead grass, between the flower beds, и stopped in front of the large door.
-
-Ронье looked back, but the blue water surface of озеро Норкия obscured by trees could not be seen at all. When a thought that there was no meaning to build a lakeside house in such location came to her, there was a metal sound coming from behind. Тейза was grasping handles of both the left и the right doors with both hands trying to push them down.
-
-"…… does not open?"
-
-In response to Ронье's question, her friend gently rocked the red hair.
-
-"Yeah, it sounds locked."
-
-"Well, that would be expected if you think about it... doesn’t this mean that there is no one in the mansion?"
-
-Ронье said so hoping to convince Тейза, but her friend wouldn’t let go her hand of the handle.
-
-"But if it is a ghost, it can pass through even if it’s locked, can it not?"
-
-"Eeee...?"
-
-— frowning at unexpected objections. Certainly, ghosts of ancient tales usually had no real substance и it looks like there were some which could slip through walls и doors.
-
-"...... even so, we just can’t leave it like this..."
-
-Having muttered this, Тейза closed both eyes still gripping the handle, и gave a strange groan.
-
-"... N... n-mu-mu-mu-mu...."
-
-"W-what are you doing?"
-
-"Mu-mu-mu-mu-mu......!"
-
-"S-stop, Тейза, come on!"
-
-She finally noticed that something was wrong with the way her friend gripped the handle.
-
-*Тейза must be trying to imitate the "Pick of Mind" that Кирито showed us in the inn at Южной Центория yesterday.*
-
-"Hey...... we still cannot use even the "Arm of Mind", и of course we can’t do something like picking a lock!"
-
-Ронье pointed out completely amazed, but Тейза’s profile remained seriously resolute ─ perhaps even desperate rather than that; having noticed that she breathed in some air.
-
-After hesitating a couple of times, she quietly asked:
-
-"....... Тейза, why, so hard...... Is it so important to investigate the ghosts rumors...?"
-
-Then Тейза slowly breathed out и let go of the handles.
-
-Although, she remained leaning as she was before, и it wasn’t immediately that her faint voice returned a question:
-
-"...... Ронье, those ghosts, do you really think that is the case?"
-
-"Eh…………"
-
-After hearing the question, Ронье quickly closed her mouth, feeling like a silly child trying to laugh at something important. The profile of Тейза was as serious as ever, и there was nothing to be joking about. The reason was completely unknown, but Ронье knew, if her best friend is asking seriously, she had to think и answer properly.
+<!--After hearing the question, Ронье quickly closed her mouth, feeling like a silly child trying to laugh at something important. The profile of Тейза was as serious as ever, и there was nothing to be joking about. The reason was completely unknown, but Ронье knew, if her best friend is asking seriously, she had to think и answer properly.
 
 Ghost ── Ронье haven’t seen with her own eyes the soul of a human who died in hatred or sorrow wandering without reaching the divine world. Of course, same goes for her mother и grandmothers who let her hear old stories about ghosts.
 
@@ -1192,8 +1192,8 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 1. <a name="Prim1"></a>Для западного (в сравнении с Японией) мира является нормой, что драконы летают. Поэтому никто из переводчиков SAO, кого я когда-либо читал, не акцентировали на этом внимание. Однако в Японии, дракон (竜, рюу) по-умолчанию означает длинных китайских драконов, которым вообще не обязательно уметь летать. В этих книгах все “драконы” Рыцарей Целостности, т.е. вообще все драконы Подмирья — кроме, разве что, того легендарного, изображённого на волшебной расчёске, которой пользовалась Асуна — это “летающие драконы” (飛竜, хирюу), которые соответствуют традиционным “евро-стандартным” драконам. Далее по тексту я продолжу использовать просто термин “дракон”, имея в виду тех драконов, которые нам привычны.
 2. <a name="Prim2"></a>Тейза использует ансоку-ничи (安息日), у которого есть четкое значение - иудейский Шаббат, но поскольку это кандзи а не катакана, она видимо не имеет в виду конкретное название дня, равно как и сам термин (поскольку жители Подмирья не в курсе про остальные религии), а просто говорит о последнем дне недели, когда люди отдыхают.
 3. <a name="Prim3"></a>Я полагаю, あっやしいなぁー может также означать, что ей вообще вся эта идея не нравится, и по сути, вероятно, это и то, и другое.
-<!--4. <a name="Prim4"></a>Yes Я am aware it’s still late February, several days after snow melted.
-5. <a name="Prim5"></a>Ронье doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
+4. <a name="Prim4"></a>Да я в курсе что у них там поздний февраль, совсем недавно растаял снег.
+<!--5. <a name="Prim5"></a>Ронье doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
 6. <a name="Prim6"></a>The original says “lowered” but given both girls should be under 160 cm (you remember the 180 cm "giant", don't you?), you’ll have nightmares if you try imagining that.
 7. <a name="Prim7"></a>暁染, Color-of-the-dawn. Я wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Цукигаке is the only exception Я know), which would raise more questions about this never-heard-of-before dragon.
 8. <a name="Prim8"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.

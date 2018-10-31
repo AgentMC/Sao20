@@ -397,7 +397,7 @@ The moment she tried to talk to her best friend, the sound of the 2 o'clock bell
 
 "U…uhu."
 
-Inevitably nodding, Ronye chased after Tiese who began running. Young dragons also fluttered small wings and followed bouncing off the ground. Even a child of a flying dragon can get tired and it’s Life then starts to decrease the weather, so they’ll have to eat dried fruits brought from the carriage by the time the dawn comes.
+Inevitably nodding, Ronye chased after Tiese who began running. Young dragons also fluttered small wings and followed bouncing off the ground. Even a child of a dragon can get tired and it’s Life then starts to decrease, so they’ll have to eat dried fruits brought in the carriage by the time the dawn comes. <!--Oops, looks like I missed part of this paragraph while cleaning the translation :)-->
 
 The forest surrounding the mansion did not seem to be wide from the outside, but the winding road took them some time. About ten minutes passed since they heard the two o'clock bell, and finally Ronye was relieved to see the light ahead.
 
@@ -449,11 +449,11 @@ Ronye said so hoping to convince Tiese, but her friend wouldn’t let go her han
 
 Having muttered this, Tiese closed both eyes still gripping the handle, and gave a strange groan.
 
-"... N... n-mu-mu-mu-mu...."
+"... N... n-m-m-m-m...."
 
 "W-what are you doing?"
 
-"Mu-mu-mu-mu-mu......!"
+"M-m-m-m-m......!"
 
 "S-stop, Tiese, come on!"
 
