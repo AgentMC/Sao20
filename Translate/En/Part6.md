@@ -485,7 +485,7 @@ Ghost ── Ronye haven’t seen with her own eyes the soul of a human who died
 
 *If the divine world does not exist, this world must be full of ghosts created of the souls of the dead people. But that is not the case, a human soul disappears at the moment of death no matter if it is holding a hatred or sorrow and doesn’t become a ghost.*
 
-Ronye inhaled to express his thoughts.
+Ronye inhaled to express her thoughts.
 
 But just before the voice came out, one scene revived vividly in her mind, and Ronye opened her eyes.
 
@@ -493,9 +493,9 @@ _I have never seen a scary ghost.
 However, I have seen a glimpse of a soul of a one who died.  
 That was when Kirito was awakened from a long sleep and fiercely fought the man in black cloak<sup><a href="#Prim5">5</a></sup> who was directing the real world's red knights just before the end of the Foreign World War._
 
-At the moment when a huge hatchet held by a black mantle man stroke sparkles from Kirito's sword and even cut his shoulder a little, Tiese gripped both hands and prayed. *Please, Yujio-senpai. Help Kirito-senpai......* and then.
+At the moment when a huge hatchet held by a black cloak man stroke sparkles from Kirito's sword and even cut his shoulder a little, Tiese gripped both hands and prayed. *Please, Yujio-senpai. Help Kirito-senpai......* and then.
 
-And as if responding to that voice, a transparent golden arm emerged, supporting the Sword of the Night Sky Kirito was holding. With the help of that hand, Kirito pushed back the crowd and triumphantly fought against the black mantle man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Kirito's best friend, Tiese’s mentor, an elite swordsman-in-training Yujio.
+And as if responding to that voice, a transparent golden arm emerged, supporting the Sword of the Night Sky Kirito was holding. With the help of that hand, Kirito pushed back the crowd and triumphantly fought against the black cloak man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Kirito's best friend, Tiese’s mentor, an elite swordsman-in-training Yujio.
 
 "....... Tiese............ you............"
 
@@ -521,11 +521,11 @@ When she took her face off the door, Tiese, whose face appeared to completely lo
 
 Ronye got lost whether she should nod.
 
-Even if the gossip is true, I cannot believe that ghost is a Tiese's love...... Yujio. Yujio lost his life at the top floor of the Central Cathedral and cannot appear at the villa in Emperor's domain.
+*Even if the gossip is true, I cannot believe that ghost is a Tiese's love...... Yujio. Yujio lost his life at the top floor of the Central Cathedral and cannot appear at the villa in Emperor's domain.*
 
-And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. 
+*And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. *
 
-Because it is only those who oppose the authority of the church and the Taboo Index who is able to go into the mansion, which was closed in the name of the Human World Union Council...... in other words, Axiom Church.
+*Because it is only those who oppose the authority of the church and the Taboo Index who is able to go into the mansion, which was closed in the name of the Human World Union Council...... in other words, Axiom Church.*
 
 Ronye thought that she should return to Cathedral now and report it to Kirito or Fanatio, but Tiese moved before she was able to suggest it. She began running towards the South along the walls of the house, apparently planning to go around the back of the building. Shimosaki followed her, jumping behind.
 
@@ -549,7 +549,7 @@ Ronye, who finally managed to catch up with her friend, quickly pressed Tiese's 
 
 The profile of Tiese who answered in a trembling voice looked strangely pale even in the shade. Having wrapped her cold right hand with both hands, Ronye continued firmly:
 
-"I heard that sound too. It was not a mishearing. But that's why I have to be insist."
+"I heard that sound too. It was not a mishearing. But that's why I have to insist."
 
 Ronye gradually removed Tiese’s right hand from the handle and moved<sup><a href="#Prim6">6</a></sup> it by about 1 mel away, then looked around the backyard again.
 

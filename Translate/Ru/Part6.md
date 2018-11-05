@@ -475,127 +475,127 @@ _── Но я не думаю, что она есть_<sup><a href="#Prim3">3<
 
 "...... Ронье, эти призраки, как ты думаешь, это может быть правдой?"
 
-"Чё…………"
+"Что………?"
 
-## Продолжение следует
+Услышав вопрос, Ронье тут же умолкла, почувствовав себя глупым ребёнком, высмеивающим нечто серьёзное. Профиль Тейзы выглядел серьёзнее некуда, и шутить было не над чем. Причина была ей неизвестна, но Ронье знала, что если её лучшая подруга спрашивает всерьёз, то ей следует подумать и ответить как подобает.
 
-<!--After hearing the question, Ронье quickly closed her mouth, feeling like a silly child trying to laugh at something important. The profile of Тейза was as serious as ever, и there was nothing to be joking about. The reason was completely unknown, but Ронье knew, if her best friend is asking seriously, she had to think и answer properly.
+Призраки ── Ронье никогда не видела своими глазами души людей, погибших в ненависти и печали, что бродят вокруг, неспособные достичь мира богов. И конечно, то же самое относилось и к её матери и бабушке, которые рассказывали ей истории про призраков.
 
-Ghost ── Ронье haven’t seen with her own eyes the soul of a human who died in hatred or sorrow wandering without reaching the divine world. Of course, same goes for her mother и grandmothers who let her hear old stories about ghosts.
+*И потом, даже если кто-то и говорит, что подлинные призраки появлялись сотни лет назад, как это описано в старых сказках, то это тоже кажется невозможным. Потому что мира богов, куда по идее должны бы попадать души умерших, не существует и в помине. Снаружи Подмирья находится Реальный Мир, откуда пришли Кирито и Асуна, там нет богов, лишь люди, тысячи лет сражающиеся друг с другом.*
 
-*Then, even if one says that genuine ghosts appeared hundreds of years ago as it is said in the old tales, it also seems wrong. Because the divine world that the dead human soul is guided to probably does not exist itself. Outside of the Underworld is the Real World which Кирито и Асуна came from, there are no gods there, just humans fighting each other for thousands of years.*
+*Если мира богов не существует, то этот мир должен быть переполнен душами умерших. Но этого не происходит, человеческая душа исчезает в момент смерти, и не важно, преисполнен ли был в тот миг человек ненавистью, или же печалью, а призраком она не становится.*
 
-*If the divine world does not exist, this world must be full of ghosts created of the souls of the dead people. But that is not the case, a human soul disappears at the moment of death no matter if it is holding a hatred or sorrow и doesn’t become a ghost.*
+Ронье набрала воздух в грудь, собравшись высказать свои мысли.
 
-Ронье inhaled to express his thoughts.
+Но за миг до того, как её голос был готов раздаться, в её мозгу ярко вспыхнула некая сцена, и Ронье распахнула глаза.
 
-But just before the voice came out, one scene revived vividly in her mind, и Ронье opened her eyes.
+_Я никогда не видела страшного призрака.    
+Однако, я видела отблеск души умершего.  
+Это случилось, когда Кирито пробудился от своего долгого сна и яростно сражался с человеком в чёрном плаще<sup><a href="#Prim5">5</a></sup>, который руководил красными рыцарями из Реального Мира перед самым концом Войны с Внешним Миром._
 
-_Я have never seen a scary ghost.    
-However, Я have seen a glimpse of a soul of a one who died.  
-That was when Кирито was awakened from a long sleep и fiercely fought the man in black cloak<sup><a href="#Prim5">5</a></sup> who was directing the real world's red knights just before the end of the Войны с Внешним Миром._
+В тот момент, когда огромный тесак, который держал человек в чёрном плаще, высек искры из меча Кирито и даже немного ранил его плечо, Тейза сложила вместе руки и стала молиться. *Пожалуйста, Юдзио-сенпай. Помогите Кирито-сенпаю......* и тогда.
 
-At the moment when a huge hatchet held by a black mantle man stroke sparkles from Кирито's Меч и even cut his shoulder a little, Тейза gripped both hands и prayed. *Please, Юдзио-сенпай. Help Кирито-сенпай......* и then.
+Словно отвечая на её мольбы, появилась прозрачная золотая рука, поддержавшая Меч Ночного Неба, который держал Кирито. С помощью этой руки, Кирито разметал врагов и вступил в победоносное сражение простив человека в чёрном плаще. Не было никаких сомнений, что это была рука человека, которого не должно было быть в этом мире — рука лучшего друга Кирито, ментора Тейзы, элитного мечника-стажёра Юдзио.
 
-And as if responding to that voice, a transparent golden arm emerged, supporting the Меч Ночного Неба Кирито was holding. With the help of that hand, Кирито pushed back the crowd и triumphantly fought against the black mantle man. That was without a doubt the hand of the person who should not be in the world anymore — hand of Кирито's best friend, Тейза’s mentor, an elite мечник-стажёр Юдзио.
+"....... Тейза............ ты............"
 
-"....... Тейза............ you............"
+Ронье выдохнула имя своей лучшей подруги, совершенно позабыв о призраке, про которого они сейчас говорили. Она чувствовала, что она, наконец, могла понять почему Тейза ухватилась за сплетни и слухи о заброшенном особняке.
 
-Ронье whispered her best friend's name completely forgetting about the ghost thing they were talking just now. She felt like she could finally understand why Тейза stuck to the gossip rumors about the abandoned mansion.
+Это произошло в тот момент, когда она протянула правую руку чтобы дотронуться до спины уставившейся в землю Тейзы.
 
-It was the moment when she stretched the right hand to touch the back of Тейза who was looking down.
-
-Faint ── but definite sounds reached their ears; Ронье winced и froze. At the same time Тейза gently lifted her face.
+Слабый ── но отчётливый звук достиг их ушей; Ронье вздрогнула и застыла. В это же время, Тейза медленно подняла взгляд.
 
 ![Image](/Translate/Img/p167.jpg)
 
-It was not a natural sound that they heard. An unpleasant grinding sound like metal и metal rubbing together. Besides, it definitely came from behind the closed door.
+Звук, что они услышали, не был естественным. Неприятный скрежущий звук, как если бы металл тёрся о металл. А ещё, он совершенно точно пришёл из-за закрытой двери.
 
-Ронье signaled to turned Тейза by putting her index finger to her lips и softly pressed the left ear against the big door.
+Ронье подала знак развернувшейся Тейзе, приложив указательный палец к губам и аккуратно прижала левое ухо к большой двери.
 
-A few seconds passed, but nothing could be heard. However, that sound was not an illusion.
+Прошло несколько секунд, но ничего не было слышно. Однако, тот звук не был иллюзией.
 
-When she took her face off the door, Тейза, whose face appeared to completely lose the blood, whispered in a very quiet voice.
+Когда она отстранилась от двери, Тейза, у которой, казалось, вся кровь ушла из лица, очень тихо прошептала:
 
-"...... if we don’t peek inside…"
+"...... если мы не заглянем внутрь…"
 
 "............"
 
-Ронье got lost whether she should nod.
+Ронье не знала, стоит ли ей кивнуть.
 
-Even if the gossip is true, Я cannot believe that ghost is a Тейза's love...... Юдзио. Юдзио lost his life at the top floor of the Центрального Собора и cannot appear at the villa in доминион Императора.
+*Даже если слух был правдив, я не могу поверить что этот призрак — любимый Тейзы...... Юдзио. Юдзио лишился жизни на верхнем этаже Центрального Собора и не мог появиться на вилле в доминионе Императора.*
 
-And if it was not a ghost but a living human who made a sound, it is highly unlikely that they are innocent public. 
+*Но если звук издал не призрак, а живой человек, весьма маловероятно, что это невинный случайный прохожий.*
 
-Because it is only those who oppose the authority of the church и the Индекс Табу who is able to go into the mansion, which was closed in the name of the Объединённого Совета Мира Людей...... in other words, Церковь Аксиом.
+*Потому что попасть в этот особняк, запечатанный именем Объединённого Совета Мира Людей...... другими словами, Церкви Аксиом, могут лишь те, кто способен противостоять авторитету Церкви и Индекса Табу.*
 
-Ронье thought that she should return to Собора now и report it to Кирито or Фанатио, but Тейза moved before she was able to suggest it. She began running towards the Южной along the walls of the house, apparently planning to go around the back of the building. Шимосаки followed her, jumping behind.
+Ронье подумала, что им теперь следует вернуться в Собор и доложить всё Кирито или Фанатио, но Тейза начала действовать до того, как она успела это предложить. Та начала бежать на юг вдоль стены дома, видимо, планируя попасть в задний двор, обогнув дом. Шимосаки вприпрыжку помчался за ней.
 
-"Kururu!!!"
+"Ку-р-р!!!"
 
-Encouraged by Цукигаке chirping by her feet, Ронье also kicked off the ground.
+Воодушевлённая Цукигаке, чирикнувшей у её ног, Ронье тоже оттолкнулась от земли.
 
-*Even if she goes to the back door, it should be locked of course. Я do not know what Тейза is going to do, but Я have to stop her before she is going to do something unreasonable.* Even so, she couldn’t catch up with her partner running ten mels ahead.
+*Даже если она найдёт чёрный ход, тот, конечно, будет заперт. Я не знаю, что Тейза собирается делать, но я обязана её остановить, пока она не совершила какую-нибудь глупость.* Но даже и так, она не могла поспеть за напарницей, убежавшей на десять мелов вперёд.
 
-After she turned around the corner of the mansion twice и entered the backyard, it got dramatically darker. There was also a flower bed in the backyard, but since the sunlight hardly reached it, there were mostly bluish mosses и gray ferns. In the aisle there were broken wheels и decayed trees и there is no way anymore to say it’s the Император's villa.
+После того, как она дважды завернула за угол и попала в задний двор, вокруг стало значительно темнее. В заднем дворе тоже была клумба, но поскольку солнечный свет едва её достигал, на ней росли в основном синеватый мох и серый кустарник. В проходе валялись сломанные колёса и гниющие деревья, и теперь-то уж точно никто бы не сказал, что это императорская вилла.
 
-The back door that Тейза would be aiming was secretly set up on the Северной side of the building. In other words, it would have been closer to reach it from the Северной side instead of the Южной, but Тейза jumped to a small door increasing the run speed even more as if she did not care at all.
+Дверь чёрного хода, к которой устремилась Тейза, неприметно примостилась на северной стороне здания. Другими словами, её было бы быстрее достичь с северной стороны, а не с южной, но Тейза, ускорившись ещё сильнее, метнулась к небольшой двери, совершенно об этом не задумываясь.
 
-She grasped the blue rusted round handle и try to rotate, but just as Ронье expected, only the rusty click sounded. Nevertheless, Тейза continued to pull the handle with force. Even though she was an apprentice, her authority for armor equipment was similar to one of a knight, around 40, so even with pure brute force she could destroy the door. This mansion was handed over from the Император и was by that moment the property of the Объединённого Совета Мира Людей, so even in an emergency situation it was not permitted for a knight to damage it without a Council permission.
+Она схватила синюю проржавевшую круглую ручку и попыталась повернуть её, но как Ронье и ожидала, раздался только ржавый щелчок. Тем не менее, Тейза продолжала с силой давить на ручку. Пускай она и была всего лишь учеником, её уровень контроля экипировки приближался к таковым у обычных рыцарей, будучи около 40, так что она могла бы разнести эту дверь простой грубой силой. Этот особняк был передан от Императора в собственность Объединённого Совета Мира Людей, так что даже в чрезвычайной ситуации рыцарям не позволялось его повреждать без разрешения от Совета.
 
-Ронье, who finally managed to catch up with her friend, quickly pressed Тейза's right hand.
+Ронье, сумевшая, наконец, догнать свою подругу, быстро прижала правую руку Тейзы.
 
-"No Тейза, doors like that will break if you use the power."
+"Нет Тейза, двери вроде этой сломаются если использовать силу."
 
-"But...... inside, the sound......"
+"Но...... внутри, тот звук......"
 
-The profile of Тейза who answered in a trembling voice looked strangely pale even in the shade. Having wrapped her cold right hand with both hands, Ронье continued firmly:
+Профиль Тейзы, отвечавшей дрожащим голосом, выглядел странно бледным даже в тени. Обхватив её холодную правую ладонь своими, Ронье твёрдо продолжила:
 
-"Я heard that sound too. It was not a mishearing. But that's why Я have to be insist."
+"Я тоже слышала тот звук. Нам не послышалось. Но именно поэтому я должна настоять."
 
-Ронье gradually removed Тейза’s right hand from the handle и moved<sup><a href="#Prim6">6</a></sup> it by about 1 mel away, then looked around the backyard again.
+Ронье потихоньку убрала правую руку Тейзы с ручки и отодвинула<sup><a href="#Prim6">6</a></sup> её примерно на 1 мел, а затем снова обвела взглядом задний двор.
 
-"...... It might be a ghost in the building, but there is also a possibility that it is not the case. If a living person is entering и leaving the mansion, they should have left a trace somewhere."
+"...... Может быть в здании призрак, но возможно это не так. Если живой человек входит и выходит из поместья, они должны где-то оставлять следы."
 
-Тейза who heard these words nodded a little after blinking several times. The color gradually returned to her relieved face.
+Услышав эти слова, Тейза несколько раз моргнула, а затем слабо кивнула. Цвет постепенно возвращался к её успокаивающемуся лицу.
 
-"Yup... that's right. Let's examine this neighborhood."
+"Ага... точняк. Давай осмотрим округу."
 
-Ронье nodded to her friend who finally regained control, и her gaze continued to wander around.
+Ронье кивнула своей подруге, наконец, вернувшей контроль, и продолжила оглядываться.
 
-The dark backyard was narrower than the front one, but still there was a width of 100 mels и a depth of 30 mels. Mossy flower beds were on the right и left sides, и in the center was a pond of unhealthy dark-green color. The passages were heaped with broken trash, with weeds growing high everywhere, shortly speaking, there simply was no good place to start inspection with.
+Тёмный задний двор был шире переднего, но всё же его длина не превышала 100 мелов, а ширина — 30. С двух сторон — поросшие мхом клумбы, а в центре был пруд нездорового тёмно-зелёного цвета. Проходы были завалены сломанными вещами и мусором, повсюду высоко росли сорняки, одним словом, никакого очевидного места, чтобы начать осмотр, не наблюдалось.
 
-*No, don’t try to find something blindly. First of all, use your head и narrow down the area you should check.*
+*Нет, не надо тупо пытаться что-то отыскать. Прежде всего, действуй головой и постарайся сузить поисковую область.*
 
-"...... If there are people coming in и out through this back door..."
+"...... Если через этот чёрный ход проходят люди..."
 
-Having muttered this, Ронье gazed at the ground in front of the door.
+Пробормотав это, Ронье устремила взгляд на землю перед дверью.
 
-*Would the soil be popping out, we could have looked for footprints; but unfortunately, the passage is tiled with gray cobblestone, just like the front yard is. However, unlike the front yard, the thin layer of moss covers stone here и there. It is not thick enough to have footprints left, but perhaps that ──*
+*Если бы проглядывала земля, можно было бы поискать следы; но к несчастью, дорожка вымощена серым булыжником, прямо как передний двор. Однако, в отличие от переднего, то тут то там камень покрывает слой тонкого мха. Он недостаточно толстый, чтобы оставались следы, но возможно хотя бы ──*
 
-"Тейза, can you look after the dragons for a second?"
+"Тейза, можешь на минуту посмотреть за драконами?"
 
-"Y-yup."
+"А-га."
 
-Ронье waited till Тейза who took a few steps back squatted и put hands on Цукигаке’s и Шимосаки’s backs, then protruded her right hand forward.
+Ронье подождала, пока отошедшая на несколько шагов назад Тейза не присела на корточки и не положила руки на спины Цукигаке и Шимосаки, затем вытянула правую руку.
 
-"**System Call. Generate Umbra Element.**"
+"Систем Кол. Дженерейт Умбра Элемент."
 
-Generated by the incantation was a black extremely small sphere surrounded by blue-violet phosphorescence as if it was a hole in the space. It was the "darkness element", the hardest one to handle among the eight kinds of elements.
+Это заклинание создало миниатюрный чёрный шарик, окружённый сине-фиолетовым свечением, выглядящий скорее как дыра в пространстве. Это был "элемент тьмы", с которым среди всех восьми элементов было сложнее всего управиться.
 
-As opposed to luminous element, it had a negative nature, so after discharging it would disappear while sucking the surroundings in itself. It’s fine if it happens to water or air, but is really serious if it touches objects or people. However, by utilizing some of it’s properties, it can also be used in a quite different way from other elements.
+В отличие от светового элемента, у него была негативная природа, так что после разрядки, он исчезал, затягивая в себя куски окружавшего пространства. Ничего страшного, если такое случалось с водой или воздухом, но последствия были плачевными, если элемент касался объектов или людей. Однако, благодаря некоторым своим особенностям, его также можно было использовать совершенно отличными от остальных элементов способами.
 
-"**Form element, mist shape.**"
+"Форм Элемент, Мист Шейп."<sup><a href="#Prim7">7</a></sup>
 
-As Ронье continued the incantation, the dark matter disintegrated without a sound, turning into a purple fog. When used for attack, it was usually mixed with the vortex made of aerial element и directed to hit the enemy, but now it is not necessary.
+Ронье продолжила заклинание, и тёмная материя беззвучно рассредоточилась, превратившись в сиреневый туман. Для использования в нападении его обычно смешивали с воронкой воздушного элемента и направляли на врага, но сейчас в этом не было необходимости.
 
-Using both hands, Ронье spread the fog into a flat surface, then whispered:
+Используя обе руки, Ронье распределила туман по плоскости, и затем прошептала:
 
-"**Discharge.**"
+"Дисчардж."
 
-The purple mist quickly began to spread ahead.
+Сиреневый туман стал быстро расползаться.
 
-This fog had the ability of absorbing the sacred power, as well as concealing the reaction. This way, if it’s mixed with aerial element-made tornado, the blades of the wind cut through the enemy's skin, и the fog is left in the wound, silently but steadily sucking out the blood which is the source of sacred power.
+## Продолжение следует...
+
+<!--This fog had the ability of absorbing the sacred power, as well as concealing the reaction. This way, if it’s mixed with aerial element-made tornado, the blades of the wind cut through the enemy's skin, и the fog is left in the wound, silently but steadily sucking out the blood which is the source of sacred power.
 
 And sacred power is not just for humans и animals, but also plants — even for the moss grown over the cobblestone. Of course, it’s amount would be quite modest, but if such moss is hurt by being stepped on multiple times, a small amount of sacred power will be released to surrounding space.
 
@@ -669,7 +669,7 @@ There was something blinking around the seventh step down the stairs. A broken n
 
 They exclaimed together и exchanged looks.
 
-It was probably a duplicate key prepared for the time when someone gets locked inside by chance. In other words, this exotic grid door was to prevent intrusion from the outside.
+It was probably a duplicate key prepared for the time when someone gets locked inside by chance. другими словами, this exotic grid door was to prevent intrusion from the outside.
 
 At the same time, they both tried to reach out through the gap in the grid, but since the width of the gap was only ten cens, only a shoulder would fit и the key would be out of reach.
 
@@ -1193,8 +1193,9 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 2. <a name="Prim2"></a>Тейза использует ансоку-ничи (安息日), у которого есть четкое значение - иудейский Шаббат, но поскольку это кандзи а не катакана, она видимо не имеет в виду конкретное название дня, равно как и сам термин (поскольку жители Подмирья не в курсе про остальные религии), а просто говорит о последнем дне недели, когда люди отдыхают.
 3. <a name="Prim3"></a>Я полагаю, あっやしいなぁー может также означать, что ей вообще вся эта идея не нравится, и по сути, вероятно, это и то, и другое.
 4. <a name="Prim4"></a>Да я в курсе что у них там поздний февраль, совсем недавно растаял снег.
-<!--5. <a name="Prim5"></a>Ронье doesn’t know about a concept of ‘poncho’ so here we have ‘cloak’ in her thoughts. Same for ‘O-nata’ (Great Knife of Pyramidhead from Silent Hill) becoming ‘kyodaina-nata’, (simply huge hatchet) below.
-6. <a name="Prim6"></a>The original says “lowered” but given both girls should be under 160 cm (you remember the 180 cm "giant", don't you?), you’ll have nightmares if you try imagining that.
-7. <a name="Prim7"></a>暁染, Color-of-the-dawn. Я wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Цукигаке is the only exception Я know), which would raise more questions about this never-heard-of-before dragon.
-8. <a name="Prim8"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.
+5. <a name="Prim5"></a>Ронье незнаком концепт ‘пончо’ поэтому здесь в её мыслях у нас ‘плащ’. Тоже самое касается ‘О-ната’ (Великий Нож Пирамидоголова из Сайлент Хилла), становящегося ‘кёдайна-ната’, (просто огромный тесак) чуть ниже. Отдельная ремарка для русского перевода. Cloak != robe, но как я и писал в комментариях к 19 тому, ни один из вариантов перевода robe, которые я нашёл, не устроили меня, и я оставил плащ, поэтому хотя у меня у получается что и ПоХ, и таинственный похититель из прошлого тома оба в плащах, для Ронье они разные персонажи в разной одежде.
+6. <a name="Prim6"></a>В оригинале “опустила”, но учитывая, что обе девушки должны быть под 160 см (вы же помните 180-см "гиганта", не так ли?), у вас будут кошмары, если попытаетесь это представить.
+7. <a name="Prim7"></a>Сформировать элемент, форма тумана.
+<!--7. <a name="Prim8"></a>暁染, Color-of-the-dawn. Я wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Цукигаке is the only exception Я know), which would raise more questions about this never-heard-of-before dragon.
+8. <a name="Prim9"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.
 9. -->

@@ -187,7 +187,7 @@ The knight nodded the head with bluish short hair to Кирито's question:
 
 — Ayuha pointed out, both Кирито и Асуна nodded at the same time. Nergius, who had kept silent till now, said after other knights also expressed agreement:
 
-"......In other words, the insurgent forged not only the transfer order of the administration, but also the gate permit? How much Индекс Табу violation will you put on them...?"
+"......другими словами, the insurgent forged not only the transfer order of the administration, but also the gate permit? How much Индекс Табу violation will you put on them...?"
 
 "No need to burn like that, Negi-boy. It's obvious that they are not worried about the Индекс Табу at all, as the insurgents already killed people with their own hands."
 
@@ -259,7 +259,7 @@ It was knight Ренри who shouted. Кирито answered "Highly appreciated!
 
 She stepped onto the silver disk on the floor и wrapped the glass tube fixed in the middle with both hands.
 
-This elevator which Airy used to previously operate with Sacred Art was also automated now. The large sealed cans buried under the floor of the elevator shaft were filled with a large number of aerial elements и when the button on the wall is pressed, certain number of elements required to raise the disc to the requested height were burst thus creating pressure which was automatically released from the can. However, just in case, there was also a glass tube for generating aerial elements manually, so that users can operate it on their own. In other words, one could move the lift manually the way they liked instead of an automatic device set at a rather gentle speed.
+This elevator which Airy used to previously operate with Sacred Art was also automated now. The large sealed cans buried under the floor of the elevator shaft were filled with a large number of aerial elements и when the button on the wall is pressed, certain number of elements required to raise the disc to the requested height were burst thus creating pressure which was automatically released from the can. However, just in case, there was also a glass tube for generating aerial elements manually, so that users can operate it on their own. другими словами, one could move the lift manually the way they liked instead of an automatic device set at a rather gentle speed.
 
 Асуна produced ten aerial elements inside the cylinder without paying attention to "Hey, safe driving, y’know..." which Кирито standing next to her was saying. When Airy previously lectured them on how to move this disc, she said "Я release three units when Я start the rise и then one by one when the speed is about to fall down", which would produce a moderate speed when carrying passengers, but she also taught them secretly that if they want to feel more speed the count could be increased.
 

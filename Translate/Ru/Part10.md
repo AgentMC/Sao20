@@ -51,7 +51,7 @@ In response to the incident, the imperial territory of the four Империиs 
 
 Another artifact remaining after Император Крюгер, the ring with the imperial house emblem, was jointly analyzed by Ayuha и Sones, the two greatest clerics in the Собора. There was no doubt that the secret of resurrection was hidden in that ring which the Император called "katashiro", but *it is a hundred times harder to extrapolate the art synopsis given only an object used as an art medium......* that’s what Sones said.
 
-In other words, almost all threads leading to the conspiracy mastermind were broken. Speaking of other things, both the pair of a large и a small knife used by great chamberlain Зеппос и the clay bags stacked in large quantities on the villa's premises, were unlikely to lead to new clues.
+другими словами, almost all threads leading to the conspiracy mastermind were broken. Speaking of other things, both the pair of a large и a small knife used by great chamberlain Зеппос и the clay bags stacked in large quantities on the villa's premises, were unlikely to lead to new clues.
 
 The Объединённого Совета Мира Людей has decided to invite senior dark arts masters from Тёмной Территории to consult regarding clay и ring investigation, и the horse messenger was already sent to Obsidia castle. But it will take twelve days for a personal letter to reach general commander Isukan, и even if the invitation is fulfilled at all given the circumstances, it will take another two weeks for the reply to arrive from the other side.
 
@@ -134,7 +134,7 @@ Since Кирито и Асуна exchanged looks, Ронье explained after loo
 
 "Indeed, the black Императорs’ henchmen...... Well, good, I'll call them this way as well....... Yes, it is exactly what Deus-сан is worried about, but Я think the possibility is low. The goal of the revived Императорs was to start war again between Мира Людей и Тёмной Территории, и the fusion-type minions prepared for that purpose were destroyed. Even if they are still aiming at the same, it’s going to take a while for them to prepare..."
 
-"So...... In other words, if Тейза и Ронье did not uncover Император Крюгер’s retreat, that fusion-type minions would have been attacking the liberation festival."
+"So...... другими словами, if Тейза и Ронье did not uncover Император Крюгер’s retreat, that fusion-type minions would have been attacking the liberation festival."
 
 Кирито deeply nodded to Асуна's words:
 
