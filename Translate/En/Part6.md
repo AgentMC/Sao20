@@ -597,7 +597,7 @@ This fog had the ability of absorbing the sacred power, as well as concealing th
 
 And sacred power is not just for humans and animals, but also plants — even for the moss grown over the cobblestone. Of course, it’s amount would be quite modest, but if such moss is hurt by being stepped on multiple times, a small amount of sacred power will be released to surrounding space.
 
-The stripes of released violet mist were drawn to the ground, forming fine twisting branches similar to a plant and shining mysteriously. The shape and the arrangement of it was undoubtedly human footprints. Moreover, from the way it was shining, it was only recently that moss was stepped on.
+The stripes of discharged violet mist were drawn to the ground, forming fine twisting branches similar to a plant and shining mysteriously. The shape and the arrangement of it was undoubtedly human footprints. Moreover, from the way it was shining, it was only recently that moss was stepped on.
 
 Footprints extended north from the back door of the mansion and disappeared in the forest surrounding the backyard.
 
@@ -615,7 +615,7 @@ She stopped at the entrance of the path and whispered to Tiese who has just caug
 
 Her gaze moved to the feet her nodding friend, where two serious looking young dragons also winced ears. Since it is possible that there may be a battle with the footprints owner should they proceed this way, it would be best to have dragons stayed, but she couldn’t say that the backyard of the mansion was safe.
 
-Judging that there was no choice but to take them along, Ronye bent backward.
+Judging that there was no choice but to take them along, Ronye bent down.
 
 "You guys keep quiet."
 
@@ -625,7 +625,7 @@ Another glance at the footpath revealed that the footprints of light had already
 
 Just after a few mels on the dark path the air became freezingly cold. That day was warm manifesting the soon coming of spring, but the air the darkness exhaled seemed to be colored midwinter-white.
 
-*I have bad feeling*, thought Ronye. The throne in the Norlangarth castle to which they rushed together with Tiese at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls and floor for a long time somehow deprived the warmth.
+*I have bad feeling*, thought Ronye. The throne hall in the Norlangarth castle to which they rushed together with Tiese at the time of the Rebellion of Four Empires was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls and floor for a long time somehow deprived the warmth.
 
 The two-thirty bell haven’t rung yet, but the darkness was steadily increasing as they proceeded. Both sides of the path were blocked by a hedge with sharp thorns, and more and more branches of old trees overlapped above their heads.
 
@@ -641,7 +641,7 @@ They halted, making sure that there are no signs of people around, then carefull
 
 "... this building, it is quite old...."
 
-Like Tiese murmured, the stone walls looked dusty are blackened as if exposed to the wind and rain, and moss was covering the areas touching the ground, appeared that in ten-twenty years’ time this won’t stand anymore without proper support. A high double iron gate was also thin and covered with rust, it didn’t seem that a high priority material would be decaying so much.
+Like Tiese murmured, the stone walls looked dusty and blackened as if exposed to the wind and rain, and moss was covering the areas touching the ground, appeared that in ten-twenty years’ time this won’t stand anymore without proper support. A high double iron gate was also thin and covered with rust, it didn’t seem that a high priority material would be decaying so much.
 
 The left and right doors fitted together without any gaps, and a sturdy lock was installed about one mel from the ground. Pulling the iron grid with both hands gently, as expected, did not break them open. On the other side of the door there was a staircase descending below the ground, ending with the complete darkness.
 
@@ -679,7 +679,7 @@ But, on the other hand, they’d need to find a bar about 3 mel length, to take 
 
 When Ronye thought again, what on earth this building is exactly, that happened.
 
-That moment they heard the dragon's roaring "Ku-ru-ru-ru.......". Looking down, they saw the light-blue feathered Shimosaki trying to thrust his body into the gap in the grid. Tiese who saw it asked, worriedly:
+That moment they heard the dragon's roaring "Ku-r-r-r......". Looking down, they saw the light-blue feathered Shimosaki trying to thrust his body into the gap in the grid. Tiese who saw it asked, worriedly:
 
 "Hey Shimosaki, you think you can get through this gap...?"
 

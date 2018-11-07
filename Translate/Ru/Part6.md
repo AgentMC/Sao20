@@ -593,139 +593,139 @@ _Я никогда не видела страшного призрака.
 
 Сиреневый туман стал быстро расползаться.
 
-## Продолжение следует...
+Этот туман обладал способностью поглощать священную силу, скрывая реакцию. Благодаря этому, если его смешать с воронкой из воздушных элементов, ветряные клинки смогут прорезать сквозь кожу врага, а туман осядет в ране, медленно но верно высасывая кровь врага — источник его святой силы.
 
-<!--This fog had the ability of absorbing the sacred power, as well as concealing the reaction. This way, if it’s mixed with aerial element-made tornado, the blades of the wind cut through the enemy's skin, и the fog is left in the wound, silently but steadily sucking out the blood which is the source of sacred power.
+Святой силой обладали не только люди и животные, но также растения — даже разросшийся по булыжникам мох. Конечно, её количество будет весьма скромным, однако если такой мох повредить, раз за разом на него ступая, небольшое количество священной силы будет выброшено в окружающее пространство.
 
-And sacred power is not just for humans и animals, but also plants — even for the moss grown over the cobblestone. Of course, it’s amount would be quite modest, but if such moss is hurt by being stepped on multiple times, a small amount of sacred power will be released to surrounding space.
+Выпущенный сиреневый туман полосками потянулся к земле, закручиваясь тонкими веточками, подобно растению, и загадочно сияя. Форма и расположение его скоплений без сомнения повторяли отпечатки обуви человека. Более того, судя по его сиянию, на мох наступали лишь недавно.
 
-The stripes of released violet mist were drawn to the ground, forming fine twisting branches similar to a plant и shining mysteriously. The shape и the arrangement of it was undoubtedly human footprints. Moreover, from the way it was shining, it was only recently that moss was stepped on.
+Следы тянулись на север от чёрного хода особняка и исчезали в лесу, окружавшем задний двор.
 
-Footprints extended Северной from the back door of the mansion и disappeared in the forest surrounding the backyard.
+"Тейза, туда!"
 
-"Тейза, over there!"
+— тихо воскликнула Ронье, бросаясь в погоню за светом, рисующим тающие следы.
 
-Ронье quietly exclaimed и rushed after the light drawing the fading footprints.
+В северной части заднего двора они повернули влево, подойдя к напоминающей пещеру тропинку через проход, открывавшийся подобно разинутой пасти в ровной стене леса. Кустарник и подлесок были подрезаны, а выступающие ветви обломаны, и было очевидно, что к этому была приложена человеческая рука. Внизу, на тёмной лесной тропе, загорались ярко-фиолетовым контуры следов.
 
-They turned left at the Северной end of the backyard, entering a cave-like path opening like a mouth in the wall of forest. Because the bush и undergrowth have been cut down, и the obstructing branches were also dropped, it was clearly done by the human hand. In the bottom of the dark wood path, footprints were glowing bright purple.
+Остановившись у входа на тропу, она прошептала только что догнавшей Тейзе:
 
-She stopped at the entrance of the path и whispered to Тейза who has just caught up:
+"Осторожно, если мы пересечёмся с тем, кто эти шаги оставил, нас обнаружат."
 
-"Be careful, if we come across the owner of footprints, we might be discovered."
+"Поняла."
 
-"Understood."
+Взгляд, опустившийся к ногам её лучшей подруги, упёрся в двух серьёзно выглядевших дракончиков, прядавших ушами. Поскольку была вероятность того, что им придётся вступить в бой с владельцем следов, если они пойдут дальше по этому пути, то было бы лучше, чтобы драконы остались, но нельзя было сказать, что задний двор особняка — безопасное место.
 
-Her gaze moved to the feet her nodding friend, where two serious looking young dragons also winced ears. Since it is possible that there may be a battle with the footprints owner should they proceed this way, it would be best to have dragons stayed, but she couldn’t say that the backyard of the mansion was safe.
+Рассудив, что иного выбора, кроме как взять их с собой, не остаётся, Ронье нагнулась к ним.
 
-Judging that there was no choice but to take them along, Ронье bent backward.
+"А вы, ребята, ведите себя тихо."
 
-"You guys keep quiet."
+Когда она слегка почесала голову Цукигаке, ответившей тихое **Ку-р-р**, дракониха вытянула спину.
 
-After she lightly stroke the head of Цукигаке who responded with a quiet **Ку-ру-ру**, the dragon slowly stretched the back.
+Ещё один взгляд на тропу открыл, что световые отпечатки уже исчезли, но из-за размера леса опасности потеряться не было. Они с Тейзой кивнули друг другу и вместе ступили внутрь.
 
-Another glance at the footpath revealed that the footprints of light had already disappeared, but there was no danger of getting lost due to the size of the forest. They with Тейза nodded to each other и stepped inside together.
+Всего через пару мелов по тропе воздух стал леденяще холодным. Тот день был тёплым, провозглашая скорый приход весны, но воздух, которым на них дохну́ла тьма, был холоден как в середине зимы.
 
-Just after a few mels on the dark path the air became freezingly cold. That day was warm manifesting the soon coming of spring, but the air the darkness exhaled seemed to be colored midwinter-white.
+*У меня плохое предчувствие*, подумала Ронье. Тронный зал в замке Норлангарт, куда они вбежали вдвоём с Тейзой во время Восстания Четырёх Империй, был наполнен таким же холодным воздухом. Там было не просто холодно, скорее ощущалось, что холодный воздух, долгое время пропитывавший стены и пол, каким-то образом лишил их всякой теплоты.
 
-*Я have bad feeling*, thought Ронье. The throne in the Норлангарт castle to which they rushed together with Тейза at the time of the Rebellion of Four Империиs was filled with same heavy air. It was not just cold, it rather felt that the cold air soaking in the walls и floor for a long time somehow deprived the warmth.
+Колокол в пол-третьего ещё не прозвонил, но чем дальше они шли, тем темнее становилось вокруг. По обеим сторонам прохода стеной стояла живая изгородь с острыми шипами, а над их головами переплеталось всё больше веток старых деревьев.
 
-The two-thirty bell haven’t rung yet, but the darkness was steadily increasing as they proceeded. Both sides of the path were blocked by a hedge with sharp thorns, и more и more branches of old trees overlapped above their heads.
+*Что если потемнеет ещё сильнее, и использовать световой элемент не выйдет.....*, подумала она, и тогда:
 
-*What if it gets darker even more, и Я can’t use the light element’s light.....*. she thought, и then:
+"А...... Ронье, смотри!"
 
-"Ah...... Ронье, there!"
+— резко прошептала Тейза, и Ронье тоже вгляделась вперёд.
 
-Тейза sharply whispered, Ронье also stared ahead.
+Вдали во тьме стояли в ряд несколько металлических прутьев. Первой мыслью было, что они достигли железного забора, окружавшего лес. Но это был не забор, а железные ворота. В конце тропы располагалось маленькое здание, размером примерно с храм, и эти ворота были своего рода передней дверью.
 
-In the depths of the darkness, there was a number of vertically standing metal rods. The first guess would be that they reached the iron fence surrounding the forest. However, that was the iron gate rather than a fence. There was a small building, about of a shrine’s size, in the end of the path, и the gate was the front door bars.
+Они остановились, и убедившись, что вокруг нет признаков других людей, осторожно приблизились.
 
-They halted, making sure that there are no signs of people around, then carefully approached.
+"... это здание, оно довольно старое...."
 
-"... this building, it is quite old...."
+Как Тейза и пробормотала, каменные стены, выглядевшие пыльными и потемневшими, как будто долгое время были подвержены действию ветра и дождя, и вместе окружающим пространством покрытые мхом, создавали впечатление, что через десять-двадцать лет без должной поддержки стоять они уже не будут. Высокие двустворчатые металлические ворота тоже были тонкими и покрытыми ржавчиной, их высокоприоритетный материал не стал бы столь сильно разлагаться за короткое время.
 
-Like Тейза murmured, the stone walls looked dusty are blackened as if exposed to the wind и rain, и moss was covering the areas touching the ground, appeared that in ten-twenty years’ time this won’t stand anymore without proper support. A high double iron gate was also thin и covered with rust, it didn’t seem that a high priority material would be decaying so much.
+Левая и правая дверца плотно прилегали друг к другу, и около мела от земли был установлен грубый замок. Аккуратное потягивание за ворота обеими руками, как и ожидалось, не распахнуло их. По другую сторону ворот были спускавшиеся в землю ступени, заканчивающиеся сплошной тьмой.<!--Играет: RΞOL - コノヨLoading...-->
 
-The left и right doors fitted together without any gaps, и a sturdy lock was installed about one mel from the ground. Pulling the iron grid with both hands gently, as expected, did not break them open. On the other side of the door there was a staircase descending below the ground, ending with the complete darkness.
+"И здесь заперто."
 
-"It's locked here too."
+Тейза на слова Ронье с лицом, полным сожаления:
 
-Тейза replied to Ронье’s words with a regretful face.
+"А ведь внутри что-то есть, уж точно......."
 
-"And yet there’s something inside, for sure......."
+Этот её тон, излучавший те же эмоции, что она недавно сама ощущала, немного успокоил Ронье. Конечно, её страх призраков никуда не делся, но тот, кто проходил через чёрный ход особняка уж точно был не призраком, а живым человеком. Возможно, тем самым, кто шумел в особняке.
 
-That tone, radiating with the same emotions she felt recently, made Ронье relieved a little bit. Of course, it did not mean that the fear of ghosts has gone, but someone who is coming in и out through the back door of the mansion was obviously not ghost, but a living being. Perhaps, the same people who made sounds in the mansion.
+*Как ученику рыцаря, мне бы очень хотелось установить личность человека, проигнорировавшего запрет на вход от Объединённого Совета Мира Людей и схватить этого преступника — но это не значит, что замок можно ломать. Ведь преступления на моих глазах не совершается.*
 
-*As an apprentice knight I’d very much like to identify the person who is breaking the Объединённого Совета Мира Людей's no-entry ban и catch this villain — but that does not mean Я can destroy the lock. There is no crime committed in front of my eyes.*
+*Как жаль*, думала Ронье, *но иного выбора,к роме как вернуться в Собор, доложить о ситуации и вернуться сюда с кем-то из старших рыцарей, нет*. Но Тейза снова воскликнула, точно также как и минуту назад:
 
-*It’s a pity*, Ронье thought, *but there is no choice but to go back to the Собора и report the situation и get back with someone of the senior knights*. But Тейза exclaimed the same she said just now:
+"А....... смотри!"
 
-"Ah....... over there!"
+Правой рукой, просунутой в проём в решётке, она указывала на стену справа от спускавшихся вниз ступеней. Ронье тоже приблизилась к преграде, вглядываясь в глубины тьмы.
 
-She pointed to the wall on the right side of the descending staircase with her right hand protruding into the gap in the iron grating. Ронье also brought her face close to the gate, staring into the deeps of the darkness.
+Что-то там было, около седьмой ступеньки вниз, мерцавшее в темноте. Из стены торчал сломанный гвоздь, и на нём на верёвке висело что-то тускло-серебристого цвета, нечто продолговатое......
 
-There was something blinking around the seventh step down the stairs. A broken nail stuck in a wall, something of a dull silver color hanging on a string over it, something elongated......
+"…………ключ!"<!--"Стальной фаллик XXL" — восхитилась Тейза. "Это незаконно, мы должны его срочно конфисковать" — поддержала подругу Ронье.-->
 
-"…………key!"
+— вместе воскликнули они и переглянулись.
 
-They exclaimed together и exchanged looks.
+Видимо, это был ключ-дубликат, приготовленный на случай, если кто-то по какой-то причине окажется заперт внутри. Другими словами, эти экзотические решётчатые ворота предназначались, чтобы предотвратить вторжение снаружи.
 
-It was probably a duplicate key prepared for the time when someone gets locked inside by chance. другими словами, this exotic grid door was to prevent intrusion from the outside.
+Одновременно они попытались дотянуться через решётку ворот, но поскольку шаг решётки был всего десять ценов, проходило только плечо, а до ключа было не достать.
 
-At the same time, they both tried to reach out through the gap in the grid, but since the width of the gap was only ten cens, only a shoulder would fit и the key would be out of reach.
+"... сюда бы "Руку Разума"......."
 
-"... an "arm of mind" could be used here......."
+В целом, со стенаниями Тейзы можно было согласиться, за исключением того, что будучи способным на такое, скорее следовало бы попытать счастья с "Отмычкой Разума" Кирито. Оглядевшись вокруг в поисках чего-то вроде длинной жердины, они не нашли ничего такого, что бы удобно лежало рядом.
 
-Overall, one could agree with Тейза's groaning voice, but if you are able to do so, it’s rather worth trying to invoke Кирито’s "Pick of Mind". Looked around, for something like a long bar, but there was no such thing falling conveniently.
+Но, с другой стороны, чтобы снять ключ снаружи им бы пришлось найти жердину под 3 мела длиной, так что это тоже вряд ли было бы возможным. *Если делать ключ-дубликат, зачем вообще его хранить так далеко вниз по лестнице?*
 
-But, on the other hand, they’d need to find a bar about 3 mel length, to take the key out from the outside, so it appears to be an unlikely story to happen. *If you keep a duplicate key, why should it stay so far down the staircase?*
+Когда Ронье снова подумала о том, что же это вообще за здание такое, это и случилось.
 
-When Ронье thought again, what on earth this building is exactly, that happened.
+В тот момент они услышали драконье рычание "Ку-р-р-р.......". Взглянув вниз, они увидели Шимосаки в его светло-голубом оперении, пытающегося протиснуться через сетку решётки. Тейза, увидев это, обеспокоенно спросила:
 
-That moment they heard the dragon's roaring "Ку-ру-ру-ру.......". Looking down, they saw the light-blue feathered Шимосаки trying to thrust his body into the gap in the grid. Тейза who saw it asked, worriedly:
+"Эй, Шимосаки, думаешь, сможешь пролезть через...?"
 
-"Hey Шимосаки, you think you can get through this gap...?"
-
-But before she finished, Цукигаке’s head showed Шимосаки's back. The body of the young dragon passed through the gap at once, и after one full somersault, he stood up in front of the staircase.
+Но ещё до того как она закончила, голова Цукигаке толкнула Шимосаки в зад. Тело молодого дракона прошло сквозь решётку, и сделав один полный кувырок, он встал перед лестницей.
 
 "Кю-ру-ру!!!"
 
-Шимосаки proudly chirped, и although some rust stuck to his feathers, there seemed to be no injury. It looked wide due to fluffy fur и feathers, but the body of the young dragon in reality was still small.
+— гордо чирикнул Шимосаки, и хотя к его перьям и пристало немного ржавчины, повреждений не было видно. Он только выглядел широким из-за пуха и перьев, но в действительности тело молодого дракона было ещё маленькое.
 
-"Good grief, what a self-esteem......."
+"Смотрите на него, как мы собой довольны......."
 
-Тейза lightly scolded him, but a smile of proudness appeared on her lips. Pointing at the key with her right hand thrusted into the iron grid, she instructed the beloved dragon:
+Тейза его пожурила, но на её губах всё равно появилась гордая улыбка. Указав на висящий ключ своей правой рукой, просунутой сквозь решётку, она скомандовала своему любимому дракону:
 
-"Шимосаки, can you get it?"
+"Шимосаки, сможешь достать?"
 
-Of course, chirping again in the response, Шимосаки went down the stairs и stopped right under the nail.
+Само собой, чирикнув в ответ, Шимосаки спустился по ступенькам и встал точно под гвоздём.
 
-The height to the key was about 1.8 mel. While leisurely flapping small wings, it jumped once, twice и succeeded in picking up the key at the third time. After coming back to triumphantly, it protruded a thin nose through the grid gap.
+Ключ висел на высоте около 1.8 мел. Лениво похлопав маленькими крылышками, он дважды подпрыгнул и на третий раз смог достать ключ. Триумфально вернувшись, он просунул тонкий нос сквозь проём решётки.
 
-Тейза received the key held in the mouth, handed it over to Ронье, и began stroking the head of the dragon with both hands. Who, after observing the scene, inserted the old key into the keyhole of the iron grating. Although, as expected, it was bit hard, the key eventually turned around, then a click и a hard sound echoed.
+Тейза взяла ключ из его пасти, передала его Ронье и начала обеими руками гладить дракона по голове. Понаблюдав за этой сценой, та вставила древний ключ в замочную скважину в металлических воротах. Хотя, как и ожидалось, это было сложно, в итоге ключ повернулся, а затем послышались щелчок и жесткий звук.
 
-She waited for Тейза to go one step back и pulled the grid towards herself. The door moved squeaking **ki-i-i-i**. Шимосаки who was waiting inside flapped the wings as soon as they came in.
+Подождав, пока Тейза отойдёт на шаг назад, она потянула решётку на себя. Створка сдвинулась, проскрипев **ки-и-и-и**. Ждущий внутри Шимосаки захлопал крыльями как только они вошли.
 
-Since the door was opened, they had to find out what was in the basement, but once again looking into the darkness under the stairs, Ронье felt sweat spreading over her palms.
+Раз уж дверь открылась, они обязаны были выяснить, что находится в подвале, но снова взглянув во тьму, в которой терялись уходящие вниз ступени, Ронье почувствовала как её ладони становятся потными.
 
-*Я do not like the disjunctive way the high-priority iron grid key was hanging just out of reach. Я do not think it is a trap to lure an intruder into the basement — but if so, they wouldn’t have to lock it, to start with — и Я cannot predict what is inside so far.*
+*Не нравится мне этот неподходящий способ, которым ключ от высокоприоритетной железной решётки повесили так, что совсем чуть-чуть не достать. Не думаю, что это ловушка чтобы заманить чужаков в подвал — если это так, прежде всего, они вообще не стали бы их запирать — и я пока что совсем не могу предсказать что нас ждёт там внизу.*
 
-Ронье lifted the line of sight from Цукигаке, rubbing her body against the feet as if sharing the owner's anxiety, to Тейза, и suggested:
+Ронье подняла взгляд от Цукигаке, трущейся о её ноги, как будто разделяя волнение хозяйки, на Тейзу, и предложила:
 
-"Hey, Тейза. Я will check it down, so you can stay here..."
+"Эй, Тейза. Давай я посмотрю что там внизу, а ты здесь побудь..."
 
-"Declined, Я will go too, of course."
+"Отказываюсь, я тоже пойду, само собой."
 
-She distinctly shook her head, denying the option to wait outside with the dragons.
+— та отчётливо покачала головой, отбрасывая вариант ждать снаружи с драконами.
 
-"……all right. But be careful, OK?"
+"……ладно. Но осторожно, хорошо?"
 
-"Sure."
+"Конечно." <!--Играет: μ [Ueda Reina] -  juːˈtoʊpiə -->
 
-Saying so Тейза encouragingly smiled, и Ронье smiled in response и walked up to the bush on the left. Chose a branch without thorns и broke it. Generated a light element и fixed it to the leaf at the tip of the branch by the "**adhere**" phrase.
+Сказав так, Тейза ободряюще улыбнулась, и Ронье улыбнулась в ответ и шагнула к кусту слева. Выбрала ветвь без шипов и отломала её. Затем сгенерировала световой элемент и прикрепила его к листу на кончике ветви, используя выражение "**эдхиа**".
 
-Embracing Цукигаке with the left arm, she raised the newly-created torch with her right hand и stepped into the building. After waiting for Тейза и Шимосаки to enter, she closed the door и locked it again. She could bring the key along, but it might indicate the intrusion, so she returned it to the nail which was located just beneath the ground level.
+Обнимая Цукигаке левой рукой, она подняла новосозданный факел правой и шагнула внутрь строения. Дождавшись, пока Тейза и Шимосаки зайдут, она затворила дверь и снова её закрыла на ключ. Она могла бы захватить ключ с собой, но это было бы свидетельством вторжения, так что она вернула его на гвоздь, располагавшийся ниже уровня земли.
 
-The descending stairs were longer than could be imagined. There was a landing after they descended thirty steps, и then it went for another thirty, where it finally turned into a flat aisle. Since the height of one step was about 20 cen, it could be counted as about 12 mels underground. For Собора, that would be equal to a height of a third floor.
+## Продолжение следует...
+
+<!--The descending stairs were longer than could be imagined. There was a landing after they descended thirty steps, и then it went for another thirty, where it finally turned into a flat aisle. Since the height of one step was about 20 cen, it could be counted as about 12 mels underground. For Собора, that would be equal to a height of a third floor.
 
 The air was somewhat warmer than outside, but also damp и moldy. In truth, they first thought that there might be a hidden treasure chest of the Император Норлангарт stored in the basement, but if someone keeps it in such a place, the treasure box will lose its Life in a few years и it will decay into trash.
 
