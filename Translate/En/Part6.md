@@ -749,7 +749,7 @@ After hearing her words, Ronye also imagined the plan of the manor and the fores
 
 "Because...... isn’t it weird? If it's a basement of a mansion, you only need to make a staircase to the building... Why would you have an entrance in the forest several tens of mels away?"
 
-*To say the truth, Tiese's made a good point. Again, a sense of discomfort revived after thoughts of a key fitting to the metal grid hanging near the entrance, but even if you think it all over, the answer will not come out.*
+To say the truth, Tiese's made a good point. Again, a sense of discomfort revived after thoughts of a key fitting to the metal grid hanging near the entrance, but even if you think it all over, the answer will not come out.
 
 "Maybe we'll find out if we take a look at what’s down there..."
 
@@ -773,13 +773,13 @@ Moving ahead steadily, back against the left wall. As they approach the prison, 
 
 Before the answer came to her, Ronye reached the closest cell and stopped before it. Together with Tsukigake she embraced, they both slowly stuck heads out from behind the wall and peeked inside.
 
-The light of lanterns hanging on the opposite wall was too weak, and did not reach into the depth of the cell. After gently inserting the lit branches, she quickly understood that it is not empty inside. At the far corner from Ronye, three prisoners could be seen. It seemed, they were sleeping, huddled.
+The light of lanterns hanging on the opposite wall was too weak, and did not reach into the depth of the cell. After gently inserting the lit branch, she quickly understood that it is not empty inside. At the far corner from Ronye, three prisoners could be seen. It seemed, they were sleeping, huddled.
 
 The bodies wrapped in some rags were quite short. All of them were under the half a mel. *Children...... no, their arms are too long for the case. Hairless heads, sharp noses and ears.  
 They are neither children nor a Human World person.  
 They are Goblins.*
 
-She recoiled, biting hard the branch in her right hand. In a second, Tiese’s face appears near.
+She recoiled, while holding the branch in her right hand against her lips. In a second, Tiese’s face appears near.
 
 "What's wrong....... Was there anyone?"
 

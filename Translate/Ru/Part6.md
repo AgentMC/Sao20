@@ -723,137 +723,137 @@ _Я никогда не видела страшного призрака.
 
 Обнимая Цукигаке левой рукой, она подняла новосозданный факел правой и шагнула внутрь строения. Дождавшись, пока Тейза и Шимосаки зайдут, она затворила дверь и снова её закрыла на ключ. Она могла бы захватить ключ с собой, но это было бы свидетельством вторжения, так что она вернула его на гвоздь, располагавшийся ниже уровня земли.
 
+Спуск вниз по ступеням продолжался дольше, чем можно было представить. Спустившись на тридцать ступеней, они наткнулись на пролёт, и после следующих тридцати, спуск, наконец, превратился в горизонтальный проход. Высота оной ступеньки была около 20 цен, нетрудно посчитать, что они были примерно в 12 мелах под землёй. В масштабах Собора, Это соответствовало высоте третьего этажа.
+
+Воздух был несколько теплее, чем снаружи, но также влажный и пахнущий плесенью. По правде говоря, что в подвале может храниться тайный сундук с сокровищами Императора Норлангарта, но если его хранить в подобном месте, за несколько лет сундук растеряет свою Жизнь и превратится в мусор.
+
+После примерно 50 мелов, длинный подземный проход завернул направо. Законец, впереди замаячил слабый свет. Но облегчения это не принесло. Чем бы ни был источник света, должен быть кто-то, кто его зажёг.
+
+До света оставалось ещё около 30 мелов, но Ронье увидела, как другая подала ей знак и остановилась. В тот момент не было слышно ни разговоров, ни прочего шума. Когда она попыталась осторожно продолжить движение, полы её плаща потянули назад.
+
+Она вздрогнула и в испуге развернулась.
+
+"……Что случилось?"
+
+На этот заданный шёпотом вопрос, Тейза посмотрела вверх на потолок прохода со сложным выражением на лице. Ронье тоже посмотрела вверх, но увидела только каменную кладку, не отличавшуюся от стен.
+
+Тейза пробормотала, хмурясь:
+
+"Прошли от заднего двора на северо-запад, зашли в лес... затем через тот храм и спустились в подвал, один раз повернули....... ── Ронье, а это, часом, не подвал особняка?"
+
+"Эм…………"
+
+Услышав её слова, Ронье тоже представила себе план имения и леса. Поморгав, она медленно кивнула.
+
+"Да, получается так...... а что с этим не так?"
+
+"Просто...... это разве не странно? Если это подвал особняка, то нужно просто сделать лестницу в дом... Зачем делать вход в лесу в нескольких десятках мелов?"
+
+Сказать по правде, Тейза верно подметила. Снова вернулось то чувство дискомфорта, что вызвал ключ от металлической решётки, висящий рядом со входом, но даже после прокручивания этого в голове несколько раз, ответа всё не находилось.
+
+"Может поймём, если посмотрим, что там дальше..."
+
+Когда Ронье шёпотом ответила, её напарница протянула "Ну...". После всего того, что случилось до этого момента, они не могли просто развернуться и уйти, не обследовав каждый угол подвала.
+
+После этого диалога двое людей с двумя животными продолжили идти по проходу на юг.
+
+Впереди слабо мерцал жёлтый свет. Принюхавшись к затхлому воздуху, можно было ощутить в нём аромат горения, уникальный для масляных светильников. И кроме того, какой-то ещё слабый запах.
+
+Цукигаке, всё ещё удерживаемая под левой рукой, тоже вытянула подёргивающуюся мордочку. Они продолжали идти на цыпочках, чувствуя, что этот запах слышится уже не впервые.
+
+И вот стало ясно, что свет поступал от двух масляных светильников, прикреплённых к стене справа. Проход заканчивался тупиком, но прямо перед ним, в левой стене что-то было. Там впереди стояла ещё одна решётка, тускло мерцавшая в свете лампад — нет, скорее это даже была…
+
+"...... Т-темница...?"
+
+— прошептала Тейза, и Ронье слегка ей кивнула.
+
+Она была слишком большой для двери. Железная решётка от пола до самого потолка выглядела точно также, как решётки в подвале здания стражи в Южной Центории. Это были две большие камеры, примерно по четыре мела шириной, расположенные одна за другой. Угол стены мешал посмотреть что внутри.
+
+Движение медленно продолжилось, спинами к левой стене. Когда они приблизились к темнице, таинственный запах усилился. *Что-то наподобие изношенных кожаных доспехов, как высохшая на солнце солома. Этот запах я уже слышала... где-то в Тёмной Территории, не в Мире Людей.......*
+
+Прежде, чем ответ сам к ней пришёл, Ронье достигла ближайшей камеры и остановилась перед ней. Вместе с Цукигаке, которую она обнимала, они обе медленно вытянули шеи и заглянули внутрь из-за стены.
+
+Свет висевших на противоположной стене лампад был слишком слаб, и не проникал в глубину камеры. Аккуратно просунув светящуюся ветку, она тут же поняла, что внутри не было пусто. В дальнем от Ронье углу виднелись трое пленников. Казалось, что они спали в обнимку.
+
+Тела, завёрнутые в какое-то тряпьё, были слишком коротки. Все они были не больше полуметра. *Дети...... нет, руки слишком длинные будут. Безголовые головы, острые носы и уши.  
+Это не дети, и вообще не жители Мира Людей.  
+Это гоблины.*
+
+Она отшатнулась, прижав ветку в своей правой руке к губам. Через секунду, рядом возникло лицо Тейзы.
+
+"Что случилось....... Там есть кто-нибудь?"
+
+Ронье несколько раз кивнула на этот шёпот. Выдохнула, затем медленно втянула воздух сквозь нос. Без сомнений, она уже раньше слышала эту смесь аромата сухой соломы и телесной вони, когда посещала деревню горных гоблинов.
+
+"Там...... горные гоблины, трое. Я думаю, это те туристы, которых похитили из таверны в Южной Центории."
+
+"Э…………"
+
+Тейза округлила глаза и заглянула в темницу, уцепившись за тело Ронье. Спустя примерно три секунды она вернулась в предыдущее положение и кивнула.
+
+"И правда ведь... но... как...? Как гоблины, похищенные в Южной Центории оказались в доминионе Императора Северной Империи?"
+
+На этот вопрос нельзя было ответь сходу.
+
+*Для того, чтобы переместиться из Южной Центории в Северную Центорию, нужно пройти через Восточную Центорию или Западную Центорию и значит им пришлось дважды пересечь "бессмертную стену". Чтобы пройти через ворота, которые существуют только одни на город, необходимо обладать разрешением на провоз или однодневным проходным жетоном, и конечно, ни разрешение, ни жетон так просто не получить.*
+
+*Нет, поддельный чиновник, похитивший гоблинов, обладал поддельными документами из администрации Южной Центории, так что они и разрешения могли подделать, но даже так, остаётся вопрос, почему они решились на риск быть остановленными на воротах, лишь бы привести их в Северную Империю. В Южной Империи тоже обширные земли, и там должно быть достаточно места чтобы спрятать гоблинов.*
+
+"...... потом об этом подумаем."
+
+Пробормотав это больше самой себе, Ронье взглянула Тейзе в лицо.
+
+"Надо достать этих троих оттуда и забрать в Собор."
+
+"Ага... но смотри, тут замок на двери, разве нет?"
+
+Было так, как и указала Тейза. Они быстро обшарили окружавшие стены, но, как и ожидалось, ещё раз найти ключ им не повезло. Однако, в отличие от предыдущей ситуации, теперь всё было иначе.
+
+Они своими глазами видели туристов из Тёмной Территории, похищенных фальшивым чиновником, а ныне заключённых. Это очевидное неповиновение Объединённому Совету Мира Людей, даже суждения учеников Ронье и Тейзы было достаточно чтобы прийти к этому выводу.
+
+"Я сломаю камеру."
+
+Сказав это, Ронье своей правой ладонью прикоснулась к рукояти Меча Лунного Света.
+
+*Материал железной решётки темницы — вероятно тот же, из которого сделаны входные ворота на поверхности. Но приоритет Меча не должен проиграть. Сможет он прорубиться или нет — зависит от навыка использующего.*
+
+"... Я поняла. Пожалуйста сделай это, Ронье."
+
+Тейза на секунду улыбнулась и снова посмотрела на камеру.
+
+"Но перед этим нужно разбудить гоблинов. Они будут напуганы, если ты внезапно используешь секретный навык."
+
+"Ну..."
+
+Страх Тейзы был оправдан, но задача разбудить гоблинов, которые, должно быть, повалились спать от истощения, выглядела на удивление сложной. Если они закричат, это встревожит похитителей в доме сверху.
+
+Конечно, разрубить Мечом железную решётку тихо тоже не получится, но если использовать быстрейшую секретную технику, которую Ронье знала — и если её провести успешно, шум снизится до тихого металлического звука. Поэтому, гоблинов следовало разбудить заранее.
+
+Присев на корточки, Ронье отпустила Цукигаке из своей левой руки. Это случилось, когда она сложила руки вокруг рта и собиралась тихо позвать спящих гоблинов.
+
+Проход наполнился громким шумом, как будто друг о друга тёрлись тяжёлые предметы.
+
+В тот же миг, как Ронье и Тейза резко подскочили на ноги, трое горных гоблинов встрепенулись в камере и, заметив Ронье, стоящую перед железной решёткой, начали кричать.
+
+"**Гиииии**!!!"
+
+"Хватит, не бей больше!"
+
+Эта троица, которым, видимо, пришлось несладко во время пленения, крепко друг друга обняли и начали дрожать. Нужно было объяснить, что это пришла помощь, но время было упущено.
+
+Стена в конце прохода, который, как они подумали, был тупиком, медленно поднималась, громыхая. Скрытая дверь ── без сомнений, это был тот же самый звук, что они слышали перед входной дверью особняка.
+
+И тот факт,что дверь открывалась, означал, что кто-то оттуда готовился войти в подземелье.
+
+В проходе не было места, где они могли бы спрятаться. Поскольку поворот остался более, чем в 30 мелах позади, они не успели бы добежать вовремя.
+
+"...... Не остаётся другого выбора - будем сражаться."
+
+— резко прошептала Тейза прямо в ухо замершей Ронье.
+
 ## Продолжение следует...
 
-<!--The descending stairs were longer than could be imagined. There was a landing after they descended thirty steps, и then it went for another thirty, where it finally turned into a flat aisle. Since the height of one step was about 20 cen, it could be counted as about 12 mels underground. For Собора, that would be equal to a height of a third floor.
-
-The air was somewhat warmer than outside, but also damp и moldy. In truth, they first thought that there might be a hidden treasure chest of the Император Норлангарт stored in the basement, but if someone keeps it in such a place, the treasure box will lose its Life in a few years и it will decay into trash.
-
-After about 50 meters, the long underground passageway turned to the right. Finally, they saw a weak light ahead. But it was not a relief. Whatever the light source was, there must be someone who ignited it.
-
-There was still a distance of over 30 mel to the light, but Ронье saw the other one giving her a sign и stopped. No noise or talk could be heard at that moment. When she carefully tried to resume advancement, her cloak hood was lightly pulled behind.
-
-She startled, winced и turned around.
-
-"……What's wrong?"
-
-To that whispered question, Тейза looked up at the ceiling of the aisle with a difficult expression. Ронье also looked upwards, but she could only see the same stone-cladding as the wall was made of.
-
-Тейза muttered, frowning:
-
-"Went from the backyard СевернойЗападной, entered the forest... descended from that small shrine to the basement, turned back once....... ── Ронье, is this not the basement of the mansion by any chance?"
-
-"Ehm…………"
-
-After hearing her words, Ронье also imagined the plan of the manor и the forest. She nodded slowly after blinking.
-
-"Yeah, that's right...... what is wrong with that?"
-
-"Because...... isn’t it weird? If it's a basement of a mansion, you only need to make a staircase to the building... Why would you have an entrance in the forest several tens of mels away?"
-
-*To say the truth, Тейза's made a good point. Again, a sense of discomfort revived after thoughts of a key fitting to the metal grid hanging near the entrance, but even if you think it all over, the answer will not come out.*
-
-"Maybe we'll find out if we take a look at what’s down there..."
-
-When Ронье responded in whispering, her partner muttered "well...". After all that happened so far, they couldn’t turn back without having checked every corner of the basement.
-
-After this exchange, two people with two animals began tiptoeing Южной along the passage.
-
-Up ahead, the yellow light was vaguely trembling. Concentrating on the musty smell, it could be noticed that it contained a burning aroma unique to oil lanterns. и some faint different smell, too.
-
-Цукигаке, still held under the left arm, also protruded the twitching snout. While feeling as though it was a smell smelt somewhere, they kept tiptoeing on.
-
-Eventually, turned out the light was produced by two oil lanterns attached to the wall on the right. The passage was a dead end, but just before it, there seemed to be something on the left wall. It was another grate shinning dully up ahead in the light of the lanterns — no, it was rather…
-
-"...... P-prison...?"
-
-— whispered Тейза, Ронье slightly nodded to her.
-
-It was too big for a door. The iron lattice extending from the floor to the ceiling was exactly like that in the cellar of the Южной Центория Guards building. There were two large cells of about four meters wide, placed side by side. The corner blocked the view of what’s inside.
-
-Moving ahead steadily, back against the left wall. As they approach the prison, the mysterious smell became stronger. *It is something like a worn leather armor, like dried straw in the sun. Same smell Я smelt... somewhere in the Тёмной Территории, not Мира Людей.......*
-
-Before the answer came to her, Ронье reached the closest cell и stopped before it. Together with Цукигаке she embraced, they both slowly stuck heads out from behind the wall и peeked inside.
-
-The light of lanterns hanging on the opposite wall was too weak, и did not reach into the depth of the cell. After gently inserting the lit branches, she quickly understood that it is not empty inside. At the far corner from Ронье, three prisoners could be seen. It seemed, they were sleeping, huddled.
-
-The bodies wrapped in some rags were quite short. All of them were under the half a mel. *Children...... no, their arms are too long for the case. Hairless heads, sharp noses и ears.  
-They are neither children nor a Мира Людей person.  
-They are гоблинов.*
-
-She recoiled, biting hard the branch in her right hand. In a second, Тейза’s face appears near.
-
-"What's wrong....... Was there anyone?"
-
-Ронье nodded several times to this whisper. Exhaled, then sucked in air deeply through the nose. There was no doubt, this mix of the dry straw aroma и the common body odor she smelled in the past, at the time of visiting the mountain гоблинов.
-
-"There are...... mountain гоблинов, three of them. Я think they are the tourists who were taken away from the Inn in Южной Центория."
-
-"Eh…………"
-
-Тейза rounded her eyes и looked into the prison, clinging to Ронье's body. She returned to the original position in about three seconds и nodded.
-
-"It's really the case... but... how...? How did гоблинов kidnapped in Южной Центория end up in the Северной Империи доминион Императора?"
-
-This question could not be answered right away.
-
-*In order to move from Южной Центория to Северной Центория, one would need to go through Восточной Центория or Западной Центория и in this case they must cross the "timeless wall" twice. To go through the gate which is provided only one per city, it is necessary to have a traffic pass or a one-day passage permit, и of course, neither pass nor permit is easy to obtain.*
-
-*No, a fake official who abducted the гоблинов would fake the identity of the Южной Центория administration, so they might be capable of faking permits as well, but even so, the question remains as to why they took the risk of being stopped at the gate to bring them to the Северной Империи. There is also a vast land in the Южной Империи, и there should be enough places to hide the гоблинов.*
-
-"...... let’s think about it later."
-
-Having muttered this mostly to herself, Ронье looked at Тейза’s face.
-
-"We have to bring those three out of here и take them to Собора."
-
-"Yeah... but look, there is a lock on the prison, is not it?"
-
-It was as Тейза pointed out. They quickly looked over the surrounding walls but, as expected, it was not possible to find the key again. However, the situation was quite different from the previous one.
-
-Tourists from Тёмной Территории, taken away by a fake official, are imprisoned in front of one’s eyes. It is an obvious rebellion against the Объединённого Совета Мира Людей, even the own judgment of apprentices Ронье и Тейза was enough to draw the conclusion.
-
-"Я will break the cell."
-
-Having said so, Ронье touched the handle of Меч of the Moonlight with her right hand.
-
-*The material of the prison’s iron grid is probably the same as the one of the ground-level entrance gate. But the Меч’s priority should not lose. Whether you can cut through or not depends on the skill of the user.*
-
-"... Я understood. Please do it, Ронье."
-
-Тейза who smiled for a moment, looked into the prison again.
-
-"But we should wake up гоблинов before that. They will be scared if you suddenly use the secret skill."
-
-"Well..."
-
-Although Тейза's fear is reasonable, it was unexpectedly challenging to quietly awake the гоблинов who might have fallen asleep as they were exhausted. If they scream, the kidnappers in the house above would be alarmed.
-
-Of course, it is not silent to cut through the iron grid with a Меч either, but if you use the fastest secret technique Ронье knew — и if it is completely successful, it will be suppressed to a quiet metal sound. Because of this, the гоблинов must be awakened in advance.
-
-After squatting down on the floor, Ронье released Цукигаке on her left arm. It happened when she put both hands around her mouth и was about to gently call the sleeping гоблинов.
-
-A loud noise echoed through the passage, as if some heavy things were grinding.
-
-At the same time as Ронье и Тейза abruptly rose back to the standing postures, the three mountain гоблинов jumped up in the prison и began to shout after noticing Ронье who was in front of the iron grid.
-
-**"Giiii**!!!"
-
-"Stop it, not hurt more!"
-
-The three of them, apparently handled quite roughly when imprisoned, embraced each other hard и shuddered. It would be necessary to explain that they came to help, but the timing was off.
-
-The wall at the end of the aisle they thought that it was a dead end was slowly rising with the roaring sound. Hidden door ── no doubt the sound faintly heard at the front door of the mansion was the same sound.
-
-And the fact that the door was opening meant that someone was going to enter the dungeon from there.
-
-There was no place where they could hide themselves in the aisle. Since the turning bend behind was more than 30 mel away, they already could not run away in time.
-
-"...... There is no choice but to fight."
-
-— Тейза sharply whispered close to the ear of frozen Ронье.
-
-That was exactly right. If you cannot hide, the only remaining option is to fight or to surrender. The question is only which one to choose.
+<!--That was exactly right. If you cannot hide, the only remaining option is to fight or to surrender. The question is only which one to choose.
 
 Ронье и Тейза simultaneously pulled out Мечs from their left hips и held them with both hands.
 
