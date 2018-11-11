@@ -906,7 +906,7 @@ Ronye thought this way, firmly grasping the Sword of the Moonlight with both han
 
 *Whatever the man is waiting for, there is no reason for us to play along. If he is truly the same person as the kidnapper in Obsidia, the man would use poison. Rather than just wait for him to use something he’s got, we should hit first action here.*
 
-They didn’t kill him, though. Ronye would slash the enemy's right leg and Tiese would slash his left leg to take away the ability to fight.
+They wouldn’t kill him, though. Ronye would slash the enemy's right leg and Tiese would slash his left leg to take away the ability to fight.
 
 When Ronye moved a little to the left, Tiese instantly realized her intent and swung the sword in the opposite direction.
 
@@ -968,7 +968,7 @@ And the man's left hand was gripping the neck of the young dragon wrapped in blu
 
 — Tiese cried out with a grieving voice.
 
-Both of them were constantly talking to Tsukigake and Shimosaki since the moment the eggs the mother-dragon "Akisomi"<sup><a href="#Prim7">7</a></sup> was brooding, finally hatched, essentially, they spent eight months together. There was absolutely nothing that could hurt more.
+Both of them were constantly taking care of Tsukigake and Shimosaki since the moment the eggs the mother-dragon "Akisomi"<sup><a href="#Prim7">7</a></sup> was brooding, finally hatched, essentially, they spent eight months together. There was absolutely nothing that could hurt more.
 
 Tiese tried to jump to the man in a black robe straight away, but froze on the spot just like Ronye did, after making a step ahead.
 

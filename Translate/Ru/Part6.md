@@ -839,7 +839,7 @@ _Я никогда не видела страшного призрака.
 
 "Хватит, не бей больше!"
 
-Эта троица, которым, видимо, пришлось несладко во время пленения, крепко друг друга обняли и начали дрожать. Нужно было объяснить, что это пришла помощь, но время было упущено.
+Эта троица, которым, видимо, несладко пришлось во время пленения, крепко друг друга обняли и начали дрожать. Нужно было объяснить, что это пришла помощь, но время было упущено.
 
 Стена в конце прохода, который, как они подумали, был тупиком, медленно поднималась, громыхая. Скрытая дверь ── без сомнений, это был тот же самый звук, что они слышали перед входной дверью особняка.
 
@@ -851,130 +851,130 @@ _Я никогда не видела страшного призрака.
 
 — резко прошептала Тейза прямо в ухо замершей Ронье.
 
-## Продолжение следует...
+Это было правдой. Раз спрятаться было нельзя, из всех вариантов оставалось только сражаться или сдаться. Вопрос лишь в том, какой выбрать.
 
-<!--That was exactly right. If you cannot hide, the only remaining option is to fight or to surrender. The question is only which one to choose.
+Ронье и Тейза одновременно сняли мечи со своих левых бёдер и взяли их обеими руками.
 
-Ронье и Тейза simultaneously pulled out Мечs from their left hips и held them with both hands.
+На полу, широко расправляя крылья, тут же встали: прямо перед ногами Ронье — приготовившаяся к сражения ради защиты своей хозяйки — Цукигаке, и рядом с ней, у ног Тейзы, Шимосаки.
 
-On the floor, widely spreading the wings, just in front of Ронье's feet — apparently preparing to fight defending her owner — Цукигаке, и next to her, at Тейза's feet, Шимосаки stood quickly.
+"Цукигаке, Шимосаки, быстро забирайтесь в камеры и ни звука!"
 
-"Цукигаке, Шимосаки, get into the cell now и stay quiet!"
+Молодые драконы издали недовольное "Ку-ру-ру......", но подчинились приказу. Сперва, Цукигаке протиснулась через проём в железной решётке. Царапая ограждение обеими ногами, она изогнула тело дабы суметь пролезть, и кубарем покатилась в центр камеры. Горные гоблины в дальней части камеры тихо взвизгнули, но вскоре поняли, что она была безобидным существом.
 
-Young dragons leaked unhappy "Ку-ру-ру......", but obeyed the order. First, Цукигаке squeezed through the gap in the iron grid. Rattling the grating with both legs, she bent the body to go through the gap, и rolled up in the center of the cell. Mountain гоблинов let out a quiet yelp at the back of the cell, but soon they were able to see that it was a harmless creature.
+Следом, Шимосаки попытался пролезть сквозь решётку. Скрытая дверь уже наполовину поднялась, и воздух, холодный словно белый дым, вытекал из тьмы по другую её сторону. Тьма была слишком плотной, и разглядеть внешность того, кто стоял по другую сторону было невозможно, но что-то в его присутствии было отдалённо знакомым.
 
-Next, Шимосаки tried to go through the grid. The hidden door was already half-lifted, и white-smoke-cold air flowed out of the darkness on the other side. The darkness was too dense, it wasn’t possible to see the appearance of the one who was behind the door, but the presence felt somehow familiar.
+"Шимосаки, быстрее!"
 
-"Шимосаки, hurry!"
+Шимосаки ответил болезненным подвыванием на голос Тейзы. Судя по всему, ширина проёмов в решётке была несколько меньше, чем в двери на поверхности. Цукигаке, бывшая чуть меньше, возможно из-за того, что недолюбливала рыбу, ухитрилась протиснуться, но сустав крыла Шимосаки никак не проходил.
 
-To Тейза’s voice, Шимосаки responded in a pained growl. Apparently, the gap of the grid was slightly narrower than the door on the ground. Цукигаке, who was somewhat smaller due to fish dislike, managed to pass through but the joint of Шимосаки’s wing got stuck.
+Она подумала было подтолкнуть рукой, но если это сделать слишком агрессивно, можно было повредить хрупкие кости крыла. Пока она сомневалась, дверь открывалась всё больше и больше.
 
-She thought about pushing by hand, but if it is done too aggressively, one might break delicate wing bones. While she was hesitating, the door opened more и more.
+"Шимосаки, всё хорошо! Давай за нас!"
 
-"Шимосаки, you're good! Behind us!"
+— выкрикнула Тейза, отбросив сомнения, держа меч наготове. Шимосаки же ответил "Ку-ру", высвободился из железной решётки и забежал за этих двоих.
 
-Тейза shouted again without hesitation while holding the Меч ready. Шимосаки also answered "Ку-ру", pulled the body out from the iron grid и ran behind the two of them.
+И вот, скрытая дверь поднялась практически до самого потолка и с тяжёлым звуком остановилась.
 
-At last the hidden door lifted almost to the very ceiling и stopped with a loud sound.
+Через несколько секунд они услышали **ко-ц**, шаркающий, сухой звук шагов. **Ко-ц**, **ко-ц**, затем — шаги по каменному полу: из тьмы кто-то приближался.
 
-A few seconds later, they heard **ko-ts**, a shuffling, dry sound of footsteps. **Ko-ts**, **ko-ts**, then steps over the stone floor, someone was approaching from inside the darkness.
+Ронье с трудом устояла перед внезапным желанием сходу ударить секретным навыком ещё до того, как она могла увидеть приближавшуюся фигуру. Совершить такое означало уподобиться не рыцарю, но трусу, к тому же, если оппонент будет убит, ни его личности, ни причин для похищения горных гоблинов уже не удастся установить.
 
-Ронье hardly kept the impulse of slashing them with the secret skill before she could see the figure appearing. That would be not a knight’s but a coward’s action, besides, once the person is killed you won’t know the identity of the opponent or the reason for abducting the mountain гоблинов.
+Через несколько секунд, тянувшихся неимоверно долго, в слабом свете масляной лампады, наконец, появился некто.
 
-After several seconds that felt tremendously long passed, finally someone appeared in the weak light of oil lantern.
+Он выглядел полностью чёрным, словно бы сама тьма кристаллизовалась в человеческую фигуру. Прежде, чем до неё дошло, что он был просто облачён в угольно-чёрный плащ, Ронье какое-то время не была уверена, живой ли это человек вообще.
 
-His appearance was completely black, as if the darkness itself had crystallized into a human figure. Before she understood that he was just wearing a jet-black robe, Ронье wasn’t sure for a moment, whether it was a really living person or not.
+*── Да нет, это человек.  
+Более того, заметно выделившийся.*
 
-*── No, it is a human.  
-Moreover, one of a remarkable appearance.*
+Тот самый, кто похитил Лизетту, дочь главнокомандующего Тёмной Территории Исукана и посла Шейты, человек в чёрном плаще. Фигура человека перед ней излучала точно такую же атмосферу, как и тот, человек ли, демон ли, кому она противостояла на запечатанном верхнем этаже замка Обсидия.
 
-The one who kidnapped Lisetta, the daughter of the Тёмной Территории commander Isukan и ambassador Шейта, the man in the black robe. The human figure in front of her emanated exactly the same atmosphere as the one, whether a human, or a demon, whom she opposed on the sealed top floor of Obsidia Castle.
+*Однако, это же невозможно.*
 
-*However, it is impossible.*
+Прошло всего три дня с того момента, как похититель в чёрном плаще выпрыгнул из окна замка Обсидия и исчез. Расстояние от Обсидии до Центории было более чем 3000 килолу. Чтобы его преодолеть требовалось полгода пешего хода, три месяца каретой, и даже у всадника-гонца, стремительно мчавшегося через десяток связанных городов и деревень это занимало две недели. Для того чтобы переместиться оттуда за три дня, требовалось использовать дракона, но пронесись кто-то над Миром Людей на драконе, не принадлежавшем Рыцарям Целостности, — и поднялась бы большая шумиха.
 
-Only three days have passed since the kidnapper in the black robe jumped out of the Obsidia castle window и disappeared. The distance from Obsidia to Центория is more than 3,000 kilolu. To move between them, it takes half a year on foot, three months in a carriage, и two weeks even for a horse messenger moving quickly through ten connected towns и villages. In order to move in three days, one only had to use a dragon, but if one flies a dragon that is not owned by Рыцари Целостности over the Мира Людей, it would have made a big fuss.
+*Тогда, тот же человек ли это, или же просто он так поход на своего сообщника?*
 
-*Is it the same person, or is this one just close enough to their counterpart?*
+Пытаясь найти зацепки чтобы прийти к какому-то ответу, Ронье отчаянно осматривала его с ног до головы.
 
-Trying to find the material to judge it, Ронье desperately looked him over.
+Правая рука похитителя была отсечена мечом посла Шейты по прозвище "Молчунья", и сразу же после этого его левая руку отрубило секретное движение стиля Айнкрад "Звуковой скачок", выполненное Ронье. Высокоуровневые практики Священных Искусств были способны восстановить  конечности при помощи лечебных техник, но в движениях должна была оставаться некоторая неуверенность как минимум в течение недели.
 
-The kidnapper had his right arm cut off with a Меч of ambassador Шейта called "silent knight", и immediately after that his left arm was slashed with Ронье's Incrad secret move "Sonic Leap". A high-level Sacred Art practitioner could regenerate arms и legs by healing techniques but certain awkwardness in motion should still remain for как минимум one week.
+Но человек в чёрном плаще — или это был не он, всё ещё было непонятно ─ замер, сделав один шаг вперёд и больше не двигался. Только его глаза, зафиксировавшиеся на Ронье и Тейзе, горели из черноты под капюшоном.
 
-But the black robe man — still unclear whether or not it was him ─ stopped after making one step ahead и did not move anymore. From the darkness behind the deep hood, only his eyes glittered, fixed on Ронье и Тейза.
+*Оценивает наши намерения...... или, может быть он чего-то ждёт......?*
 
-*Estimates our attitude...... or, is he waiting for something......?*
+Так думала Ронье, крепко сжимая обеими руками Меч Лунного Света.
 
-Ронье thought this way, firmly grasping the Меч of the Moonlight with both hands.
+*Чего бы этот человек не ждал, у нас нет причин ему подыгрывать. Если это и вправду тот же человек, что был похитителем в Обсидии, он будет использовать яд. Так что, чем ждать, пока он что-нибудь использует, первый удар должен быть за нами.*
 
-*Whatever the man is waiting for, there is no reason for us to play along. If he is truly the same person as the kidnapper in Obsidia, the man would use poison. Rather than just wait for him to use something he’s got, we should hit first action here.*
+Хотя, они бы его не убили. Ронье бы отсекла правую ношу врага, а Тейза — левую, чтобы таким образом лишить его возможности сражаться.
 
-They didn’t kill him, though. Ронье would slash the enemy's right leg и Тейза would slash his left leg to take away the ability to fight.
+Когда Ронье немного сдвинулась влево, Тейза мгновенно поняла её намерение и занесла меч в противоположном направлении.
 
-When Ронье moved a little to the left, Тейза instantly realized her intent и swung the Меч in the opposite direction.
+Для того чтобы одновременно выполнить секретное движение стиля Айнкрад "Откос", им нужно было синхронизировать дыхание. Вдох, выдох и снова вдох.
 
-In order to execute Incrad style secret move "Slant" at the same time, they had to align breath. Inhale, exhale и inhale again.
+В тот момент, когда она стала бы полностью синхронной со своей напарницей, Ронье была готова начать движение.
 
-Ронье tried to move the moment she felt she was in complete sync with her best friend.
+Однако, человек в чёрном первым начал двигаться в идеальный момент, словно стараясь предотвратить этот последний вздох.
 
-However, as if to steal that last breath, the black robe man moved with perfect timing.
+Напади он — они с Ронье без малейшего колебания выполнили бы секретное движение. Однако, человек просто поднял обе руки и беззаботно откинул капюшон назад. Их дыхание нарушилось, и кончик меча в руках Ронье немного качнулся назад.
 
-Had he attacked, Ронье и the other one would have executed the secret moves without any hesitation. However, the man quite casually lifted both hands, и merely swept the black hood behind. The breathing was disturbed, и Ронье slightly drew the Меч tip back.
+Одновременно с этим, раздался низкий голос:
 
-Almost at the same time, a low voice sounded.
+"Незваные гости. Или... быть может это провидение, что ниспослал мне Бог Вектор?"
 
-"Unwelcomed guests. Or... should Я call it God Vector's guiding hand?"
+Этот низкий, с хрипотцой, голос был знако́м. Но он отличался от голоса похитителя из Обсидии, вкрадчивого, словно дуновение вера.
 
-That low, rusty voice was familiar. It was quite different from Obsidia kidnapper’s gentle breeze-like voice.
+Движение поднимавших капюшон рук было плавным, и кроме того, Ронье было знакомо лицо человека.
 
-The movement of both hands lifting the hood was also smooth, и above all, Ронье was familiar to the man’s face.
+Стремительное и жестокое, оно напоминало хищную птицу. Седые усы и заострённая борода. Пара глаз, сияющих светло-голубым, подобно замёрзшим озёрам.
 
-A fierce и violent appearance reminiscent of a bird of prey. Gray mustache и beard with sharply pointed tip. Pair of eyes shining in the light-blue like a frozen lake.
+"...... Д-да вы, должно быть......"
 
-"...... Y-you’ve got to......"
+— пробормотала Тейза дрожащим голосом.
 
-— Тейза muttered in trembling voice.
+Ронье тоже хотелось это сказать.
 
-Ронье also wanted to say exactly the same.
+Это был Шестой Император Северной Империи Норлангарт, Крюгер Норлангарт....
 
-Норлангарт Северной Империи Sixth Император, Крюгер Норлангарт....
+Объятое пламенем украшение, висящее на угольно-чёрной стене, отдалённые звуки сражения на мечах — воспоминания вспыхнули ярко.
 
-A bursting with flames decoration hanging on the jet-black wall, distant sounds of Меч fight — the memories revived vividly.
+*Но это же невозможно. Император Крюгер определённо умер возле трона в тронном зале Имперского Замка около года тому назад.*
 
-*But, this is impossible. Император Крюгер certainly died by the throne in the throne hall of the Imperial Palace, just about a year ago.*
+Ронье и Тейза более чем пять минут с переменным успехом вели битву на мечах с самим Императором, нападавшим в стиле Высшая Норкия, который делал акцент на силе удара, хотя и время отдачи было довольно долгим. Затем опоздавший Дюсольберт выстрелил в правую ногу Императора огненной стрелой из своего Божественного Инструмента, Лука Опаляющего Пламени, и когда движения того замедлились, они с Ронье не теряя времени одновременно выполнили секретные движения, глубоко пронзив правую и левую стороны груди Императора.
 
-Ронье и Тейза were engaged in the seesaw Меч fight directly with the Император, who attacked in the High Норкия style, which boasts the power of a blow, although the cooldown is also long, for more than five minutes. Then Дюсольберт, who came late, shoot the Император's right leg with a fire arrow from his Divine Object Conflagrant Flame Bow, so when his movement stopped, Ронье и the other one without missing a moment simultaneously executed their secret moves, deeply penetrating the Император's right и left sides of chest.
+С подобными ранами ни один человек бы не выжил. Смерть Императора подтвердил и Дюсольберт, а тело забрали в Собор и кремировали с остальными двумя Императорами. Ронье чётко видела, что останки Императора стали зёрнами святой силы и растворились в воздухе.
 
-There is no human being able to live with such wounds. The death of the Император was also confirmed by Дюсольберт, the body was taken to the Собора, и brought to cremation with the other two Императорs. Ронье certainly saw that the remnants of the Император became grains of divine power и melted away in the air.
+Поэтому, Император Крюгер просто не мог быть жив.
 
-Therefore, Император Крюгер simply couldn’t be alive.
+Однако, человек в чёрном плаще, стоящий перед ними, не мог быть  никем другим, кроме как Императором Крюгером самолично.
 
-Yet the man in a black robe in front of them could not be thought of as anyone else except for the Император Крюгер himself.
+Ронье застыла, неспособная двигаться или говорить. Её поле зрения сузилось, тело перестало ощущаться. И только строгие ледяные глаза человека перед ней становились всё больше и больше.
 
-Ронье has become numb и could neither move nor talk. The field of view narrowed, the sense of the body disappeared. Only the man's severe icy eyes were getting bigger и bigger.
+Именно из-за того, что она находилась в этом напоминающем паралич состоянии.
 
-Because she was in such a state of paralysis.
+Реакция на тихий звук, пришедший сзади, была слишком запоздалой.
 
-To a faint sound she heard from behind, the response was delayed.
+*── Шаги...... неожиданно...... враг!*
 
-*── Footsteps...... unexpected...... enemy!*
+Когда эти разрозненные мысли вспыхнули в её мозгу, Ронье быстро развернулась, выставив свою левую руку в сторону человека с лицом Императора. Но в тот момент ещё один человек в чёрном плаще, сумевший бесшумно подобраться сзади и оставшийся незамеченным вплоть до того как приблизился вплотную, резко отпрыгнул назад.
 
-As these fragmentary thoughts sparked in her mind, Ронье quickly turned around while turning her left hand towards the man who had the face of the Император. But at that time, another black robe man who was quietly creeping unnoticed until getting in the close vicinity abruptly jumped back.
+А в его левой руке была зажата шея маленького покрытого синими перьями дракона.
 
-And the man's left hand was gripping the neck of the young dragon wrapped in blue feathers.
+"Гю-ру-руу!!!"
 
-"Gyu-ру-ру-u!!!"
-
-— the dragon screamed painfully.
+— болезненно прокричал дракон.
 
 "Шимосаки!!!"
 
-— Тейза cried out with a grieving voice.
+— горестно воскликнула Тейза.
 
-Both of them were constantly talking to Цукигаке и Шимосаки since the moment the eggs the mother-dragon "Akisomi"<sup><a href="#Prim7">7</a></sup> was brooding, finally hatched, essentially, they spent eight months together. There was absolutely nothing that could hurt more.
+Они обе постоянно заботились о Цукигаке и Шимосаки с того момента, как яйца, которые высиживала мать-дракон "Акисоми"<sup><a href="#Prim8">8</a></sup>, наконец, проклюнулись, по сути, они вместе провели восемь месяцев. Не было абсолютно ничего, что могло бы ударить больнее.
 
-Тейза tried to jump to the man in a black robe straight away, but froze on the spot just like Ронье did, after making a step ahead.
+Тейза сразу же попыталась прыгнуть к человеку в чёрном плаще, но сделав шаг, застыла на месте, подобно Ронье.
 
-The man put a large knife he held in his right hand to the base of Шимосаки's neck.
+## Продолжение следует...
+
+<!--The man put a large knife he held in his right hand to the base of Шимосаки's neck.
 
 The blade of the knife was dyed reddish green, и it was clear at first sight that the color came from poison. Шимосаки himself also seemed to sense the danger, stopped struggling.
 
@@ -1196,6 +1196,5 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 5. <a name="Prim5"></a>Ронье незнаком концепт ‘пончо’ поэтому здесь в её мыслях у нас ‘плащ’. Тоже самое касается ‘О-ната’ (Великий Нож Пирамидоголова из Сайлент Хилла), становящегося ‘кёдайна-ната’, (просто огромный тесак) чуть ниже. Отдельная ремарка для русского перевода. Cloak != robe, но как я и писал в комментариях к 19 тому, ни один из вариантов перевода robe, которые я нашёл, не устроили меня, и я оставил плащ, поэтому хотя у меня у получается что и ПоХ, и таинственный похититель из прошлого тома оба в плащах, для Ронье они разные персонажи в разной одежде.
 6. <a name="Prim6"></a>В оригинале “опустила”, но учитывая, что обе девушки должны быть под 160 см (вы же помните 180-см "гиганта", не так ли?), у вас будут кошмары, если попытаетесь это представить.
 7. <a name="Prim7"></a>Сформировать элемент, форма тумана.
-<!--7. <a name="Prim8"></a>暁染, Color-of-the-dawn. Я wonder, however, if アキソミ was an attempt to encode “Axiom” in the dragon name convention format (2 characters, 4 syllables, ending with “-i” — of which Цукигаке is the only exception Я know), which would raise more questions about this never-heard-of-before dragon.
-8. <a name="Prim9"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.
-9. -->
+8. <a name="Prim8"></a>暁染, Цвет восхода, "Зарецвет". Меня, однако, заинтересовало, может ли アキソミ быть попыткой закодировать “Аксиома” в формате конвенции имён драконов (2 символа, 4 слога, заканчивается на “-и” — из которых Цукигаке является единственным известным мне исключением), что, конечно, поднимет много вопросов об этом никогда ранее не упоминавшемся драконе.
+<!--9. <a name="Prim9"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.-->
