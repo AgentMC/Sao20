@@ -996,7 +996,7 @@ After letting out a gruesome laugh, the emperor-like man traced the left side of
 
 "But unfortunately, it is myself who gives orders here. Both of you, throw down swords and slide them away with your feet. If you do anything even a little strange, the head of the baby lizard will fall."
 
-*── At that time your neck will fall as well.*
+*── At that time your head will fall as well.*
 
 She would respond this way, but even if the opponent is a true emperor Krueger, they couldn’t afford risking Shimosaki's life. Ronye turned the gaze of her squinted eyes to Tiese and slightly nodded to her.
 
@@ -1010,7 +1010,7 @@ With his right hand he took out a shiny black key of the robe's bosom. And threw
 
 "Open the cell next to the goblins, get inside, close the door and lock it."
 
-Ronye was considering a plan of approaching the emperor when he picks up the sword to dispose of it and thus loses the focus, capturing him with bare hands and using the hostage to make the man behind to release Shimosaki. However, the emperor calmly kept the distance and did not move. Quickly glancing behind she saw the poison blade still put against the neck of Shimosaki who had to endure it, struggling occasionally.
+Ronye was considering a plan of approaching the emperor when he picks up the swords to dispose of them and thus loses the focus, capturing him with bare hands and using the hostage to make the man behind to release Shimosaki. However, the emperor calmly kept the distance and did not move. Quickly glancing behind she saw the poison blade still put against the neck of Shimosaki who had to endure it, struggling occasionally.
 
 They understood that escape will be difficult once they enter the cell, but they had no choice but to obey.
 
@@ -1072,7 +1072,7 @@ A wave of anger run through the whole body of Ronye. The man in front of her ─
 
 The metal grating on the ground found by the two people was not to prevent intrusion from the outside. That door was opened to bring out the corpses of innocent people from the underground dungeon from the inside. That is why the key was hanging in an unusual place. Because if you think about it, there is no chance someone would sneak with malice into the emperor's house within the emperor’s territory.
 
-Even though Tiese was an apprentice of an Integrity Knight, when she pulled the iron grid with all her strength, the grill only slightly creaked. Imagining how the private territory dwellers trapped here before desperately grabbed the grid, Ronye felt more and more anger rising in her trembling body.
+Even though Tiese was an apprentice of an Integrity Knight, when she pulled the iron grid with all her strength, it only slightly creaked. Imagining how the private territory dwellers trapped here before desperately grabbed the grid, Ronye felt more and more anger rising in her trembling body.
 
 However, at that time, a man in black robe who captured Shimosaki appeared without any sound from the right side of the aisle and stood behind the emperor. After seeing the poisoned knife left on the neck of the young dragon, Tiese released the grid.
 

@@ -841,7 +841,7 @@ _Я никогда не видела страшного призрака.
 
 Эта троица, которым, видимо, несладко пришлось во время пленения, крепко друг друга обняли и начали дрожать. Нужно было объяснить, что это пришла помощь, но время было упущено.
 
-Стена в конце прохода, который, как они подумали, был тупиком, медленно поднималась, громыхая. Скрытая дверь ── без сомнений, это был тот же самый звук, что они слышали перед входной дверью особняка.
+Стена в конце прохода, который, как они подумали, был тупиком, медленно поднималась, громыхая. Потайная дверь ── без сомнений, это был тот же самый звук, что они слышали перед входной дверью особняка.
 
 И тот факт,что дверь открывалась, означал, что кто-то оттуда готовился войти в подземелье.
 
@@ -861,7 +861,7 @@ _Я никогда не видела страшного призрака.
 
 Молодые драконы издали недовольное "Ку-ру-ру......", но подчинились приказу. Сперва, Цукигаке протиснулась через проём в железной решётке. Царапая ограждение обеими ногами, она изогнула тело дабы суметь пролезть, и кубарем покатилась в центр камеры. Горные гоблины в дальней части камеры тихо взвизгнули, но вскоре поняли, что она была безобидным существом.
 
-Следом, Шимосаки попытался пролезть сквозь решётку. Скрытая дверь уже наполовину поднялась, и воздух, холодный словно белый дым, вытекал из тьмы по другую её сторону. Тьма была слишком плотной, и разглядеть внешность того, кто стоял по другую сторону было невозможно, но что-то в его присутствии было отдалённо знакомым.
+Следом, Шимосаки попытался пролезть сквозь решётку. Потайная дверь уже наполовину поднялась, и воздух, холодный словно белый дым, вытекал из тьмы по другую её сторону. Тьма была слишком плотной, и разглядеть внешность того, кто стоял по другую сторону было невозможно, но что-то в его присутствии было отдалённо знакомым.
 
 "Шимосаки, быстрее!"
 
@@ -873,7 +873,7 @@ _Я никогда не видела страшного призрака.
 
 — выкрикнула Тейза, отбросив сомнения, держа меч наготове. Шимосаки же ответил "Ку-ру", высвободился из железной решётки и забежал за этих двоих.
 
-И вот, скрытая дверь поднялась практически до самого потолка и с тяжёлым звуком остановилась.
+И вот, потайная дверь поднялась практически до самого потолка и с тяжёлым звуком остановилась.
 
 Через несколько секунд они услышали **ко-ц**, шаркающий, сухой звук шагов. **Ко-ц**, **ко-ц**, затем — шаги по каменному полу: из тьмы кто-то приближался.
 
@@ -972,139 +972,139 @@ _Я никогда не видела страшного призрака.
 
 Тейза сразу же попыталась прыгнуть к человеку в чёрном плаще, но сделав шаг, застыла на месте, подобно Ронье.
 
-## Продолжение следует...
+Человек приставил большой нож, что он держал в правой руке, к основанию шеи Шимосаки.
 
-<!--The man put a large knife he held in his right hand to the base of Шимосаки's neck.
+Лезвие ножа было окрашено красно-зелёным, и с первого взгляда становилось ясно, что этот цвет возник из-за яда. Шимосаки, похоже, и сам почуял угрозу и прекратил трепыхаться.
 
-The blade of the knife was dyed reddish green, и it was clear at first sight that the color came from poison. Шимосаки himself also seemed to sense the danger, stopped struggling.
+Человек молча и бесшумно отступил назад и остановился более чем в пяти мелах от них. Так или иначе, а в этой ситуации у них бы и пошевелиться не вышло.
 
-The man retreated silently without saying a word и stopped in more than five mels away from them. Anyway, they couldn’t move a finger in this situation.
+"Вы же рыцари, а беспокоитесь за ящерицу."
 
-"You are knights, but care about that lizard."
+Начал говорить, саркастически ухмыляясь, Император Крюгер, стоявший перед потайной дверью — или как минимум человек с его лицом и голосом.
 
-The Император Крюгер standing in front of the hidden door — or как минимум the man with his face и voice, began talking, sneering sarcastically.
+"Разве в итоге это не просто животное? Есть много альтернатив; я нахожу это непростым для понимания."
 
-"Is it not just an animal after all? There will be many alternatives, Я find it hard to understand."
+"...... Вам и не нужно ничего понимать."
 
-"...... You don’t need to understand anything."
+— ответила Тейза голосом, оттолкнувшим исходящее от него давление.
 
-— Тейза answered with a voice that pushed the pressure away.
+"Скажите ему чтобы отпустил Шимосаки. Если хоть волосок с его головы упадёт, ни один из вас отсюда живым не выйдет."
 
-"Tell him to let Шимосаки go. If you scratch as much as his hair, none of you two will get outta here alive."
+"Ку-ку-ку, становясь рыцарем, обретаешь силу."
 
-"Ку-Ку-ku, becoming a knight, one also gains power."
+Испустив отвратный смешок, похожий на Императора человек провёл пальцем по левой стороне своей груди. Год назад в это место глубоко вонзился меч Тейзы.
 
-After letting out a gruesome laugh, the Император-like man traced the left side of his chest with his finger. A year ago, that place was deeply penetrated by Тейза’s Меч.
+"Но, к несчастью, приказы здесь отдаю я. Вы обе, бросьте мечи на пол и отпихните их ногами. И стоит вам сделать хоть что-то подозрительное, голоса той мелкой ящерицы падёт."
 
-"But unfortunately, it is myself who gives orders here. Both of you, throw down Мечs и slide them away with your feet. If you do anything even a little strange, the head of the baby lizard will fall."
+*── тогда за ней тут же последует твоя.*
 
-*── At that time your neck will fall as well.*
+Так ей хотелось ответить, но даже если оппонент и был подлинным Императором Крюгером, рисковать жизнью Шимосаки они не могли себе позволить. Ронье перевела взгляд своих сощуренных глаз на Тейзу и слегка ей кивнула.
 
-She would respond this way, but even if the opponent is a true Император Крюгер, they couldn’t afford risking Шимосаки's life. Ронье turned the gaze of her squinted eyes to Тейза и slightly nodded to her.
+Вместе они бросили обнажённые мечи на пол. Про себя извинившись перед мечами, они аккуратно поддели клинки носками ботинок и аккуратно толкнули их к Императору.
 
-Together they dropped the released Мечs onto the floor. While apologizing to the Мечs in the mind, they carefully hooked Мечs with tips of boots и gently slid them to the Император.
+Император подцепил оба меча высунувшейся из-под подола плаща правой ногой и безыскусно отшвырнул их в тьму за потайной дверью. Серебристые отблески последний раз моргнули в плотной темноте и исчезли.
 
-The Император picked two Мечs with the right foot appearing from under the hem of robe и casually kicked them behind the hidden door. The silver glow glinted in the dense darkness и disappeared.
+"Хорошо. Так, следующий приказ."
 
-"Good. Now, the next order."
+Правой рукой он выудил из недр плаща блестящий чёрный ключ и и бросил его Ронье. Та рефлективно поймала его обеими руками. Несмотря на то, что он, по идее, какое-то время был за пазухой, ключ был холоден как лёд.
 
-With his right hand he took out a shiny black key of the robe's bosom. и threw it to Ронье. Reflectively she caught it with both hands. Despite it was supposed to have been in the pocket for a long time, the key was as cold as ice.
+"Открой соседнюю с гоблинами камеру, заходите внутрь, потом затвори дверь и запри её."
 
-"Open the cell next to the гоблинов, get inside, close the door и lock it."
+У Ронье в голове был план, броситься на Императора когда тот поднимет мечи чтобы от них избавиться и поэтому потеряет концентрацию, голыми руками схватить его и использовать как заложника чтобы человек позади отпустил Шимосаки. Однако, Император продолжал спокойно сохранять дистанцию и не сдвинулся с места. Мельком бросив взгляд назад, она увидела, что ядовитый клинок всё ещё приставлен к шее Шимосаки, которому приходилось это терпеть, время от времени трепыхаясь.
 
-Ронье was considering a plan of approaching the Император when he picks up the Меч to dispose of it и thus loses the focus, capturing him with bare hands и using the hostage to make the man behind to release Шимосаки. However, the Император calmly kept the distance и did not move. Quickly glancing behind she saw the poison blade still put against the neck of Шимосаки who had to endure it, struggling occasionally.
+Было очевидно, что стоит им зайти в камеру, и побег сильно осложнится, но иного выбора кроме как подчиниться не оставалось.
 
-They understood that escape will be difficult once they enter the cell, but they had no choice but to obey.
+Ронье глазами подала Тейзе сигнал, они подошли к пустой камере слева в конце прохода. Она открыла дверь полученным ключом и вместе с подругой они зашли внутрь. Закрыла дверь, просунула руку через проём в решётке, вставила ключ в скважину и повернула направо.
 
-Ронье signaled Тейза with eyes, they approached an empty cell in the back of the left side. She unlocked the door with the key she got и entered inside together with her friend. Closed the door, thrusting the hand through the gaps in the lattice, inserting the key into the keyhole и turning it to the right.
+*Притвориться, что заперла но по правде оставить незапертым...... Я думаю, это наверное невозможно. Приходят на ум слова, которые сказал Кирито: "Ключ и замочная скважина в этом мире являются частью системы, а не механизмом".*
 
-*To pretend it is locked и in fact to leave it in an unlocked state...... Я guess, that is probably impossible. The words Кирито said: "The key и keyhole of this world is systematic rather than mechanical mechanism" are reviving in the mind.*
+_Священное слово "**система**" в контексте Священного Искусства означает "принцип мироздания". Мастер ключей, получивший Священный Долг, передаваемый из поколения в поколение, от родителей к детям, делает замочную скважину, пробивая фамильным долотом отверстие в металлической пластине, затем делает ключ из обрезков из той же пластины, и только лишь благодаря принципам, определённым в этом мире, такая пара ключа и замочной скважины работают как пара, я полагаю, вот что Кирито имел в виду. По этой причине, существуют всего два положения у ключа: "заперто" и "открыто", и нет никакого способа сфабриковать такое состояние, которое бы выглядело как запертое, но по факту открылось бы от сильного удара._
 
-_The sacred word "**system**" in the context of Sacred Art is a word meaning "the principle of the world". The key master, given a Sacred Task inherited from generation to generation, from parents to children, makes a keyhole by punching the iron plate with family-specific chisel, then makes a key from the iron scraps from the same plate, и it is only because so is determined by the principle of this world that only the pair of those key и keyhole functions as a combination, Я guess, that’s what Кирито meant. For this very reason, there are only two positions of a key: "locked" и "unlocked", и there is no way to fake a state when it looks as if it is locked, but will be unlocked with a strong shock._
+Когда Ронье повернула ключ вправо, в какой-то момент она почувствовала сопротивление, и вслед за ним раздалось безжалостное **га-чин**. Вытащив ключ, она швырнула его назад Императору.
 
-As Ронье turned the key to the right, at certain point she felt a kind of resistance, и eventually a ruthless sound **ga-chin** was heard. Having pulled the key out, she threw it back the Император.
+Император Крюгер, поймавший его бледной правой рукой, снова улыбнулся, возвращая ключ за пазуху.
 
-Император Крюгер who caught it with a pale right hand smiled again while returning the key to the bosom of robe.
-
-"Ку-ku... quite a wise decision. Я wouldn’t want to defile this historic place with lizard blood."
+"Ку-ку... какое мудрое решение. Мне бы не хотелось осквернять это историческое место кровью ящерицы."
 
 "...!!!"
 
-Placing the left hand on the shoulder of Тейза who was about to shout in anger, Ронье asked in a quiet voice.
+Опустив левую руку на плечо Тейзе, готовой что-то возмущённо выкрикнуть, Ронье тихим голосом спросила:
 
-"Historic......? It looks like just a dungeon."
+"Историческое......? Выглядит как обычная темница."
 
-Then the Император picked a sharp chin beard with his fingertips и nodded.
+На что Император кивнул, ущипнув кончиками пальцев остроконечную бороду.
 
-"It is certainly just a dungeon. However, the stone you are stepping on, for over 300 years had soaked in a lot of blood. The blood of many people of my territory, punished by the aristocratic judgement right....... "
+"Это, конечно, всего лишь темница. Однако, камень, по которому вы ступаете, за более чем 300 лет впитал в себя много крови. Крови множества людей с моей территории, наказанных по праву аристократического осуждения....... "
 
 "............!"
 
-Ронье stopped breathing и dropped the gaze to the dark floor stone by her feet.
+У Ронье перехватило дыхание, и взгляд её опустился вниз, на тёмные камни пола под её ногами.
 
-The aristocrat judgement right was a privilege given only to the Император и the senior aristocrats, to punish those who misconducted at their own discretion. Although only the lower aristocrats и the private territory commoners were the subject to punishment, Ронье's father, who was the sixth-class nobleman, seemed to have been humiliated several times due to punishment caused by higher aristocrats’ accusations.
+Право аристократического осуждения было привилегией, дарованной лишь Императору и старшим аристократам, позволявшей по собственному выбору наказывать провинившихся. Хотя лишь младшие аристократы и обитатели частных территорий подлежали такому наказанию, отец Ронье, принадлежавший к шестому классу аристократии, несколько раз был вынужден терпеть унижение от наказаний по обвинениям старших аристократов.
 
-But even aristocrats could not violate the Индекс Табу, which prohibited the deprivation of the other's Life without a reason. Because of that, the aristocrats’ personal punishment was an exception. But even Рыцари Целостности, who had been granted the greatest rights in Мира Людей, were restricted to a maximum of 70% of Life they could take away while punishing sinners.
+Однако и аристократы не могли преодолеть Индекс Табу, который возбранял уменьшение чужой Жизни без веской причины. Право аристократического осуждения было исключением из такого запрета. Но даже Рыцари Целостности, обладавшие самыми широкими правами в Мире Людей, были ограничены максимумом в 70% Жизни, который они могли отбирать, наказывая грешников.
 
-"...... The punishment that makes the floor dyed so much would be a violation of the Индекс Табу."
+"...... Наказание, от которого пол становится полностью окрашенным, будет нарушением Индекса Табу."
 
-When Ронье pointed that out in hoarse voice, the Император laughed again:
+Когда Ронье отметила это хриплым голосом, Император снова рассмеялся:
 
-"Ku, Ку-Ку-ku... There are countless methods such of how to get around that full of holes Index. It can be even said that the entire history of the Императорs of the four Империиs и of a senior aristocracy existed only due to the exploitation of that method."
+"Ку, ку-ку-ку... Существует бессчётное количество методов, позволяющих обойти этот дырявый Индекс. Можно даже сказать, что вся история существования Императоров четырёх Империй и старшей аристократии зиждилась на эксплуатации этих методов."
 
-The moment she heard the words, the abominable memory ripped her mind like a lightning flash in the dark night.
+В тот момент, когда она услышала эти слова, гнусное воспоминание вспыхнуло у неё в мозгу, подобно вспышке молнии, пронзающей тёмную ночь.
 
-Former elite мечник-стажёр Raios Antinous tried to trap Ронье и Тейза at the time when they were students, и then disgrace them using aristocratic judgment right as shield. This way his father, 3rd-class aristocrat brought him up, и the father of his father, и it can only be imagined how sneaky и unscrupulous acts were happening in their private territories.
+Бывший элитный мечник-стажёр Райос Антинос пытался заманить Ронье и Тейзу в ловушку когда они ещё были студентами, и затем обесчестить их, прикрываясь правом аристократического осуждения. Так его воспитывал его отец, аристократ 3-го класса, и отец его отца, и можно лишь воображать, какие подлые и бесчестные действия творились на их частных территориях.
 
-Especially, if a person is the Император Норлангарт, standing above all the aristocrats ──
+Тем более, если их вершил Император Норлангарт, стоящий над всеми аристократами ──
 
-"... Didn’t you wonder, girl? Why is there an underpass to the forest in the back yard while there is also a door leading to the mansion?"
+"... Ты разве не догадалась ещё, девочка? Зачем под задним двором тоннель в лес, когда есть ещё и дверь в особняк?"
 
-Unexpectedly asked, Ронье looked at the face of the Император through the iron grid.
+Услышав этот неожиданный вопрос, Ронье взглянула в лицо Императора сквозь прутья железной решётки.
 
-With the faint smile burning under the thin mustache, the Император said without waiting for an answer.
+Под тонкими усами зажглась слабая улыбка, и Император сказал, не дожидаясь ответа:
 
-"Of course, it's to bring out the dead bodies, so that the blood of those filthy serfs does not defile the house."
+"Конечно же, чтобы когда выносят трупы, кровь этих свиней-крепостных не пачкала дом."
 
-"W-what?!"
+"Ч-что?!"
 
-— Тейза shouted. She rushed to the grid with the full speed her body allowed for и grasped the steel rods with both hands.
+— выкрикнула Тейза. Она рванула к решётке со всей скоростью, на которую было способно её тело и обеими руками схватила железные прутья.
 
-A wave of anger run through the whole body of Ронье. The man in front of her ── or rather whole his family, since long ago had been confining their private territory dwellers to this prison, slipped around the Индекс Табу и tortured them, taking life after life.
+Волна гнева окатила Ронье с головы до ног. Человек перед ней ── а точнее вся его семья, с давних пор заключали обитателей их частной территории в эту темницу, пытали их, пользуясь пробелами в Индексе Табу, и забирали жизни одну за другой.
 
-The metal grating on the ground found by the two people was not to prevent intrusion from the outside. That door was opened to bring out the corpses of innocent people from the underground dungeon from the inside. That is why the key was hanging in an unusual place. Because if you think about it, there is no chance someone would sneak with mАлиса into the Император's house within the Император’s territory.
+Металлическое заграждение на уровне земли, которое эти двое только что обнаружили, служило не для того, чтобы предотвратить вторжение снаружи. Та дверь открывалась чтобы вынести тела невинных людей изнутри, из подземной темницы. Поэтому-то ключ и висел в неожиданном месте. Ведь если так задуматься, было совершенно невообразимо, чтобы некто с умыслом проник в дом Императора в пределах Императорской территории.
 
-Even though Тейза was an apprentice of an Рыцарь Целостности, when she pulled the iron grid with all her strength, the grill only slightly creaked. Imagining how the private territory dwellers trapped here before desperately grabbed the grid, Ронье felt more и more anger rising in her trembling body.
+Хотя Тейза и была учеником Рыцаря Целостности, когда она со всей силы потянула железную решётку, она лишь тихо скрипнула. Представляя, как жители частной территории, которых здесь запирали раньше, отчаянно хватались за эти прутья, Ронье чувствовала, что её дрожащее тело всё больше наполняется гневом.
 
-However, at that time, a man in black robe who captured Шимосаки appeared without any sound from the right side of the aisle и stood behind the Император. After seeing the poisoned knife left on the neck of the young dragon, Тейза released the grid.
+Однако, в тот момент, человек в чёрном плаще, схвативший Шимосаки, беззвучно появился из прохода справа и встал позади Императора. Увидев, что отравленный нож всё также приставлен к шее маленького дракона, Тейза отпустила решётку.
 
-Whether because he got tired struggling, Шимосаки was looking limp, и only thinly squeaked "Kyuii..." noticing his owner. The moment she heard the voice, Тейза also leaked a thin и short sobbing, и tears filled Ронье’s eyes.
+Возможно, из-за того, что он устал бороться, но Шимосаки выглядел безвольным и лишь пискнул "Кьюии...", заметив хозяйку. Стоило ей услышать этот голос, Тейза тоже коротко всхлипнула, и слёзы наполнили глаза Ронье.
 
-But she made herself to hold any loud sound.
+Но она заставила себя сдержаться и не издать ни звука.
 
-Цукигаке was hiding in the neighboring cell separated only with a stone wall. She is now following the previously received instructions of staying quiet, but if Ронье gave vent to the feelings Цукигаке would not be able to endure as well. She might even jump out of the prison и try to save her brother-dragon<sup><a href="#Prim8">8</a></sup> from the man in the black robe. The situation seems to be already bad, but if Цукигаке is caught, the possibility of escape would be considerably lower.
+Ведь в соседней камере, отделённой лишь каменной стеной, скрывалась Цукигаке. Она сейчас следовала последней полученной команде сидеть тихо, но стоит Ронье дать волю чувствам, и Цукигаке тоже не стерпит. Она может даже попытаться выбежать из клетки и попытаться спасти своего брата-дракона<sup><a href="#Prim8">8</a></sup> из рук человека в чёрном плаще. Ситуация и так выглядит не лучшим образом, но если и Цукигаке схватят, вероятность побега станет гораздо ниже.
 
-*── So please remain quiet, Цукигаке.*
+*── Так что пожалуйста, сиди тихо, Цукигаке.*
 
-While sending these thoughts through a thick stone wall, Ронье desperately tried to suppress her anger.
+Посылая эти мысли через толстую каменную стену, Ронье отчаянно пыталась подавить свой гнев.
 
-That moment Император Крюгер has turned his sharp glance at her as if he had read the thoughts.
+В тот миг Император Крюгер, словно прочитав её мысли, обратил на неё свой проницательный взгляд.
 
-"...... Black-haired girl, didn’t you bring your little lizard?"
+"...... Черноволосая девчонка, а ты свою ящерицу не привела?"
 
-Тейза replied instead of Ронье who could only silently nod because of this surprise attack, still holding the grid.
+Тейза ответила вместо Ронье, которая на эту внезапную атаку смогла только молча кивнуть, всё ещё держась за решётку.
 
-"...... Today, we came to catch some fish in the озеро to correct that child's fish dislike. Ронье's dragon is waiting in the Собора."
+"...... Сегодня мы пришли на озеро, чтобы наловить рыбы и таким образом исправить то, что этот мелкий не любил рыбу. Дракон Ронье ждёт на с в Соборе."
 
-"Oh.... You girls do not know, but there are five kinds of fish living in озеро Норкия. Я allowed to fish four of them, but those who caught a forbidden golden trout quickly got into this prison."
+"О.... Вам, девочки, невдомёк, но в озере Норкия живёт пять видов рыб. Я позволял ловить только четыре из них, но те, кто ловил запретную золотую форель, быстро оказывались в этой темнице."
 
-Тейза refuted to the Император who said that in a nostalgic tone.
+Тейза ответила Императору, произносившему это с ностальгией в голосе:
 
-"...... It would be impossible to fish only certain fish."
+"...... Но ведь невозможно ловить только определённую рыбу."
 
-"Aha, it is impossible. But the hungry people had nothing else left but to fish, praying that the most delicious golden trout would not hang on the hook. Only one could be caught per about three hundred fish, but given good fortune.... no, bad fortune, it was a real pleasure to watch   from the lakeshore the sorrow of those who had it enough to catch the forbidden fish."
+"Ага, невозможно. Но у голодных людей не оставалось других вариантов, кроме как рыбачить, молясь, чтобы самая вкусная золотая форель не попалась на крючок. Её можно было поймать всего одну на примерно три сотни других рыб, но при должной удаче.... нет, при должной неудаче, было истинным наслаждением наблюдать с берега горе тех, кому её хватило, чтобы поймать запретную золотую рыбу."
 
-While staring at the Император laughing gutturally “Ku! Ku! Ku!”, Ронье had to endure her fierce anger once again.
+## Продолжение следует...
+
+<!--While staring at the Император laughing gutturally “Ku! Ku! Ku!”, Ронье had to endure her fierce anger once again.
 
 Certainly, violations of the Индекс Табу и Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the Император was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ронье и Тейза to be able to apply the aristocratic judging right.
 
@@ -1197,4 +1197,4 @@ Knelt on a hard stone, Ронье gripped both hands и prayed.
 6. <a name="Prim6"></a>В оригинале “опустила”, но учитывая, что обе девушки должны быть под 160 см (вы же помните 180-см "гиганта", не так ли?), у вас будут кошмары, если попытаетесь это представить.
 7. <a name="Prim7"></a>Сформировать элемент, форма тумана.
 8. <a name="Prim8"></a>暁染, Цвет восхода, "Зарецвет". Меня, однако, заинтересовало, может ли アキソミ быть попыткой закодировать “Аксиома” в формате конвенции имён драконов (2 символа, 4 слога, заканчивается на “-и” — из которых Цукигаке является единственным известным мне исключением), что, конечно, поднимет много вопросов об этом никогда ранее не упоминавшемся драконе.
-<!--9. <a name="Prim9"></a>Worth noting, 兄竜 confirms that a) Шимосаки is male, и b) Шимосаки is older than Цукигаке.-->
+9. <a name="Prim9"></a>Стоит заметить, 兄竜 подтверждает, что a) Шимосаки самец, и б) Шимосаки старше Цукигаке.
