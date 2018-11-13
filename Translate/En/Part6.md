@@ -1170,7 +1170,7 @@ Tsukigake who passed through the iron grid back appeared in front of Ronye. When
 
 "Tsukigake, I beg you. Go along this aisle to the ground and get to the north gate of Centoria somehow...... when guards-san see you, they will take you to the Cathedral."
 
-It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Northern Centoria, and it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ronye did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
+It was a difficult order for the young dragon only eight months old. Lake Norkia was ten kilolu away from the Northern Centoria, and it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ronye did not know how much his Life will decrease before reaching the central capital. In the worst case, she might just collapse on the way.
 
 But that moment, Tsukigake was the only hope remaining. It was probably impossible to break the grid without a sword, and even if they do somehow it would certainly be noticed by the emperor, and Shimosaki might be killed.
 

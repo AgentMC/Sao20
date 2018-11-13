@@ -1102,90 +1102,87 @@ _Священное слово "**система**" в контексте Свя
 
 "Ага, невозможно. Но у голодных людей не оставалось других вариантов, кроме как рыбачить, молясь, чтобы самая вкусная золотая форель не попалась на крючок. Её можно было поймать всего одну на примерно три сотни других рыб, но при должной удаче.... нет, при должной неудаче, было истинным наслаждением наблюдать с берега горе тех, кому её хватило, чтобы поймать запретную золотую рыбу."
 
-## Продолжение следует...
+Впившись взглядом в гортанно хохотавшего “Ку! Ку! Ку!” Императора, Ронье пришлось ещё раз усмирить своя яростный гнев.
 
-<!--While staring at the Император laughing gutturally “Ku! Ku! Ku!”, Ронье had to endure her fierce anger once again.
+Конечно, в основном, нарушения Индекса Табу и Имперского Закона были случайностями. Это было естественным, поскольку чтобы намеренно нарушить закон, нужно было сломать "печать на правом глазу", но это не имело ничего общего с беспричинным наказанием за невезение, которого даже по собственной воле избежать было нельзя. К тому же, Император подталкивал обитателей своей частной территории чтобы они испытывали неудачу. По сути это не отличалось от Райоса Антиноса, провоцировавшего Ронье и Тейзу чтобы применить право аристократического осуждения.
 
-Certainly, violations of the Индекс Табу и Imperial Law were mostly accidental cases. It was natural since one had to break the "seal of the right eye" to deliberately disobey the law, but this had nothing to do with an unreasonable punishment due to a bad luck one couldn’t even avoid with their own will. Besides, the Император was pushing his private territory dwellers to attract that bad luck. Essentially it was the same as when Raios Antinous provoked Ронье и Тейза to be able to apply the aristocratic judging right.
+Вволю насмеявшись, Император отвернулся.
 
-After a long laughing, the Император turned his gaze away.
+"Хмм, похоже ящерица действительно одна, ну пока что я её забираю. Не волнуйтесь, всё с ней в порядке будет...... ну разве что вы решите вдруг сбежать из темницы, в случае чего — поджарю и скормлю гоблинам."
 
-"Hmm, it seems that there is only one lizard indeed, but I’ll keep this one for now. Worry not, it will be fine...... unless you try to escape from the prison, in which case I’ll roast и let the гоблинов eat it."
+Произнеся это, Император Крюгер обернулся к потайной двери.
 
-Having said so, Император Крюгер turned towards the hidden door.
+Затем остановился и бросил взгляд на Шимосаки, чью шею всё ещё держал помощник.
 
-But then stopped there и glanced at Шимосаки whose neck was still held by his subordinate.
+"....... Зеппос, как думаешь, ящерица пролезла бы через решётку камеры?"
 
-"....... Зеппос, do you think the lizard can pass through the cell grid?"
+У Ронье упало сердце. Человек в чёрном плаще по имени Зеппос поднял Шимосаки на уровень лица и внимательно его осмотрел, затем произнёс на удивление резким голосом:
 
-Ронье's heart made a giant leap. A man in black robe named Зеппос lifted Шимосаки up to his face и inspected him carefully, then said with a surprisingly shrill voice.
+"Разве что если насильно запихнуть."
 
-"If forcibly pushed in, maybe."
+"Правда?"
 
-"Is that so?"
+Император кивнул и, сняв со стены масляный светильник, направил его на камеру с Ронье и Тейзой. Его соколиный взор обвёл все углы, после чего он удовлетворённо кивнул.
 
-The Император nodded и lifted the oil lantern from the wall и directed it towards the cell with Ронье и Тейза. His sharp gaze browsed through every corner, then he nodded again as if satisfied.
+*Бросай и проваливай*, молилась Ронье. Однако, Император вместо левой стороны повернулся направо и шагнул к соседней камере.
 
-*Leave it и go away*, Ронье prayed. However, the Император turned right instead of the left и walked in front of the next cell.
+Цукигаке пряталась в углу во тьме, но в свете масляной лампы бледно-жёлтые перья мгновенно выдадут её. Можно было бы их каким-то образом отвлечь, но если их окликнуть, результат будет только негативным, и если и выиграет несколько десятков секунд, смысла в этом будет немного.
 
-Цукигаке was hiding in the dark in the corner, but if illuminated with a lantern, pale yellow feathers will be seen instantly. She could distract them somehow, but calling them would probably result in a negative effect only earning several tens of seconds, which would be meaningless.
+*──Цукигаке, если тебя обнаружат, сделай всё, чтобы добраться до двери на поверхности и убегай!*
 
-*──Цукигаке, if you’re found, do your best to get to the door at the ground и run away!*
+Ронье сжала кулаки, надеясь, что её мысли достигнут адресата.
 
-Ронье clenched fists hoping her thoughts reach the addressee.
+Император, стоявший перед соседней камерой, поднял правую руку со светильником. Нахмурился, вытянул шею и начал тщательно осматривать содержимое камеры.
 
-Император standing in front of the neighboring cell lifted the right hand with the lantern. Frowned, stretched his neck и began to persistently look around the inside of the cell.
+Прошло три секунды...... пять секунд... десять секунд.
 
-Three seconds passed...... five seconds... ten seconds.
+"............ Хм."
 
-"............ Hm"
+Коротко хмыкнув, Император отошёл от решётки. Он вернул лампаду в держатель на стене и ушёл за потайную дверь, не удостоив их с Ронье ни единым взглядом. За ним следовал человек по имени Зеппос, продолжавший держать Шимосаки.
 
-Having shortly snouted, the Император moved away from the grid. He returned the lantern to the holder on the wall, и returned behind the hidden door without even glancing at Ронье и the other one. Behind him followed a man called Зеппос still holding Шимосаки.
+Прошло какое-то время после того как силуэты этих двоих исчезли, и тихое "**га-кон**" раздалось из глубин темноты, после чего потайная дверь, поднятая до потолка, начала с грохотом опускаться.
 
-Some time has passed since the silhouettes of those two persons vanished, и a quiet sound "**ga-kon**" was heard from the deeps of the darkness, after which the hidden door lifted to the ceiling started to fall with the roaring.
+Когда нижний край двери с глухим звуком опустился на пол, Ронье резко выдохнула надолго задержанное дыханье. Тейза разжала кулаки, сжимавшие железную решётку, подскочила к Ронье и уткнулась лбом в её плечо.
 
-When the lower end of the door touched the floor with the earthy sound, Ронье suddenly breathed out the air she was holding. Тейза released both hands which were grasping the iron grid all the time, quickly approached Ронье и pressed the forehead against her shoulder.
+"... Всё будет хорошо, Шимосаки......"
 
-"... It's gonna be fine, Шимосаки......"
+Ронье закивала в ответ на её хриплый голос:
 
-Ронье nodded several times to this hoarse voice:
+"Конечно, Шимосаки для них важный заложник, они ему не навредят."
 
-"Of course, Шимосаки is an important hostage for them, they will never hurt him."
+"………… Угу."
 
-"…………Uhu."
+Несколько раз погладив спину Тейзы, Ронье аккуратно высвободилась. она осторожно приблизилась к железным прутьям и произнесла в сторону камеры справа так тихо, как только могла:
 
-After stroking Тейза's back few times, Ронье gently released her body. She approached the iron grid carefully и spoke to the right cell with a quietest voice:
+"Спасибо вам, гоблины-сан."
 
-"Thank you, гоблинов-сан."
+На какое-то время воцарилась тишина, но затем послышался похожий шёпот:
 
-For quite a while silence continued, but eventually a similar whispering voice was heard:
+"...... Маленький дракон, не найти."
 
-"...... Tiny dragon, cannot find."
+Именно так — могла быть лишь одна причина, из-за которой Император Крюгер не смог найти Цукигаке в маленькой камере. Горные гоблины, испуганно заверещавшие, когда Цукигаке пробралась в камеру, скрыли её от взора Императора своими телами.
 
-That's right — there was only one reason why Император Крюгер could not find Цукигаке in a small cell. The mountain гоблинов who gave frightened voice when Цукигаке got into the cell, hid her from the eyes of the Император using their bodies.
+"Огромное вам спасибо……"
 
-"Thank you very much……"
+Когда она их снова поблагодарила, в ответ раздалось тихое "Ку-ру".
 
-When she thanked them again, there was also a quiet chirping "Ку-ру".
+Цукигаке, выбравшаяся наружу сквозь железную решётку, появилась перед Ронье. Когда дракончик попытался снова протиснуться через прутья решётки, Ронье присела и обеими руками оттолкнула её.
 
-Цукигаке who passed through the iron grid back appeared in front of Ронье. When the young dragon tried to push the body through the grid again, Ронье crouched и pushed him back with both hands.
+"Цукигаке, молю тебя. Выйди по этому проходу на поверхность и как-нибудь доберись до Северный врат Центории...... когда стражники-сан тебя увидят, они заберут тебя в Собора."
 
-"Цукигаке, Я beg you. Go along this aisle to the ground и get to the Северной gate of Центория somehow...... when guards-сан see you, they will take you to the Собора."
+Для молодой драконихи всего-то восьми месяцев от роду это был весьма непростой приказ. Озеро Норкия было в десяти килолу от Северной Центории, да и добраться от этой виллы до столбовой дороги само по себе было нелегко. К тому же, поскольку в тот день они уже и так много ходили, Ронье не была уверена, на сколько снизится её Жизнь по достижении центральной столицы. В худшем случае, она могла просто свалиться с ног по дороге.
 
-It was a difficult order for the young dragon only eight months old. озеро Норкия was ten kilolu away from the Северной Центория, и it was not easy to get out of this villa to the high road either. Moreover, since they have already walked quite a lot that day, Ронье did not know how much his Life will decrease before reaching the central capital. In the worst case, he might just collapse on the way.
+Но на тот момент, Цукигаке оставалась единственной надеждой. Без меча решётку было разрушить, скорее всего, невозможно, и даже если бы у них и получилось, Император бы точно это услышал, и Шимосаки могли убить.
 
-But that moment, Цукигаке was the only hope remaining. It was probably impossible to break the grid without a Меч, и even if they do somehow it would certainly be noticed by the Император, и Шимосаки might be killed.
+Борясь с сильнейшим беспокойством, она обняла тело Цукигаке обеими руками, просунув их сквозь прутья решётки. В ответ, молодая дракониха чирикнула "Пожалуйста, оставь это на меня" ну или что-то в этом духе.
 
-While suffering from strong anxiety, she wrapped Цукигаке's body with both hands thrusted through the gaps in the grid. The young dragon chirped "Please leave it to me" or perhaps something alike in response.
+Попятившись, она выбралась из рук Ронье, дважды хлопнула крыльями и бросилась на север по проходу. Вскоре её фигура пропала, а цокающие звуки шагов растаяли вдали.
 
-She retreated back from Ронье’s hands, flapped the wings twice, и then started running Северной along the aisle. Soon her figure disappeared и the clinking footsteps tailed away.
+"...... Прости...... но пожалуйста, Цукигаке."
 
-"...... I’m sorry...... but please, Цукигаке."
-
-Knelt on a hard stone, Ронье gripped both hands и prayed.
+Стоя на коленях на твёрдом полу, Ронье соединила руки и молилась.
 
 ![Image](/Translate/Img/p205.jpg)
--->
 
 ## Примечания:
 
