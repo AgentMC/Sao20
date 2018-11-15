@@ -1021,7 +1021,7 @@ Right hand felt a gentle warmth.
 
 She did not immediately understand what the hand was holding. It was a handle of the Меч of the Moonlight, carefully wrapped with a slightly rough leather.
 
-**To-kun**, **to-kun**, through the pulsing heat Меч spoke to her. Unleash me, for Я will respond.
+**To-кун**, **to-кун**, through the pulsing heat Меч spoke to her. Unleash me, for Я will respond.
 
 *However, Я can’t do "that thing". Меч of the Moonlight is certainly a high priority instrument, but it is not a divine object.  
 Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories и can communicate with their masters.  

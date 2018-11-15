@@ -3,151 +3,153 @@
 <!--<sup><a href="#Prim1">1</a></sup>-->
 <!--![Image](/Translate/Img/p167.jpg)-->
 
-The bell rang the majestic 3 o’clock melody.
+Колокол пробил три часа пополудни, отзвонив волшебную мелодию.
 
-Асуна said, while placing the cup of strong kohiru tea onto the table.
+Опустив чашку крепкого чая кохиру на стол, Асуна сказала.
 
-"Кирито-kun, you have to eat something. Even candy would do."
+"Кирито-кун, тебе нужно поесть хоть что-то. Вот хотя бы сладкое."
 
-"Mm......, yeah......."
+"Мм......, ага......."
 
-Кирито who was sitting with head resting on folded arms, stretched out his hand to the wooden plate of candies, и watched Асуна with a look as if he noticed something.
+Кирито, сидевший, опустив голову на сложенные руки, вытянул руку к деревянной тарелке с конфетами, а затем посмотрел на Асуну, словно бы что-то заметив.
 
-"W-what is it?"
+"Ч-что-то не так?"
 
-"No...... Я just thought that you often used to say such a thing in the past."
+"Нет...... Я просто подумал, что ты раньше такое часто говорила."
 
-Асуна understood that the words he said with a bitter smile were not about the time they started to live in this world, but rather about the real world. She sat on the chair next to him и returned the smile.
+Асуна поняла, что то, что он сказал с горькой улыбкой, было не о времени, когда они стали жить в этом мире, а про реальный мир. Она пересела на стул по соседству и ответила улыбкой.
 
-"Because Кирито-kun, if you get hooked on something you can easily disregard meals, without even noticing it."
+"Потому что, Кирито-кун, когда что-то тебя всерьёз занимает, ты легко жертвуешь едой, даже не замечая этого."
 
-"Ah... Юи was also often angry"
+"Эх... Юи тоже часто злилась."
 
-Despite responding in a casual tone, Кирито quickly turned his line of sight away. But still he felt something changing in Асуна’s expression, stretched out a hand и gently stroke her hair. As she relaxed enjoying that feeling, the pain piercing the chest gradually softened.
+Не смотря на то, что ответ прозвучал обыденно, Кирито торопливо отвёл взгляд. Тем не менее, он почувствовал, что что-то изменилось в выражении лица Асуны, протянул руку и ласково погладил её волосы. Когда она расслабилась, наслаждаясь моментом, пронзающая грудь боль начала потихоньку стихать.
 
-The two people could not meet Yui, a top-down AI born in the former SAO и also their ‘daughter’ anymore. Even with Yui's processing speed it would be difficult to synchronize with Underworld, which had been accelerated to a rate of 5 million times, и there was no way to connect for her in the first place.
+Эти двое не могли больше встретиться с Юи, нисходящим AI, рождённым в бывшем SAO, и ставшим им ‘дочерью’. Даже с учётом скорости обработки данных, на которую Юи была способна, было бы крайне сложно синхронизироваться с Подмирьем, ускоренным в 5 миллионов раз, да и прежде всего у неё не было возможности подключиться.
 
-Lisbeth и Silica who had been logging in to save the Мира Людей defense army from the crisis at the end of the Войны с Внешним Миром said that it was Юи who led themselves as well as Shinon и Leafa to Underworld. She gathered everyone, explained politely и clearly about the current situation in the Underworld и the importance of Алиса, и asked for cooperation.
+Лизбет и Силика, залогинившиеся чтобы поддержать Армию Защиты Мира Людей в критической ситуации в конце Войны с Внешним Миром, сказали, что это Юи привела их вместе с Синон и Лифой в Подмирье. Она всех собрала, чётко и вежливо объяснила нынешнюю ситуацию в Подмирье и важность Алисы, и попросила помочь.
 
-Without that Yui’s actions, the Мира Людей Defense Forces led by Асуна would be wiped out и Алиса would have been captured by the Император Vector. Thinking that they could never meet their beloved daughter who worked so hard again ─ even more, that there was no way to even tell her a word of gratitude, was painful, but she surely would understand. Even though Кирито и Асуна had no other way to go и became separated by time и space barriers, they would continue to love Юи forever.
+Без этих действий Юи, Армию Защиты Мира Людей, ведомую Асуной, стёрли бы с лица земли, и Алиса попала бы в руки Императора Вектора. Представлять, что им уже никогда не удастся увидеть свою любимую дочь, которая так старалась ради них ─ более того, что даже поблагодарить её уже не выйдет, было больно, но она бы конечно всё поняла. Пускай у Кирито и Асуны не было иного выбора, кроме как быть разделёнными пропастью времени и пространства, они могли всегда продолжать любить Юи.
 
-Юи seemed to describe the whole thing about Underworld и Алиса as "a proof of the existence for all VRMMO worlds beginning with SAO и the many people who lived there". So Асуна had to do her best to protect this world. Now, when the path of reconciliation has been opened up to Мира Людей и Тёмной Территории, it was absolutely necessary to prevent another war.
+Юи, вроде бы, назвала всю историю про Подмирье и Алису "доказательством существования всех VRMMO миров, начиная с SAO и множества людей, в них живших". Поэтому Асуна должна была сделать всё возможное, чтобы защитить этот мир. И теперь, когда для Мира Людей и Тёмной Территории, наконец, был открыт путь объединения, было совершенно необходимо предотвратить ещё одну войну.
 
-"...... because if we don’t work hard enough…"
+"...... ведь если мы не будем стараться изо всех сил…"
 
-Кирито muttered as if feeling Асуна's thoughts. He tapped her back with the hand that was stroking the hair, took some nuts и fruit from the wooden tray, opened the mouth wide и crunched them. Underworld was a virtual world, but unlike Incrad, when the hungry state lasts, Life level begins to decrease и the lack of nutrition eventually leads to a disease, so food was as important as in the real world.
+— пробормотал Кирито, словно чувствуя мысли Асуны. Той же рукой, что до этого гладила по голове, он похлопал её по спине, взял немного орехов и фруктов с деревянного подноса, широко открыл рот и захрумкал ими. Подмирье было виртуальным миром, но, в отличие от Айнкрада, если состояние голода продолжалось, Жизнь начинала уменьшаться и в конце концов недостаток питания приводил к болезни, так что пища была так же важна, как и в реальном мире.
 
-The on-the-spot survey in the Южной Центория administration held that morning revealed that there were no transfer orders for the three mountain гоблинов issued, и it became clear that the official who visited the inn did not actually exist. Although the seal of the administration was pressed on the order form, as was testified by the innkeeper lady who witnessed the transfer, but since the seal itself was of a simple design, it was easy to counterfeit it. If one could slip through the Индекс Табу which forbids the faking of any signs и signatures, of course.
+Допрос свидетелей в администрации Южной Центории, проведённый тем утром, подтвердил, что никаких приказов на перевозку трёх горных гоблинов выдано не было, и стало очевидно, что чиновника, объявившегося в таверне, не существует. И хотя на бланке приказа присутствовала печать администрации, как показала работница таверны, своими глазами видевшая перевозку, дизайн печати был прост, и подделать её мог кто угодно. Само собой, если этот кто угодно мог проскользнуть сквозь статьи Индекса Табу, запрещавшего подделку любых знаков и подписей.
 
-However, the man who killed the old Язен with his own hand whom Асуна had seen in the "Past Reflection Art" — to be fair, she only saw an arm holding the dagger, but anyway ─ was clearly not bound by the Индекс Табу. If the fake official who took away the mountain гоблинов was the same person, he could fake any number of stamps.
+Однако, человек, собственноручно убивший старого Язена, и которого Асуне показало "Искусство Отражения Прошлого" — по честному, она видела только руку с кинжалом, ну да не суть,─ определённо не был связан Индексом Табу. Если он и фальшивый чиновник, увёзший гоблинов — это одно лицо, то он вполне мог подделать сколько угодно печатей.
 
-Investigation in the administration ended after the noon, и as a result Южной Центория was under throughout search for the three abducted гоблинов. The city was vast, but it was still only a quarter of the circular central capital. In addition, the Южной Центория guards tamed 20 desert wolves with sharp sense of smell, и it seems that whether the гоблинов are held in the building could be known by just sniffing the indoor scent coming from the door. By the evening all the buildings would be searched, so Кирито и Асуна were waiting for the report of discovery in their own Собора 's room now.
+Расследование в администрации завершилось после полудня, и как результат, по всей Южной Центория шёл тщательный поиск пропавших гоблинов. Город был обширен, но всё же это была лишь четверть круглой центральной столицы. К тому же, стража Южной Центории приручила 20 пустынных волков, обладавших острым обонянием, которым, судя по всему, было достаточно обнюхать дверь дома, чтобы по просочившемуся запаху понять, держат ли гоблинов внутри. К вечеру обыск охватит все дома, так что Кирито с Асуной в тот момент дожидались отчёта в соей комнате в Соборе.
 
-In fact, both of them wanted to participate in the search, but the knight leader Фанатио, who was concerned about the possibility that this abduction would be a trap to lure Мира Людей Премьер-Мечник in as well as the Язен’s murder case, pleaded them to remain in the Собора. Then they wanted to как минимум gather in the large conference hall on the fiftieth floor, but then Асуна was strongly requested by the head of Sacred Arts division Ayuha so that she stays in her room until she completely recovers from mental exhaustion of the Past Reflection Art.
+Конечно, они оба с радостью бы приняли участие в поисках, но глава рыцарей Фанатио, обеспокоенная той возможностью, что это похищение было ещё одной ловушкой, чтобы заманить Премьер-Мечника Мира Людей, как и само дело об убийстве Язена, уговорила их остаться в Соборе. Тогда они собрались как минимум остаться в большом конференц-зале на пятидесятом этаже, но внезапно глава подразделения Священных Искусств Аюха потребовала от Асуны, чтобы та осталась в своей комнате до тех пор, пока полностью не восстановится после ментального истощения от Искусства Отражения Прошлого.
 
-Even Ayuha Furia, one of the Underworld best arts masters, could not use Past Reflection, и the reason it worked for Асуна, although for a very short period of time, as Ayuha speculated, was related to the power of God Stacia.
+Даже Аюха Фуриа, одна из лучших мастеров Священных Искусств Подмирья, не могла использовать Отражение Прошлого, и причина, по которой оно сработало (хоть и ненадолго) в случае Асуны, как Аюха размышляла, была связана с силой Богини Стасии.
 
-Асуна repeatedly explained that she was the Real World person и not a reincarnation of genesis goddess Stacia, but not only staff и clerics of Собора, even Рыцари Целостности did not appear to be entirely convinced. In order to prevent the misunderstanding from spreading any further, she attempted not to use "unlimited terrain manipulation ability" as much as possible... but while trying to prevent the Кирито machine dragon from crash just one week ago, she have shifted the upper floor of Собора sideways.
+Асуна не раз объясняла, что она человек из реального мира, а не реинкарнация Богини Творения Стасии, но не только персонал и клерики Собора, даже Рыцари Целостности не выглядели целиком убеждёнными. Для того чтобы удержать это недопонимание от дальнейшего распространения, она старалась по возможности не использовать "возможность неограниченного манипулирования ландшафтом"... но дабы предотвратить аварию искусственного дракона Кирито неделю назад, ей пришлось сдвинуть верхние этажи Собора в сторону.
 
-Anyway, Ayuha thought that the spirit of Асуна was tolerant to some extent to excessive information throughput и hence she could endure the Past Reflection. In fact, the burden of the technique itself did not decrease, Асуна could use it because she strongly believed in herself, и because she was aware that the safety of the mountain гоблинов is a major problem directly linked to the crisis of all Мира Людей, or all Underworld.
+Так или иначе, Аюха решила, что дух Асуны был в какой-то мере устойчив к массивному потоку информации, и поэтому та смогла выдержать Отражение Прошлого. По факту же, сложность самой техники не уменьшилась, Асуна смогла ей воспользоваться потому что верила в свои силы, и потому что она понимала: безопасность горных гоблинов была огромной проблемой, способной привести к кризису в Мире Людей, или во всём Подмирье.
 
-As in the case of old man Язен killed in Мира Людей, the criminal who abducted the three people for sure was preparing a similar situation, that if three of them were found dead, the peace between two worlds finally getting its shape would receive a devastating blow.
+Как и в случае с убийством старика Язена в Мире Людей, преступник, похитивший тех троих, определённо готовил подобную ситуацию, в которой, если их троих найдут мёртвыми, только-только начавший обретать очертания мир между двумя землями получит разрушительный удар.
 
-If the mountain гоблинов are not found during the search of the whole city of Южной Центория, there was only one way remaining. Again, at that inn, Асуна would have to use Past Reflection to examine the destination of the carriage. But this was problematic. Since it was impossible to move during the ceremony, it was necessary to repeatedly move to the point where the carriage in the crystal plate becomes invisible и see through the past again, but yesterday she used it once и that seemed to be enough for her to collapse. Асуна did not know how many times she could invoke the art, even taking breaks.
+Если в результате поиска гоблинов не разыщут во всей Южной Центории, останется лишь один способ. Асуне снова придётся использовать Отражение Прошлого в той таверне чтобы осмотреть содержимое повозки. Но это представлялось весьма непростым. Поскольку во время церемонии двигаться было невозможно, пришлось бы постоянно перемещаться к точке, в корой повозка переставала быть видна через хрустальную тарелку, и снова заглядывать в прошлое, однако вчера одного использования оказалось для неё достаточно чтобы упасть в обморок. Асуна не знала сколько раз она сможет выполнить Искусство, даже с передышками.
 
-Кирито had a concerned look because he strongly hoped that the гоблинов will be secured before the Past Reflection is needed. However, those hopes were gradually disappearing. Even though two и a half hours have already passed since the search began, not the missing three people, even the horse carriage used for abduction, have not been found.
+Кирито выглядел обеспокоенным; он очень надеялся, что гоблинов найдут до того, как понадобится Отражение Прошлого. Однако, эта надежда постепенно угасала. Даже по прошествии двух с половиной часов с начала поисков, не только пропавшая троица, но даже и следов повозки, использовавшейся при похищении, не было обнаружено.
 
-Асуна changed topic trying to soften stressed mood of Кирито who got silent again after having a cake.
+Асуна сменила тему, пытаясь расслабить волновавшегося Кирито, снова умолкнувшего после куска торта.
 
-"By the way, did the apprentice knights go out?"
+"К слову, а ученики рыцарей сегодня снаружи?"
 
-"Eh......? Ah... yup."
+"Э......? А... ага."
 
-After blinking, Кирито looked out the window.
+Поморгав, Кирито выглянул из окна.
 
-"As Я understand, Ронье's Цукигаке has recently disliked fish, so they went to a suburban озеро to fix it."
+"Как я понимаю, Роньина Цукигаке в последнее время отказывалась от рыбы, и они отправились к озеру на окраине чтобы это исправить."
 
-"Heh...... So, dragons also have preferences."
+"Хех...... Так что, у драконов тоже есть предпочтения."
 
-When she quietly chuckled, Кирито also relaxed his lips.
+Когда они негромко усмехнулась, Кирито тоже расслабил поджатые губы.
 
-"Apparently. Хайнаг, the stable keeper advised them, they should let them eat fish they caught themselves. "
+"Походе на то. Хайнаг, работник стойл, сказал, что следует дать тем съесть рыбу, что сами поймают."
 
-"Ah, it's oddly delicious when you get it with your own hands. The old days Я used to gather wild plants и mushrooms at grandpa’s place in Miyagi<sup><a href="#Prim1">1</a></sup>...."
+"Ах, оно почему-то вкуснее когда добываешь своими руками. Те дни, когда я собирала дикие травы и грибы у дедушки в Мияги<sup><a href="#Prim1">1</a></sup>...."
 
-Memories of childhood reviving vividly made her to forget recent sorrow, и Асуна exhaled a sigh of relief.
+Ярко вспыхнувшие воспоминания о детстве заставили её позабыть недавнюю печаль, и Асуна с облегчением вздохнула.
 
-*Come to think of it, the ingredients for cooking Я have used so far have only arrived from the market of the central city, Я never used the materials Я picked up. But ingredients of Underworld also begin to lose Life immediately after being picked, и it seems that the value directly relates to taste, so next time let's try cooking in the place where the material is found...* thinking so, she casually asked:
+*Если так подумать, ингредиенты, что я использовала в готовке до сегодняшнего дня, прибывали с рынка в центральном городе, я не использовала материалы, которые сама собрала. Но продукты Подмирья начинаю сразу же после сбора терять Жизнь, и её значение, судя по всему, напрямую связано со вкусом, так что в следующий раз надо будет готовить прямо на месте сбора...*, и думая таким образом, она без задней мысли спросила:
 
-"Where is the озеро that they two went to?"
+"А где то озеро, куда эти двое отправились?"
 
-"Err, well, Я guess it is not in the Северной Империи доминион Императора. Looks like the ice hasn’t melted yet...... although............"
+"Эээ, ну, я думаю, это не то, что в доминионе Императора Северной Империи. Лёд ведь ещё не растаял, наверное...... хотя............"
 
-As Кирито's word slowed down и broke off, Асуна tilted her head и looked at him.
+Слова Кирито замедлились и прервались, Асуна наклонила голову и вопросительно посмотрела на него.
 
-Премьер-Мечник intently gazed at a certain point in the air with an absent-minded face. Eventually, he slowly frowned и whispered:
+Премьер-Мечник с отсутствующим выражением пристально смотрел в определённую точку в воздухе. Наконец, он медленно нахмурился и прошептал:
 
-"...... Not in the city of Центория, outside the city...... For example, it’s possible they were taken to the former private territory...... is it not...?"
+"...... Не в городе Центория, вне города...... Например, их могли вывезти на бывшие частные территории...... разве нет...?"
 
-It was clear that the subject of the words were missing гоблинов. Асуна instantly shook her head.
+Очевидно, он говорил о пропавших гоблинах. Асуна мгновенно покачала головой:
 
-"It is impossible. Since Язен's incident occurred, people и horse-drawn carriages passing through Great Южной Центория Gate are strictly checked up to the contents of the luggage. No matter how small the гоблинов were, Я cannot imagine anyone missing the three people on board... besides, all of them must have been either restrained or unconscious."
+"Невозможно. С момента, когда произошёл инцидент с Язеном, люди и лошадиные повозки, проходящие через Великие Врата Южной Центории, строго проверяются на содержимое багажа. Какими бы маленькими не были гоблины, я не могу представить чтобы кто-то пропустил трёх человек на борту... к тому же, они все должны быть или связаны, или без сознания."
 
-"Yup, Я think that it is impossible to go through the Южной Gate, but...... what about other gates?"
+"Да, думаю, через Южные Врата это было бы невозможно, но...... как насчёт других?"
 
-She stared at the face of Кирито who quickly responded with another question.
+Она посмотрела на Кирито и тут же ответила вопросом на вопрос:
 
-"... You mean that the carriage has crossed the Timeless Wall и moved to Восточной Центория or Западной Центория.......?"
+"... Ты имеешь в виду, что повозка пересекла Бессмертную Стену и оказалась в Восточной Центории или Западной Центории.......?"
 
-"Or it did so twice, to get to Северной Центория."
+"Или сделала это дважды, чтобы попасть в Северную Центорию."
 
-"Uh-hu...."
+"У-гу...."
 
-Асуна caught up with the possibility she did not think about at all.
+Асуна осознала возможность, которая раньше не приходила ей в голову.
 
-Even Асуна who have seen a number of virtual worlds, could not help feeling awe in front of monstrous everlasting и unbreakable structure extending in total for 3000 kilometers и dividing Центория и the whole country of Мира Людей into four parts.
+Даже Асуна, видевшая немало виртуальных миров, не могла не чувствовать восхищение перед монструозной, вечной и неразрушимой конструкцией, протянувшейся в сумме 3000 километров и разделяющая Центорию и и весь  Мир Людей на четыре части.
 
-They said, Первосвященник Администратор had made it appear overnight with Sacred Art, but even with the unlimited terrain manipulation ability granted to the Stacia account, it was absolutely impossible to imitate the same. The enormous amount of data flowing into the fluctlight could not be tolerated, it would result in unconsciousness after making a wall of about only ten kilometers.
+Говорили, что Первосвященник Администратор заставила её появиться за одну ночь при помощи Священного Искусства, но даже при помощи способности неограниченного манипулирования ландшафтом, доступным аккаунту Стасии, было совершенно невозможно повторить подобное. Никто бы не выдержал невообразимого потока данных, хлынувшего сквозь флактлайт, стена всего лишь километров в десять уже привела бы к потере сознания.
 
-Because of that perception, Асуна has never imagined someone could be able to trespass the Timeless Wall, of walking on top of it like Кирито did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain гоблинов passed the wall.
+Из-за этого восприятия, Асуна никогда не представляла, что кто-то сможет проникнуть сквозь Бессмертную Стену, или прогуляться по ней, как Кирито сделал намедни. Поэтому она с самого начала исключила возможность того, что повозка с горными гоблинами пересекла Стену.
 
-"... In order to pass through the four gates on the Timeless Wall, it is necessary to have a pass issued by Собора or a day permit issued by the administration of one of the four Империиs... but......."
+"... Чтобы пройти через четверо ворот Бессмертной Стены, необходимо иметь пропускной жетон, выдаваемый в Соборе или разрешение на проезд, выдаваемое в администрации одной из четырёх Империй... но......."
 
-Кирито continued after Асуна’s murmuring:
+Кирито продолжил за бормотанием Асуны:
 
-"....... Kidnappers were able to fake the transport orders of the Южной Центория administration. Copper passes would be difficult to fake, but if it is a parchment permit....... ── In which case, the *modus operandi* finally becomes similar to that of Obsidia..."
+"....... Похитители смогли подделать приказ на перевозку из администрации Южной Центории. Медные пропуска будет сложно подделать, но если речь идёт о пергаментном пропуске....... ── В таком случае, почерк, наконец-то, начинает напоминать ситуацию в Обсидии..."
 
-The "black robe man" who kidnapped Ambassador Шейта’s и Commander Isukan’s daughter Lisetta, was hiding on the top floor of Obsidia Castle that everyone thought was impossible to make a way into. The reason that person could enter и exit the top floor seemed to have not been clarified yet. However, the behavioral pattern was indeed very similar to the abduction of mountain гоблинов this time.
+"Человек в чёрном плаще", похитивший Лизетту, дочь посла Шейты и командующего Исукана, скрывался на верхнем этаже замка Обсидия, куда никто не мог попасть. Причина, по которой этот человек смог туда входить и выходить, была ещё не до конца прояснена. Однако, шаблон поведения и вправду сильно напоминал нынешнее похищение горных гоблинов.
 
-For a moment Кирито tightened lips, then quickly stood up.
+На какое-то время Кирито поджал губы, затем быстро встал.
 
-"Let's extend the search of the гоблинов to the Севернойern, Eastern, Западной Центория и the former private territories in the suburbs."
+"Нужно расширить область поиска гоблинов на Северную, Восточную, Западную Центорию и бывшие частные территории в окраинах."
 
-"Well..."
+"Ну..."
 
-Асуна also stood up, turning her gaze to the Южной window.
+Асуна тоже встала, обратив свой взор к южному окну.
 
-Южной Центория's red sandstone townscape was illuminated by afternoon sunlight. The sky in the Западной was already dyed gold.
+Городской ландшафт Южной Центории, состоящий из красного песчаника, освещало послеполуденное солнце. Небо на западе уже окрасилось золотым.
 
-"... Look, it’s evening already. Is it not difficult to search outdoors in the night? Not to mention that private territories are quite vast... "
+"... Смотри, уже вечереет. Разве ночью не будет сложно искать снаружи? Не говоря уже о том, что частные территории весьма обширны... "
 
-"Ah... Я see. The search over private territories can wait till tomorrow morning, but it is better for the city one to start at once. I’ll go to the fiftieth floor, Асуна you should stay..."
+"А... согласен. Обыск частных территорий может подождать до завтра, но поиск в пределах города лучше начать немедленно. Я пойду на пятидесятый этаж, Асуна, а ты лучше оставайся..."
 
-Асуна stopped his phrase with a fingertip pressed against Кирито’s lips, и said:
+Асуна прервала эту фразу, прижав палец к губам Кирито, и сказала:
 
-"For sure, Я will also go, I'm fine, I've completely recovered from the exhaustion of the Past Reflection Art already."
+"Само собой, я тоже пойду, я в порядке, и уже полностью отошла от истощения от Искусства Отражения Прошлого."
 
-"............... understood."
+"............... понял."
 
-After nodding, Кирито took a piece of nougat from the wooden plate on the low table и thrusted it into Асуна’s mouth returning the favor:
+Кивнув, Кирито взял кусок нуги с деревянного подноса на низком столике и вложив его Асуне в рот, отплатил за услугу:
 
-"Then, Асуна, please eat properly."
+"Тогда, Асуна, пожалуйста, питайся хорошо."
 
-*Я know that* — she tried to say, but the only thing that came out of Асуна's mouth was "Omnomne".
+*Да знаю я* — попыталась она сказать, но единственный звук, вышедший изо рта Асуны, был "Ня-ням-нам-ням".
 
 ***
 
-When the two who rushed up the big staircase to the fiftieth floor entered the large conference hall, people surrounding the round table simultaneously turned their eyes at them.
+## Продолжение следует
+
+<!--When the two who rushed up the big staircase to the fiftieth floor entered the large conference hall, people surrounding the round table simultaneously turned their eyes at them.
 
 It was Ayuha Furia wearing white robe who said first:
 
@@ -303,18 +305,18 @@ A year и three months ago, just before the end of the Войны с Внешн�
 
 The next moment Асуна, who thought this, unconsciously clung firmer to Кирито’s body.
 
-As if he had been waiting for it, the field of vision suddenly gleamed bright green и after that loud burst sounds echoed from behind. Асуна shrieked, not ready to a violent acceleration as if being hit by a giant's hammer.
+As if he had been waiting for it, the field of vision suddenly gleamed bright green и after that loud burst sounds echoed from behind. Асуна shrieked, not ready to a violent acceleration as if being hit by a giant's hammer. -->
 
 
 
 
-## Footnotes:
+## Примечания:
 
-1. <a name="Prim1"></a>Prefecture in the Северной Honshu, 23% of it's territory consists of natural parks.
-2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, и light dress. Choose your poison.
+1. <a name="Prim1"></a>Префектура в северном Хонсю, 23% её территории покрывают национальные парки.
+<!--2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, и light dress. Choose your poison.
 3. <a name="Prim3"></a>Originally 空振り, “karaburi”, coming from 空振り三振 “карабури san-shin”, which means “strikeout”. But since shortening strikeout to “strike” would rather associate with corresponding bowling term, which has opposite meaning, Я just picked up something applicable by nature, “no-hit game”.
 4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsikigake name of which does NOT end with -i.
-<!--5. <a name="Prim5"></a>.
+5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.

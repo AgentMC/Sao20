@@ -95,7 +95,7 @@ It was clear that the subject of the words were missing goblins. Asuna instantly
 
 "Yup, I think that it is impossible to go through the South Gate, but...... what about other gates?"
 
-She stared at the face of Kirito who quickly responded with another question.
+She stared at the face of Kirito and quickly responded with another question.
 
 "... You mean that the carriage has crossed the Timeless Wall and moved to Eastern Centoria or Western Centoria.......?"
 
@@ -109,7 +109,7 @@ Even Asuna who have seen a number of virtual worlds, could not help feeling awe 
 
 They said, Highest Priest Administrator had made it appear overnight with Sacred Art, but even with the unlimited terrain manipulation ability granted to the Stacia account, it was absolutely impossible to imitate the same. The enormous amount of data flowing into the fluctlight could not be tolerated, it would result in unconsciousness after making a wall of about only ten kilometers.
 
-Because of that perception, Asuna has never imagined someone could be able to trespass the Timeless Wall, of walking on top of it like Kirito did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain goblins passed the wall.
+Because of that perception, Asuna has never imagined someone could be able to trespass the Timeless Wall, or walk on top of it like Kirito did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain goblins passed the wall.
 
 "... In order to pass through the four gates on the Timeless Wall, it is necessary to have a pass issued by Cathedral or a day permit issued by the administration of one of the four empires... but......."
 
