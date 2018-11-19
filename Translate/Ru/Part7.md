@@ -147,165 +147,163 @@
 
 ***
 
-## Продолжение следует
+Когда эти двое, взобравшись вверх по большой лестнице до пятидесятого этажа, вошли в большой конференц-зал, окружавшие круглый стол люди одновременно обратили свои взгляды на них.
 
-<!--When the two who rushed up the big staircase to the fiftieth floor entered the large conference hall, people surrounding the round table simultaneously turned their eyes at them.
+Первой заговорила облачённая в белую мантию Аюха Фуриа:
 
-It was Ayuha Furia wearing white robe who said first:
+"Асуна-сама, прошу вас, вы ещё недостаточно отдохнули!"
 
-"Асуна-сама, please, you have not rested yet!"
+"Всё в порядке, Аюха-сан. Я отдохнула и чувствую себя хорошо."
 
-"It’s all right, Ayuha-сан. Я had rest и Я feel well."
+Быстро ответив, она каким-то образом сумела остановить уже начавшую вставать главу клериков. Затем, Фанатио, непривычно легко экипированная<sup><a href="#Prim2">2</a></sup> на этот раз, сказала, обращаясь к Кирито:
 
-Quickly answering this way, she somehow stopped the clerics leader who already began to stand up. Then, Фанатио, who was unusually lightly equipped<sup><a href="#Prim2">2</a></sup> this time, said towards Кирито:
+"Премьер-доно, мне жаль, но хороших новостей пока не поступало. Обыск Южной Центории дошёл уже от десятого района до особняков в третьем, и и пока что всё выглядит так, что эта область тоже будет ноу-хит."
 
-"Prime-dono, I'm sorry, but Я have not received any good news yet. The search over the Южной Центория came up from district ten to mansions in district three, и so fat it looks like this area will be a no-hit as well."
+*Слово "ноу-хит", означающее в этом контексте потраченные впустую усилия, должно быть, взято из бейсбола*<sup><a href="#Prim3">3</a></sup>, подумала Асуна, *но от чего ему появиться в Подмиье, где этой игры не существует — в любом случае, это не то, о чём стоит сейчас беспокоиться.*
 
-*The word "no-hit" which means that the effort is wasted should have come from baseball*<sup><a href="#Prim3">3</a></sup>, Асуна thought, *but what it originated from in Underworld where the game does not exist — anyway it is not the case that Я care about such a thing now.*
+"Дело вот в чём, Фанатио-сан.",— сказала Асуна, усаживаясь на своё место за столом,— "Я полагаю, есть вероятность, что повозка с горными гоблинами покинула Южную Центорию через ворота в Бессмертной Стене."
 
-"Here’s the thing, Фанатио-сан.",— Асуна said, sitting down on the chair at her place at the table,— "Я think there is a possibility that a horse-drawn carriage containing mountain гоблинов went out of the Южной Центория through the gate in Timeless Wall."
+Когда она это произнесла, в конференц-зале воцарилась тишина.
 
-The moment she said so the wide conference hall became silent.
+Кроме Аюхи и Фанатио, за круглым столом в тот момент также сидели рыцарь Ренри, рыцарь Нергиус и рыцарь Энтокиа. Рыцарь Дюсольберт находился во временной штаб-квартире, расположенной в пятом районе Южной Центории, а директор Подразделения Информации Сяо Шукас вела независимый поиск со своими людьми.
 
-In addition to Ayuha и Фанатио, knight Renri, knight Nergius и knight Entokia were the ones who at that time were at the round table. The knight Дюсольберт was at the temporary headquarters established in the Южной Центория fifth district, и the intelligence department director Xiao Shukas seemed to be searching independently with her own men.
+Первым высказался Энтокиа, на удивление разговорчивый, как для старшего рыцаря:
 
-It was Entokia, which was surprisingly talkative as for the senior knight, who began first:
+"Ну, это было бы не так-то просто, верно? Чтобы пройти через "Врата Четырёх Времён Года", нужен жетон с гербом Церкви Аксиом, которые создавались в Церкви самой Первосвященник-сама с помощью Священного Искусства."
 
-"Well, that is difficult, is not it? To pass the "Four Seasons’ Gates", you need a pass with the Церковь Аксиом insignia, which is supposed to be made in Church by the Первосвященник-сама using Sacred Art."
+"Э… правда? Тогда, выходит, в нынешней ситуации произвести новые попросту невозможно?"
 
-"Eh… Is that so? Well, then, at present situation, it would be impossible to produce new ones?"
+В ответ на вопрос Кирито, рыцарь кивнул своей головой с короткими синеватыми волосами:
 
-The knight nodded the head with bluish short hair to Кирито's question:
+"Я полагаю, именно так. Потому что там точно было что-то, что как я слышал, создавалось специально, чтобы даже самый искусный мастер не смог подделать..."
 
-"Я think so. Surely, there seems to be something I've heard that it is being created the way so that it cannot be imitated by any experienced craftsman..."
+"Именно. Когда на медный жетон падал свет, крест Церкви Аксиом становился золотым, и я так и не смогла уговорить Его Превосходительство Беркули рассказать мне как такой создаётся."
 
-"That's right. When light was cast on the copper pass, the crest of the Церковь Аксиом appeared to be golden, и Я was unable to get His Excellency Беркули to tell me how to make one."
+*Раз уж Фанатио так говорит, значит подделка, без сомнений, невозможна.* Кирито кивнул, складывая пальцы обеих рук на столе.
 
-*If Фанатио says so, it is no doubt that counterfeiting is impossible.* Кирито nodded, combining the fingers of both hands on the desk.
+"Весьма возможно, что жетоны нельзя подделать, и давайте позже обсудим что делать когда их запас будет исчерпан...... Проблема в том, что сквозь врата можно пройти и без жетона."
 
-"It is quite possible that passes cannot be faked и let’s think again later on the matter of running out of their stock...... The problem is that there is a way to go through the gate without having a pass."
+"Однодневный пропуск...... с ним можно."
 
-"One day permit......that’s the one."
+— заметила Аюха, и Кирито с Асуной одновременно кивнули. Нергиус, до этого момента молчавший, сказал, когда остальные рыцари тоже выразили согласие:
 
-— Ayuha pointed out, both Кирито и Асуна nodded at the same time. Nergius, who had kept silent till now, said after other knights also expressed agreement:
+"...... другими словами, мятежник подделал не только приказы о перевозке из администрации, но ещё и пропуск сквозь врата? Сколько же нарушений Индекса Табу вы собираетесь на него повесить...?"
 
-"......другими словами, the insurgent forged not only the transfer order of the administration, but also the gate permit? How much Индекс Табу violation will you put on them...?"
+"Не стоит так вспыхивать, Неги-бой. Очевидно же, Индекс Табу его вообще не беспокоит, раз уж мятежник уже собственными руками убил человека."
 
-"No need to burn like that, Negi-boy. It's obvious that they are not worried about the Индекс Табу at all, as the insurgents already killed people with their own hands."
+Нергиус резко вдохнул, вероятно, собираясь возмутиться тому, как Фанатио к нему обратилась, но затем едва заметно выдохнул, походе, смирившись. Вместо этого, Ренри заговорил, подняв руку:
 
-Nergius abruptly breathed in, perhaps, intending to protest the way Фанатио addressed him, but barely sighed as if he had given up. Instead, Ренри spoke after raising his hand:
+"Но Кирито-сан, если похитители прошли через Врата Четырёх Времён Года...... Ни одни из Великих Врат, кроме тех, что в Южной Центории не предусматривали до этого момента осмотра багажа, так что есть ли возможность, что они уже покинули Центральную Столицу......?"
 
-"But Кирито-сан, if the kidnappers passed the Gates of the Four Seasons...... Great Gates other than the one of Южной Центория didn’t have examination for the luggage in carriages until now, so is there a possibility that they have already left the Central Capital......?"
+"Она есть."
 
-"That is so."
+— Кирито кивнул молодому рыцарю и продолжил:
 
-— Кирито nodded to a young knight и kept on speaking:
+"Я полагаю, что поиск гоблинов нужно расширить на бывшие частные территории за пределами города и, кроме того, на города Восточной, Западной и Северной Центорий. Однако, уже темнеет...."
 
-"Я think that the search for the гоблинов needs to include the former private territories outside the city and, in addition, the cities of Eastern, Западной и Северной Центория. However, it is quickly getting dark...."
+"Давайте всё подготовим, чтоб начать обыск бывших частных территорий с рассветом. Что касается города, можно начинать без промедления, я возглавлю поиски."
 
-"Let's prepare for the search of private territories to be able to begin with dawn. The city one will start at once, I’ll lead myself."
+Кирито тут же склонил голову в сторону Фанатио, которая поднялась, произнося это.
 
-Кирито quickly bowed his head to Фанатио who stood up saying this.
+"Спасибо, Фанатио-сан. Рассчитываю на вас."
 
-"Thank you, Фанатио-сан. I'm counting on you."
+"Не вопрос. За это ты, мальчик, сиди себе здесь."
 
-"Easy-peasy. Instead you, boy, stay low here."
+Эффективно усмирив таким образом беспокойного Премьер-Мечника, Фанатио отошла к простой деревянной колыбели, стоящей немного в стороне. Она ласково погладила спящего Берчи по голове и перекинувшись парой слов с стоящей рядом прислугой, быстро оставила конференц-зал.
 
-Having efficiently pinned down the fidgeting Премьер-Мечник, Фанатио walked up to a plain wood cradle, which was placed a little away. She gently stroke the head of sleeping Berchie и after exchanging a word or two with a servant standing by its side, she quickly left the conference hall.
+*Обычно Тейза или Ронье присматривали за маленьким Берчи во время заседаний, но если они не в Соборе......*, подумала Асуна, и тогда.
 
-*Normally Тейза or Ронье take care of little Berchie during meetings, but if they are not in the Собора......* Асуна thought, и at that moment.
+Дождавшись, пока Фанатио исчезнет, Кирито сказал:
 
-As if waiting for Фанатио to disappear, Кирито said:
+"Эм....... Я не собираюсь присоединяться к поискам, но вы не против если я выйду наружу?"
 
-"Ehm....... Я am not going to join the search, but can Я just go outside for a moment?"
+Хотя он и спрашивал разрешения, Фанатио и Дюсольберта, способных сказать “нет” Премьер-Мечнику, рядом не было. Три рыцаря и клерик переглянулись, затем Нергиус высказался от имени их всех:
 
-Although he asked for permission, Фанатио и Дюсольберт who were in a position to say “no” to Премьер-Мечник were not there. Three knights и one cleric exchanged looks, then Nergius said on behalf of all of them:
+"А куда вы планируете пойти?"
 
-"Where else do you plan to go to?"
+"На самом деле, ученики рыцарей Ронье и Тейза отправились на озеро в доминионе Императора Северной Империи. Что-то про обучение драконов рыбной ловле......."
 
-"Actually, the apprentice knights Ронье и Тейза have left for the озеро in the Северной Империи доминион Императора. Something about teaching dragons to catch fish......."
+"А, исправление несбалансированной диеты?"
 
-"Ah, is it a correction of unbalanced diet?"
+Нергиус кивнул, а губы Энтокии растянулись в улыбке:
 
-When Nergius nodded, Entokia stretched his lips in a smile:
+"К слову об этом, давным-давно было время, когда Шионаде<sup><a href="#Prim4">4</a></sup> Негио ни за что не ел дыни и всё что их напоминало, и нам было непросто исправить это. В самой глубине джунглей Южной Империи пришлось нам отыскивать самую лучшую и вкусную картошку в этом мире..."
 
-"Speaking of which, at times long forgotten, Negio's Shionade<sup><a href="#Prim4">4</a></sup>,used to never eat melons or anything resembling it, и we had a hard time correcting it. It was in the depths of the Южной Империи’s jungle where we were going to find the best sweet potato in this world..."
+"Мне стоило не предлагать тебе присоединиться, и просто отправиться самому",— привычно оборвав речь того в середине, Нергиус посмотрел на Кирито,— "Если вы говорите про озеро в области на север отсюда, то это озеро Норкия. И его определённо окружают лишь обширные луга...... Вы же не думаете, что преступники скрываются в таком месте?"
 
-"Я should not have asked you to accompany и just depart separately",— Nergius looked at Кирито after casually cutting the speech in the middle,— "If you speak of the озеро in the area to the Северной, it is озеро Норкия. The surroundings there are certainly vast meadows...... Don’t you think there are any criminals lurking in such a place?"
+"А что если так? Те двое по натуре своей такие, если заметят подозрительную повозку, думаю, что они сами попытаются всё выяснить..."
 
-"Well, what if so? From the nature of those two people, if they see a suspicious carriage, Я think they would try to find out only by themselves..."
+Неожиданно, Асуна тоже кивнула на слова Кирито. Ронье с Тейзой были послушными и хорошими девушками, но поскольку в Академии они были под наставничеством Кирито, они могли быть и неосторожными. К тому же, в то время эта пара всеми силами старалась вырасти из учениц в обычных рыцарей, и можно было вполне себе представить, что их усилия продолжатся не взирая на опасность.
 
-Асуна also nodded unexpectedly to Кирито’s words. Both Ронье и Тейза were obedient и good girls, but as long as they were under the guidance of Кирито at Academy, they could be reckless as well. Indeed, at that time two of them were constantly making efforts to grow from apprentices into regular knights, it is also fully conceivable that their hard work would continue regardless of the danger.
+"До озера Норкия всего около десяти килолу, я просто быстро проверю как они там, и вернусь. Буду здесь через час... нет, через 45 минут."
 
-"Since it is just ten kilometers to озеро Норкия, Я will just briefly check with them и come back. I’ll return in one hour... no, even in 45 minutes."
+Говоря это, Кирито быстро поднялся. Поскольку он планировал добраться до озера с помощью полётной техники, стартовав с верхнего этажа Собора, вместо широкой южной лестницы, он направился к шахте лифта на севере. В тот момент, Асуна тоже поднялась с сидения.
 
-Saying that, Кирито quickly stood up. It is probably because he planned to go to the озеро by the flight technique from the high floor of the Собора, instead of the big Южной staircase, he went to the elevator shaft at the Северной. That moment, Асуна also rose from the seat.
+"Я пойду с тобой!"
 
-"I’ll go, too!"
+— сказала она. Кирито развернулся и взглянул на главу подразделения Священных Искусств Аюху.
 
-— she said. Кирито turned around и glanced at the Sacred Arts department head Ayuha.
+Женщина в белой мантии кивнула, словно сдаваясь, хотя её лицо всё ещё омрачало отчаянное беспокойство. Тем не менее, когда она коротко попрощалась, сказав "Пожалуйста, возвращайтесь скорее", Асуна быстро поклонилась Аюхе и вскоре догнала Кирито.
 
-The woman in white robe nodded lightly as though she gave up, while her face was still shadowed with outrageous concern. Nevertheless, while she briefly added a parting words of "Please return as soon as possible", Асуна shortly bowed to Ayuha и quickly caught up with Кирито.
+"Ой, и я дам знать если в городе будет замечено непредвиденное движение!"
 
-"Oh, Я will update you if there is any sudden movement in the city!"
+Это напоследок выкрикнул рыцарь Ренри. Кирито ответил "Премного благодарен!" и открыл дверь шахты лифта. Они вместе запрыгнули в кабину и, спешно затворив дверцу, с облегчением выдохнули.
 
-It was knight Ренри who shouted. Кирито answered "Highly appreciated!" и opened the elevator shaft door. They simultaneously jumped into the lift и after quickly closing the door exhaled sighs of relief.
+"...... Побег удался — вот что у тебя на лице написано."
 
-"...... Successfully escaped, that’s what your face looks like."
+— пробормотала она, смотря на стоящего рядом, но Кирито лишь слегка качнул головой:
 
-— She whispered while looking at the one next to her, but Кирито just slightly shook his head:
+"Всё не так. Я просто волнуюсь что они с Ронье в порядке..."
 
-"It's not like that. Я am just worried that Ронье и others are fine..."
+"Ху-ху, я понимаю. Дай-ка я поведу лифт."
 
-"Hu-hu, Я understand. Let me move the elevator."
+Она подошла к серебристому диску на полу и обеими руками ухватилась за стеклянную трубку, закреплённую в центре.
 
-She stepped onto the silver disk on the floor и wrapped the glass tube fixed in the middle with both hands.
+Этот лифт, которым Эйри раньше управляла с помощью Священных Искусств, теперь был тоже автоматизирован. Большие герметичные ёмкости, установленные под полом лифта в шахте, были заполнены большим количеством воздушных элементов, и когда кнопку на стене нажимали, определённое количество элементов, требуемых чтобы поднять диск на нужную высоту, взрывались, создавая избыточное давление, испускаемое из ёмкостей. Однако, на всякий случай, стеклянная трубка, нужная чтобы генерировать воздушные элементы вручную, была оставлена, и пользователи могли использовать её по своему усмотрению. Другими словами, лифт можно было двигать и с той скоростью, которая была больше по душе, если размеренный неспешный автоматический подъём не устраивал.
 
-This elevator which Airy used to previously operate with Sacred Art was also automated now. The large sealed cans buried under the floor of the elevator shaft were filled with a large number of aerial elements и when the button on the wall is pressed, certain number of elements required to raise the disc to the requested height were burst thus creating pressure which was automatically released from the can. However, just in case, there was also a glass tube for generating aerial elements manually, so that users can operate it on their own. другими словами, one could move the lift manually the way they liked instead of an automatic device set at a rather gentle speed.
+Не обращая внимания на "Эй, только не лихачь, лады...", что говорил стоящий рядом с ней Кирито, Асуна произвела десять воздушных элементов внутри трубки. Когда Эйри им объясняла как двигать этот диск, она говорила "Я выпускаю три из них, когда подъём начинается, и затем по одному, когда скорость начинает падать", что должно было соответствовать средней скорости для перевозке пассажиров, но по секрету она им также сказала, что если нужно больше скорости, количество можно увеличить.
 
-Асуна produced ten aerial elements inside the cylinder without paying attention to "Hey, safe driving, y’know..." which Кирито standing next to her was saying. When Airy previously lectured them on how to move this disc, she said "Я release three units when Я start the rise и then one by one when the speed is about to fall down", which would produce a moderate speed when carrying passengers, but she also taught them secretly that if they want to feel more speed the count could be increased.
+"Бёрст!"
 
-"Burst!"
+Этой командой она взорвала первые шесть элементов. Стеклянную трубку озарила зелёная вспышка, и большое количества воздуха вырвалось снизу, с диким ускорением толкая вверх диск, на котором они ехали.
 
-With this command, she first release six elements. A green flash blasted in the glass tube, a large amount of air blew out from the bottom, pushing the disk they rode up with a furious momentum.
+"У-в-ва....!!!"
 
-"U-w-wa....!!!"
+— взвизгнул Кирито, хватаясь за плечи Асуны. Летая в небе на спине дракона или с помощью инкарнации, он не выражал каких-то особых эмоций, но эта шахта лифта его по каким-то причинам не устраивала. Хотя это и было весьма вероятно вызвано тем, что он едва не упал практически с самой вершины Собора, ещё до того, как Асуна попала в Подмирье, наверняка ничего сказать было нельзя.
 
-— yelled Кирито grasping both Асуна's shoulders. He used to express no emotions when flying in the sky on the back of a dragon or with incarnation, but it seems that he did not like this lift shaft for some reason. Although it is likely to be caused by him nearly falling from the upper floors of the Собора, even before Асуна visited Underworld, nothing could be said for sure.
+Вообще-то, Асуна уже знала об этом инциденте, услышав о нём в середине Войны с Внешним Миром из уст Рыцаря Целостности Алисы. Она подумала, что висеть на внешней стене 80-го этажа на одном лишь мече, когда ни одной полётной техники ему ещё не было доступно, должно было быть весьма страшным опытом, но, поскольку Кирито вёл себя как дитя малое только в этом лифте, она стартовала столь резко без каких-либо злых намерений.
 
-Actually, Асуна had heard about the incident in the middle of the Войны с Внешним Миром from the mouth of Рыцарь Целостности Алиса. She thought that hanging on the outer wall of the 80th floor supported only with one Меч when it was not possible to use any flight techniques yet was a considerably fearful experience, but because Кирито displayed mental age of a child only in the elevator shaft, she started at high speed without any bad intentions.
+В тот момент, когда скорость их стремительного подъёма на шести элементах начала падать, взорвались оставшиеся четыре. Диск снова внезапно ускорился, и Кирито с криком "Хье-е-е!!!" прилип к спине Асуны. Дабы не мучить беднягу и дальше, она просто наступила на ножную педаль, зафиксировав диск, когда они достигли девяностого этажа.
 
-At the time when the sharp rise using six elements began to decelerate, the remaining four were simultaneously released. The disk rapidly accelerated again, и Кирито with "Hye-e-e!!!" stuck to Асуна’s back. Without teasing the poor fellow any more, she just stepped on the floor pedal to lock the disc to the wall as they arrived at the ninetieth floor.
+В прошлом, шахта лифта только соединяла этажи с пятидесятого по восьмидесятый, но вместе с автоматизацией, была установлена шахта с первого по пятидесятый этажи, а вторая шахта — расширена до девяностого. Причина для этого была, конечно же, в том, что большая общественная ванная на этом этаже была открыта для всего персонала; поскольку во внешней стене этого этажа не было широких проёмов, они побежали по лестнице на 95-й этаж, "Наблюдательный пост Утренней Звезды".
 
-In the past, the elevator shaft was only connecting floors from fiftieth to eightieth, but in conjunction with the automation, the shaft from the first to the fiftieth floor was newly established, as well as an extension of the shaft to the ninetieth. The reason for that was, of course, that the large public bath on this floor was opened to all the staff, but since there was no wide gaps in the outer wall on this floor, they run to the 95th floor, the "Наблюдательный пост Утренней Звезды" by the stairs.
+Вчера они здесь обедали с Ронье, Тейзой и присоединившейся к ним шефом Ханой, но в свете приближавшегося вечера, висящие горшки с цветами выглядели иначе. Проникающие снаружи солнечные лучи напоминали — конечно, в уменьшенном масштабе — вечернюю атмосферу в парящем замке Айнкрад.
 
-Yesterday they had lunch here with Ронье, Тейза и chef Hana who joined them, but as the evening was approaching, the hanging flower pots looked differently. The inclined sunlight entering directly from the outside appeared reminiscent — of course, at the much smaller scale — of the atmosphere of evening scenes in the floating castle of Incrad.
+Асуна любила наблюдать отсюда за закатами, но у них на это не было времени. Она вверила себя правой руке Кирито, быстро направившегося к открытому пространству с севера:
 
-Асуна used to like seeing sunsets from this place, but they didn’t have time for it. She entrusted her body to the right arm of Кирито who rushed to the Северной opening:
+"Эм... Я понимаю, мы спешим, но ты же не будешь лихачить?"
 
-"Ehm... Я understand we are in a hurry, but will it be safe driving?"
+Ответив на вопрос Асуны лишь молчаливой усмешкой, Кирито превратил полы чёрного кожаного пальто в нечто, по форме напоминавшее крылья дракона. Крепко прижав Асуну к себе, он широко расправил крылья.
 
-Just returning a silent smile to Асуна's question, Кирито transformed the hem of the black leather coat into a shape resembling wings of a dragon. Holding Асуна tightly, he widely spread the wings.
+*Похоже, он собирается лететь на тихой инкарнационной полётной технике, а не с помощью полётной технике на воздушных элементах, вместе со скоростью дающей и громкий шум......*, когда она немного успокоилась, Кирито привычно оттолкнулся от пола. Энергично махая чёрными крыльями, они мягко воспарили в небо ──
 
-*It seems, he is going to fly with a quiet incarnational flight technique, not the aerial elements flight technique that gives speed but also a loud noise......* as she got a little relieved, Кирито casually kicked off the floor. With black wings vigorously flapping, they softly floated in the air ──
+А в следующий миг, два человека уже прорезали небосвод с диким ускорением, бывшим в несколько раз больше того, что только что сообщили кабине лифта шесть воздушных элементов. Злые потоки воздуха били в лицо, в то время как в поле зрения приближалась высочайшая башня имперского замка Северной Центории. Она знала, что башня намного ниже Собора, но когда они пролетали мимо, она всё равно закрыла глаза.
 
-The next moment, two people flew the sky with a tremendous momentum that was several times higher than the acceleration of the elevator when using six aerial elements. The cruel air current hit the face as the tallest tower of the Северной Центория Imperial Palace approached. She knew it was much lower than Собора, but they passed over it she closed eyes.
+*Если ты можешь лететь так быстро на инкарнации, что же будет, если ты используешь технику полёта на воздушных элементах во всю силу......?* Подумав об этом, Асуна вспомнила, что однажды ей уже доводилось это испытывать.
 
-*If you can speed up so far with incarnation, what will happen if you use aerial elements flying technique at full power......?* After considering it, Асуна remembered that once she had experienced the same.
+Год и три месяца назад, прямо перед концом Войны с Внешним Миром.
 
-A year и three months ago, just before the end of the Войны с Внешним Миром.
+Кирито очнулся от длительной комы и использовал технику полёта на воздушных элементах с максимальной скоростью чтобы догнать Императора Вектора, похитившего Алису. В то время Асуна совсем не ориентировалась в географии Подмирья, так что лишь после войны ей стало известно сколько они пролетели, но так или иначе, в тот раз примерно за пять минут, что Кирито нёс Асуну на руках, они переместились на тысячу километров. Если это превратить в скорость, получится 12000 километров в час, и поскольку скорость звука около 1200 километров в час, это была сумасшедшая скорость, в десять раз превосходящая скорость звука.
 
-Кирито woke up from a long coma и used the maximum speed aerial elements flying technique to catch up with the Император Vector who abducted Алиса. At that time Асуна did not know the geography of Underworld at all, so it was only after the war when she learned how far they flew, but anyhow, at that time for about five minutes that Кирито held Асуна in his arms they actually moved a thousand kilometers away. If converted to per-hour speed, it is 12000 kilometers per hour, и since the speed of sound is certainly about 1200 kilometers per hour, so it was a ridiculous speed of ten times faster than sound.
-
-*The present incarnational power of Кирито is enough to float a steel dragon in the air, but that was equal to the miracle of God. In addition to the flight technique, he returned Алиса's dragon и her brother-dragon who were seriously injured in the battle into the form of an egg, и also used the full armament control technique fighting the super account of Император Vector that changed the entire Underworld’s skies into the night.*
+*Нынешняя сила инкарнации Кирито достаточна чтобы поднять в воздух стального дракона, но в тот раз это скорее напоминало чудо господне. В довершение к этой полётной технике, он вернул дракона Алисы и её брата-дракона, серьёзно пострадавших в битве, в форму яиц, и даже использовал технику полного контроля вооружения, сражаясь с супер-аккаунтом Императора Вектора, обратив небеса всего Подмирья в ночь.*
 
 ![Image](/Translate/Img/p225.jpg)
 
-*The question is whether Кирито at that time was different — or is Кирито just holding down the power currently? If it is the latter, in a situation where Ронье и Тейза may be in danger, it seems, there is no reason for Кирито to suppress his incarnation.*
+*Вопрос в том, изменилось ли что-то в Кирито на сегодня — или это Кирито просто сдерживает силу? И если это второе, в ситуации, в которой Ронье и Тейза могут быть в опасности, мне кажется, для Кирито нет причин подавлять инкарнацию.*
 
-The next moment Асуна, who thought this, unconsciously clung firmer to Кирито’s body.
+В следующий миг Асуна, подумавшая это, бессознательно прижалась поплотнее к телу Кирито.
 
-As if he had been waiting for it, the field of vision suddenly gleamed bright green и after that loud burst sounds echoed from behind. Асуна shrieked, not ready to a violent acceleration as if being hit by a giant's hammer. -->
+И, словно бы он этого ждал, поле зрения заволокло ярко-зелёным, и после этого позади раздался громкий взрывной звук. Асуна вскрикнула, не готовая к тяжёлому ускорению, опустившемуся на неё подобно молоту гиганта.
 
 
 
@@ -313,10 +311,10 @@ As if he had been waiting for it, the field of vision suddenly gleamed bright gr
 ## Примечания:
 
 1. <a name="Prim1"></a>Префектура в северном Хонсю, 23% её территории покрывают национальные парки.
-<!--2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, и light dress. Choose your poison.
-3. <a name="Prim3"></a>Originally 空振り, “karaburi”, coming from 空振り三振 “карабури san-shin”, which means “strikeout”. But since shortening strikeout to “strike” would rather associate with corresponding bowling term, which has opposite meaning, Я just picked up something applicable by nature, “no-hit game”.
-4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsikigake name of which does NOT end with -i.
-5. <a name="Prim5"></a>.
+2. <a name="Prim2"></a>軽装 может означать как лёгкую экипировку, к примеру, кожаный доспех, так и лёгкое платье. Решайте сами.
+3. <a name="Prim3"></a>В оригинале 空振り, “карабури”, происходящее от 空振り三振 “карабури сан-шин”, означающее “[страйкаут](https://ru.wikipedia.org/wiki/Бейсбольная_терминология)”. Но поскольку укорачивание до “страйк” ассоциировалось бы скорее с термином из боулинга, имеющим противоположный оттенок значения, я просто выбрал другой термин, подходящий по смыслу, “ноу-хиттер”. Во время адаптации на русский была ещё идея сделать это просто "аут", но это бы вязалось с футболом, а кто его знает, вдруг в будущем эта связь с бейсболом окажется важной?
+4. <a name="Prim4"></a>汐撫, “гладкий поток” или “скользящий над волнами”, что-то вроде того. Стоит отметить, это второй дракон после Цукигаке, имя которого не заканчивается на -и.
+<!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.
