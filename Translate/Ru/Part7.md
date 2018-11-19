@@ -1,4 +1,4 @@
-# Part 7
+# Часть 7
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 <!--![Image](/Translate/Img/p167.jpg)-->
