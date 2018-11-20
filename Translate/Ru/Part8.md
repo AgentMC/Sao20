@@ -1,271 +1,273 @@
-# Part 8
+# Часть 8
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 <!--![Image](/Translate/Img/p167.jpg)-->
 
-Before establishing the Мира Людей calendar, that is, more than 380 years in the past of Мира Людей history, there were moving objects called "divine animals".
+Ещё до учреждения календаря Мира Людей, то есть более чем 380 назад в масштабах истории Мира Людей, существовали движимые объекты, именуемые "священными зверями".
 
-Silverwhite snake which lived in a deep mountain valley in the Восточной Империи. A phoenix that nested in a volcano in the Южной Империи. Giant ice dragon which protected the mountain range of the Северной Империи. A winged lion which used to rush the grassland of the Западной Империи, и so on.
+Сребробелая змея, что жила в глубокой горной долине в Восточной Империи. Феникс, что гнездился в вулкане в Южной Империи. Гигантский ледяной дракон, защищавший Горную Гряду Северной Империи. Крылатый лев, любивший резвиться на лугах Западной Империи, и так далее.
 
-Their number was more than 40, but they had no fluctlight, it was an advanced AI program able to communicate with Мира Людей people using the dedicated speech engine. People feared и respected divine beasts as gods on earth, и left many legends.
+Их число было больше 40, но у них не было флактлайта, это были продвинутые AI-программы, способные общаться с жителями Мира Людей, используя специальный голосовой движок. Люди страшились и уважали священных зверей как земных богов, и сложили о них немало легенд.
 
-However, for a girl who established the Церковь Аксиом in the year 30 of Мира Людей calendar и then ruled the Мира Людей by the name of Первосвященник Администратор, "gods" other than the gods that appeared in the ecclesiastical history were disturbing beings. She was getting rid of them either herself, making weapons — divine objects — out of them, or letting her subordinate Рыцари Целостности do the extermination job. Then, around the year 100 of Мира Людей calendar, all the divine beasts were destroyed, и all the books that wrote about the exchange with them were burned away.
+Однако, для девушки, что в 30-м году по календарю Мира Людей основала Церковь Аксиом и стала затем править Миром Людей под именем Первосвященник Администратор, "боги", отличные лот богов, упоминавшихся в церковных летописях, были лишь источником беспокойства. Она избавлялась от них либо сама, создавая из них оружие — священные орудия,— либо позволяя своим подчинённым Рыцарям Целостности выполнять работу по уничтожению. Позднее, около 100-го года по календарю Мира Людей, все священные звери были уничтожены, а все книги, что писали об общении с ними — сожжены.
 
-None of birds и animals inhabiting the present Мира Людей were able to use human language. However, there was only one kind among them, beasts which preserved AI to a very limited extent. Those were the Рыцари Целостности’ partners, dragons.
+Ни один из видов птиц и зверей, обитавших на текущий момент в Мире Людей, не был способен пользоваться человеческой речью. Однако, был среди них один вид: звери, сохранившие AI в весьма урезанном виде. Это были напарники Рыцарей Целостности, драконы.
 
-The dragons, even if they could not speak human language, were able to understand even a fairly complicated command given to the owner. и they also had "heart" used to strengthen the bonds with the owner.
+Драконы, хоть и не способные говорить по-человечьи, были способны понять даже весьма сложные команды, что давал их хозяин. Кроме того, они также обладали "сердцем", использовавшимся при укреплении связей с владельцем.
 
-Therefore, young dragon Цукигаке, raised by the учениками Рыцарей Целостности Ронье Arabel, rushed hard to carry out the command of her owner: "Go along this aisle to the ground и get to the Северной gate of Центория."
+Поэтому, молодая дракониха Цукигаке, выращенная учеником Рыцарей Целостности Ронье Арабель, со всей мочи ринулась выполнять команду, отданную её владелицей: "Выйди по этому проходу на поверхность и доберись до Северный врат Центории."
 
 ***
 
-After she climbed up a stairway of sixty steps while fluttering small wings и got out pushing the body through the gap in the iron grid, Цукигаке looked around.
+Взобравшись по шестидесяти ступеням лестницы с помощью своих маленьких крыльев и протиснувшись сквозь проёмы в железной решётке, Цукигаке огляделась.
 
-There was just a metal grate on behind, both the right и left were blocked by a thorny hedge, и the only available path extended ahead. But Цукигаке did not like the idea of going forward. Because there was a mansion with a bad presence down the path. While approaching there, she might be found by black people who captured brother dragon Шимосаки in the basement. She was not scared of those folks, but if they would catch her there was a chance she won’t be able to serve the master.
+Позади осталась лишь металлическая ограда, справа и слева путь преграждала колючая живая изгородь, и единственный доступный путь вёл вперёд. Но Цукигаке не нравилась идея двигаться вперёд. Потому что дальше по пути находился особняк, в котором было нечто плохое. Если туда приблизиться, её могут найти люди в чёрном, что уже схватили в подвале брата-дракона Шимосаки. Она не боялась этих людей, но если её схватят, была вероятность, что она не сможет послужить хозяйке.
 
-She turned to the right и looked up at the top of a hedge. Tried to jump over a hedge that seemed to be higher than her owner while swiftly fluttering small wings, but did not reach the top at all. Still she tried hard for a few seconds, but the wings soon got tired и she fell on the butt to the stone pavement. After bouncing two or three times like temari<sup><a href="#Prim1">1</a></sup>, she finally got the strained body up.
+Она посмотрела по сторонам и перевела взгляд на верхушку изгороди. Попыталась перепрыгнуть изгородь, которая была выше, чем хозяйка, махая крылышками, но и близко не допрыгнула до верхушки. В течение нескольких секунд она старалась изо всех сил, но затем крылья устали и она шлёпнулась задом об каменную мостовую. Подпрыгнув два-три раза, словно темари<sup><a href="#Prim1">1</a></sup>, она, наконец, подняла напряжённое тело.
 
-If that’s the case, there is no choice but to break through the hedge.
+Раз так, другого выбора, кроме как ломиться сквозь изгородь, не оставалось.
 
 "Ку-ру-ру..."
 
-After softly chirping to demonstrate the readiness, she folded the wings tightly и thrust the nose into the surface by the roots of the hedge.
+негромко чирикнув дабы подбодрить себя, она крепко прижала крылья к телу и просунула нос в живую изгородь возле корней.
 
-Most shrubs have spaces near their roots, but this plant had branches extending to the immediate vicinity of the ground, и the branches also bore countless sharp 3 centimeters long thorns. She tried to crawl down the ground to the limit, и in this pose to pass through a small gap, but the moment a thorn hit her neck, sharp pain run through the whole body.
+У большинства кустарников возле корней есть свободное пространство, но ветви этого растения тянулись до самой земли, и на этих ветвях росли бесчисленные 3-ценовые шипы. Она попыталась прижаться как можно ближе к земле, и в такой позе проползти сквозь проём, но в тот миг, когда первый шип вонзился в её шею, по всему телу пронеслась волна острой боли.
 
-Having turned her head back, Цукигаке bit it with her tiny fangs и kept moving forward. Painful spots emerged one after another on the soft feathery back, scratching the scaleless skin. Although due to the pain from time to time her mouth involuntarily leaked "Kyuuu......", she pushed on.
+Изогнув шею назад, Цукигаке откусила колючку своими малюсенькими клыками и продолжила двигаться вперёд. Один за другим на мягкой, покрытой перьями спине возникали очаги боли, а не защищённая еще чешуёй шкура покрывалась царапинами. И хотя из-за боли время от времени из её клюва вырывалось невольное "Кьююююю......", она продолжала ломиться вперёд.
 
-It took her more than one minute to get through a hedge that was less than 50 cens thick. Finally released from thorns, Цукигаке threw her body in wet fallen leaves и tried to catch the breath.
+У неё ушло более минуты на то, чтобы пробраться сквозь изгородь толщиной менее 50 ценов. Наконец, освободившись от колючек, Цукигаке рухнула на влажную опавшую листву и попыталась перевести дух.
 
-As soon as pain somewhat let her go, she bent long neck carefully и looked over the back. The prideful yellow feathers were messy и stained red with running blood.
+Когда боль немного отпустила, она аккуратно изогнула длинную шею и осмотрела спину. Жёлтые перья, её гордость, были в беспорядке, и бегущая кровь пачкала их красным.
 
-Цукигаке did not understand a Life’s numerical value, but it was clear to her that living creature will die if blood continues to run out. She straightened the disturbed feathers with the nose и licked each scratch one by one. Dragon saliva had a weak healing effect, и bleeding stops when the wound is licked several times, but her tongue did not reach the furthermost scratches on the back.
+Цукигаке не понимала числовых показателей Жизни, но для неё было очевидно, что любое живое существо погибнет, если кровь продолжит бежать. Она распрямила взъерошенные перья носом и стала одну за другой зализывать царапины. Слюна драконов обладала слабым заживляющим эффектом, и кровотечение останавливалось, если рану полизать несколько раз, но самых дальних царапин на спине её язык не доставал.
 
-The pain finally faded to the extent that she could deal with, so Цукигаке shook the body shaking off mud и fallen leaves и stood up with only the hind legs.
+Боль, наконец, успокоилась до того уровня, с которым она могла справляться, и Цукигаке встряхнулась всем телом, стараясь обтрусить глину и прицепившиеся листья, и встала на две задние ноги.
 
-A deep forest spread ahead. The yellow sunlight obstructed by the branches и leaves of the coniferous trees hardly reached the ground, but the direction could be understood.
+Впереди простирался глухой лес. Жёлтый солнечный свет, заслонённый ветвями и иглами хвойных деревьев, едва достигал земли, но направление можно было понять.
 
-*The big city of humans which Master Ронье calls "Центория" is in the Южной. This forest is the place to come for the first time и Я do not know the distance well as Я got here on a carriage from the city, but Я have to arrive as soon as possible.*
+*Большой город людей, что Госпожа Ронье зовёт "Центория", на юге. Я в этом лесу впервые, и расстояние точно неизвестно, попала я сюда на повозке из города, но добраться надо как можно скорее.*
 
-*Fortunately, Я ate plenty of fish from the озеро a few hours ago so my stomach is not empty yet. Я did not like the smell of the dead fish given in the stables for the past few months, и Я did not eat much of it, but it was fun to catch the fish swimming in the water by myself и it was very tasty because it was fresh. Я feel that remembering the taste will only make me hungry, so better to forget about fish и start running on the forest sole with all four legs.*
+*К счастью, я съела много рыбы из озера несколько часов назад, так что мой живот ещё не пуст. Я не люблю запах мёртвой рыбы, которую давали в стойлах последние несколько месяцев, и много её я не ела, но самой ловить плававшую в воде рыбу было весело, и она была вкусная, поскольку была свежая. Я чувствую, что воспоминания в вкусе только сделают меня голодной, так что лучше забыть о рыбе и начать бежать по лесу, используя все четыре лапы.*
 
-Unlike the garden of "Собора" where Цукигаке lived or the grassland around the lake, the damp sole of the forest was slippery и stones и roots hidden under the fallen leaves made it difficult to run. Every time tipping over an obstacle, she felt и roll, but still kept going Южной on и on.
+В отличие от садов "Собора", где Цукигаке жила, или луга вокруг озера, влажная лесная почва была скользкой, и камни и корни, скрывающиеся под опавшей листвой, усложняли бег. Каждый раз, цепляясь за препятствие, она падала и перекатывалась, но всё равно продолжала бежать на юг всё дальше и дальше.
 
-Running around a thick tree, Цукигаке's keen nose caught something smelly, some rotten smell.
+Оббегая толстое дерево, чуткий нос Цукигаке почуял что-то вонючее, какой-то разлагающийся запах.
 
-A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp и sticky, unlike the soft soil of the flowerbed in the front of the Собора garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely he couldn’t see anything at the bottom.
+Участок земли, окружённый извивающимися деревьями, был практически весь выкопан. Чёрная земля была холодной, влажной и липкой, совсем непохожей на мягкую почву клумб Соборного сада. Казалось, что вонь шла от этой большой ямы, но даже пристально её осмотрев, она так и не смогла увидеть на дне что-то особенное.
 
 "Ку-ру……"
 
-Цукигаке slowly moved away from the edge of the hole. It was unclear if she can escape if she falls, nor had she time to loiter having a snack at that time.
+Цукигаке медленно отошла от края ямы. Было непонятно, сможет ли она выбраться, если упадёт туда, да и не было у неё времени на то чтобы расслабиться и перекусить.
 
-After getting around the badly smelling pit и running for a few more minutes it started to get brighter little by little. The exit of the forest was near. Цукигаке jumped from between the two old trees, kicking hard of the ground with her wings flapping while running through the last ten mel.
+Обойдя вонючую яму вокруг и пробежав ещё какое-то время, она почувствовала, что потихоньку светлеет. Выход из леса был близок. Цукигаке выпрыгнула из проёма между двумя старыми деревьями, с силой оттолкнулась от земли и, захлопав маленькими крылышками, пронеслась последние пару десятков мелов.
 
-Grassland surrounding the forest had been dyed in bright yellow, illuminated in the light of sun bending to the sunset. After running for a while sucking cold but fresh air, she stopped at the top of the hill.
+Лучи клонившегося к закату солнца окрашивали окружающие лес луга ярко-жёлтым. Ещё немного пробежав, втягивая холодный, но освежающий воздух, она остановилась на верхушке холма.
 
-Looking around, she saw a white wall across the meadow on the right side, a glittering water surface of the озеро on the left side, и a small human town in the front. *It is farther than Я thought, but if Я run hard, Я will be able to arrive sooner or later. No, “sooner or later” won’t work. At this very moment, my Master и her best friend are trapped in the dungeon, и Шимосаки is taken to the mansion, и he must have been scared so much.*
+Перед её глазами предстали: белая стена, тянущаяся через луг с право стороны, искрящаяся гладь озера слева, и небольшой город людей прямо. *Дальше, чем я думала, но если буду бежать изо всех сил, рано или поздно доберусь. Нет, “Раньше или позже” не сработает. Прямо сейчас моя Госпожа и её лучшая подруга заперты в подземелье, а Шимосаки забрали в особняк, и он, должно быть, так напуган.*
 
 "Кю-ру-ру!"
 
-Цукигаке began to run again after quietly chirping, so that black people would not hear by any chance.
+Негромко чирикнув, так, чтобы люди в чёрном ни за что не услышали, Цукигаке снова бросилась бежать.
 
-Although it was somewhat better than in the forest, the grass around here was also tall и tried to push the small body back. Running with the neck stretched up, she thrust the grass with the front legs to make path.
+Бежать было несколько легче, чем в лесу, но трава здесь была высока и старалась оттолкнуть маленькое тельце назад. Она бежала вперёд, вытянув шею и приминая траву передними лапами, чтобы проложить путь.
 
-After about five minutes passed, this time she felt clear hunger. Even a child of a dragon, to maintain Life level, requires much more food than dogs и foxes of the same size.
+Прошло примерно пять минут, и на этот раз она уже явственно почувствовала голод. Даже драконьим детёнышам для поддержания уровня Жизни требовалось гораздо больше еды, чем собакам и лисам того же размера.
 
-A large озеро was shining gold in about a hundred mels to the left. There would be plenty of tasty fish swimming in the water. Just one this thought made her slightly shift the track to the left, but Цукигаке shook her head as she ran и returned to the previous direction. *Я will not die because of being hungry, but my Master’s life is in danger.*
+Большое озеро золотилось всего-то в сотне метров слева. В воде было множество вкусной рыбы. Одна эта мысль заставила её немного отклониться влево, но Цукигаке на бегу затрясла головой и вернулась к прежнему направлению. *Я не умру, если побуду голодной, но Жизнь моей Госпожи в опасности.*
 
-If the memory of what she had seen from the window of the horse-drawn carriage was correct, there should have been a large abandoned field on the Южной side of the grassland surrounding the lake. If it's indeed there, it will be possible to find как минимум one shriveled potato. Only that hope supported the spirit as she ran for five minutes, и then.
+Если память о том, что она видела из окна влекомой лошадьми повозки, её не подводила, на южной стороне окружавшего озеро луга должно было находиться обширное поле. Если это так, модно будет найти хотя бы одну высохшую картофелину. Лишь подобная надежда поддерживала её дух, пока она около пяти минут бежала, и вдруг.
 
-Suddenly his foreleg sunk into the ground, so Цукигаке fell somersault и rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
+Внезапно её передняя лапа провалилась в землю, и Цукигаке полетела вверх тормашками и покатилась по земле. Через несколько полных оборотов мир перестал вращаться, а касающаяся земли спина почувствовала, как погружается в холодную воду. Свежие раны, где кровь совсем недавно остановилась, отозвались острой болью, вырвав жалобный крик из глубин горла.
 
-However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Цукигаке, born in Собора, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, he stretched и turned the neck carefully around to check the surroundings again.
+Однако, вечно так лежать было нельзя. Из-за воды, вытекающей из озера, всё это обширное пространство покрывало болото. Цукигаке, рождённая в Соборе, никогда раньше не попадала на болота, но она инстинктивно понимала, что если остаться в холодной воде надолго, Жизнь начнёт быстро снижаться. Снова заставив тело двигаться, она потянулась и осторожно вытянула шею чтобы снова осмотреться.
 
-His front и left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
+Путь прямо и налево преграждало широкое болото, сухая земля была лишь справа. Однако, не представлялось никакой возможности предсказать, сколько длилось болото. Если оно продолжалось до самой белой стены, видимой в том направлении, то можно было потерять много времени.
 
 "Ку-ру-ру..."
 
-Цукигаке who had no idea what to do next inadvertently leaked a miserable voice.
+Цукигаке, понятия не имевшая, что делать дальше, незаметно для себя издала несчастное урчание.
 
-Then, as if hearing this voice, a small creature came out from a grassy place a little away, и shrilly chirped "Кю-kyu?!".
+Вслед за этим, будто бы откликнувшись на этот голос, из поросшего травой участка немного поодаль появилось маленькое существо, и звонко пискнуло "Кью-кью?!".
 
-A creature with short brown fur, ears almost as long as the body, и small round eyes, looked up at Цукигаке, turning the neck to the right as if saying ‘what the heck is this thing’.
+Существо, обладавшее коротким коричневым мехом, ушами, длинными почти как всё тело, и маленькими круглыми глазами, посмотрело вверх на Цукигаке, наклонив голову направо и как-бы спрашивая, ‘это что ещё за зверь?’
 
-Цукигаке thought exactly the same thing. The creature that was about thirty cen long from a pointed tip of the nose to a short tail was called "Miminaga-nure-nezumi"<sup><a href="#Prim2">2</a></sup> by the people of the central city, but of course Цукигаке did not know such a thing.
+Цукигаке подумала то же самое. Существо, бывшее длиной примерно в тридцать ценов от острого кончика носа до короткого хвоста, звалось людьми в центральном городе "Миминага-нуре-незуми"<sup><a href="#Prim2">2</a></sup>, но Цукигаке, конечно, этого не знала.
 
-Looking over the elliptical body of the brown rat having no boundary between the neck и the torso, she thought it would be delicious to catch it и eat it. The rat tried to quickly withdraw into the grass as if feeling Цукигаке's appetite, so it’s opponent quickly hurriedly objected:
+Оглядев эллиптическое тело коричневой крысы, не имевшее границы между головой и туловищем, её подумалось, что будет вкусно, наверное, поймать её и съесть. Крыса немедленно спряталась обратно в траву, словно почуяв аппетит Цукигаке, на что другая сторона спешно возразила:
 
-"Kuru!!!"
+"Ку-ру!!!"
 
-Whether or not Цукигаке was able to communicate a request to wait ─ nobody can say for sure, but the rat stopped running away leaving the long nose where a beard grew sticking out. After two seconds, it fearfully shoved out the whole head.
+Смогла ли Цукигаке передать просьбу остановиться ─ точно никто не смог бы сказать, но крыса прекратила убегать, и высунула наружу длинный нос с бородкой. Через две секунды, она боязливо протиснула сквозь траву и остаток туловища.
 
-*If Я scare it again — it will run away at once.* Цукигаке lowered her body as low as possible и squeaked in low voice pretending that she is not going to eat it.
+*Снова её напугаю — она тут же убежит.* Цукигаке прижалась к самой земле и и низко заурчала, притворяясь, что и не думала есть её.
 
-"ру-ру-ру-ру......"
+"Ур-р-р-р......"
 
-This time the rat tilted its head to the left и slowly moved the body out of the grass.
+На этот раз крыса наклонила голову влево и медленно выползла из травы.
 
-If you look closely, the tips of elongated limbs had swim fins. It was surely a creature living on this land for a long time. Then it might know the way through the swamp.
+При ближайшем рассмотрении, на кончиках продолговатых конечностей виднелись плавники. Это определённо было существо, давным-давно обосновавшееся на этих землях. Так что оно могло знать дорогу сквозь болото.
 
-"Кю-ру, Кю-ру-ру-руn."
+"Кю-ру, кю-ру-ру-рун."
 
-*── Я want to go to the Южной. Tell me if you know the way.*
+*── Я хочу попасть на юг. Скажи мне если знаешь дорогу.*
 
-Although it was not possible to put the intention into a verbal form, the rat quickly moved long ears и answered "Kyu" to Цукигаке's chirping filled with desperate emotions.
+Несмотря на то, что выразить цель словами было невозможно, крыса дёрнула длинными ушами и ответила "Кью", услышав наполненное отчаянием чириканье Цукигаке.
 
-Цукигаке, who felt an echo of ‘I’m hungry’ in the sound, immediately answered:
+Цукигаке, которой в это звуке послышался отголосок ‘Есть хочу’, немедленно ответила:
 
-*── Show me the way, will get you delicious fish as much as you like.*
+*── Покажи дорогу, достану тебе вкусной рыбы сколько пожелаешь.*
 
-*── Do not need fish. Я like tree nuts.*
+*── Не надо рыбы. Я люблю древесные орехи.*
 
-*── But there are no trees here.*
+*── Но здесь же нет деревьев.*
 
-While Цукигаке spoke, a small dark object floated on the water surface between the two animals. Rat cried "Ki!!!", jumped in the water, и lifted it with both hands.
+Пока Цукигаке говорила, между двумя животными по поверхности воды проплыл маленький тёмный предмет. Крыса взвизгнула "Ки!!!", прыгнула в воду и подняла его обеими лапами.
 
-From the look of it, it was certainly a nut. Perhaps, the tree nuts that fell to the озеро from the trees growing on its banks would flow over time to wetlands. Rat immediately brought the precious thing to the mouth with both hands, but even though it had long front teeth, there was no crunchy sound but only sound of damp и moist. *Meanwhile, as Я stand immersed in water, my Life runs out.*
+Судя по его виду, это определённо был орех. Возможно, древесные орехи, упавшие в озеро с деревьев, растущих на его берегах, со временем доплывали до болот. Крыса тут же запихнула ценную находку в рот при помощи обеих лап, но даже несмотря на её длинные передние зубы, хруста не последовало, а только послышался влажный и размякший звук. *А тем временем, я тут стою в воде, и моя Жизнь утекает.*
 
 "Ку-ру-ру-ру, Кю-ру!!!"
 
-*── If you guide me, Я will give you a lot of fresh nuts. Not damp, crunchy ones.*
+*── Если проведёшь меня, Дам много свежих орехов. Не мокрых, хрустящих.*
 
-"Kyuu......."
+"Кьюу......."
 
-*── Really? You ought to find one in a whole year.*
+*── Правда? Таких за год лишь один можно найти.*
 
-*── Я promise. You can eat as much as you want everyday.*
+*── Обещаю. Сможешь есть сколько хочешь каждый день.*
 
-*── Well, then. Come.*
+*── Тогда ладно. Пошли.*
 
-Цукигаке wasn’t sure whether the exchange actually took place this way. But after the rat finished eating a black tree nut, it moved to a dry ground nearby и jumped into the grass with excitement.
+Цукигаке не была уверена, прошёл ли диалог именно таким образом. Но после того как крыса доела чёрный древесный орех, она переместилась на находившийся рядом кусок сухой земли и с воодушевлением прыгнула в траву.
 
-Цукигаке also hurriedly jumped over the water и thrusted her neck in the place where the rat disappeared. There was a tunnel of about 30 cen in diameter extending in the densely grown grass. Walls of firmly woven dry grass were clearly not made by nature.
+Цукигаке тоже спешно выпрыгнула из воды и засунула шею туда, где исчезла крыса. Там был тоннель около 30 цен в диаметре, проложенный в плотно растущей траве. Его стенки, сотканные из крепко сплетённой сухой травы, определённо сотворила не природа.
 
-The rat stopped close to an entrance to the tunnel и waved a short tail as if calling for her to hurry. Цукигаке was slightly bigger than its width и height, so had to shrink a bit, but not as much as to get through the gap in the iron grid that was in the dungeon, besides, the dry grass spreading all over the floor helped, too.
+Крыса остановилась близ входа в тоннель и помахала коротким хвостом, словно намекая, чтобы та поторопилась. Цукигаке была немного больше, чем его ширина и высота, так что ей пришлось немого сжаться, но не настолько как когда она протискивалась сквозь проём в железной решётке в темнице, да и устилавшая весь пол сухая трава тоже немало помогла.
 
-"Ку-ру-ру!!!"
+"Ку-р-р!!!"
 
-After chirping in a loud voice to inspire herself, Цукигаке started running in a narrow и dark tunnel. The rat also faced ahead и moved as if sliding while moving short legs only a little.
+Громко чирикнув чтобы подбодрить себя, Цукигаке принялась бежать по узкому и тёмному тоннелю. Крыса тоже повернулась и понеслась вперёд, словно бы скользя, совсем немного двигая короткими лапами.
 
-In just three mels ahead the tunnel was diverging to the left и right. Rat jumped into the left aisle without slowing down, so Цукигаке followed. Immediately the next split appeared, this time it moved right.
+Всего через три мела впереди тоннель разделился надвое. Крыса, не замедляясь, прыгнула в левый проход, и Цукигаке последовала за ней. Сразу же появилась ещё одна развилка, на этот раз они двинулись влево.
 
-Next after a tunnel knitted with dry grass, there was a small round room of about 1 mel. There were one adult rat и three small rats by the wall eating what appeared to be grass seeds, и when they saw Цукигаке who came in running, an adult raised an alarming voice "kiki!!!", to which the guiding rat answered something calmly. Going near the small rats who were tracing a strange appearance with their eyes, lowering the head и entering a next passage.
+За сплетённым из сухой травы тоннелем последовала маленькая круглая комната около мела в диаметре. Там у стены сидели одна большая крыса и три крысёнка, поедая вроде бы семена травы, и когда они увидели влетевшую Цукигаке, взрослая крыса испуганно закричала "Ки-ки!!!", на что крыса-проводник спокойно ответила. Аккуратно пройти мимо крысят, удивлённо проводящих странное явление глазами, пригнуть голову — и в следующий проход.
 
-Apparently, the wetland rats had a mesh of tunnels over this swamp. Without a guide, one would quickly get lost. As they run, plops echoed, so the bottom side of the floor seemed to be in contact with water. There must be a huge number of small islands scattered in wetlands connected with buoyant dead grass tunnels.
+По-видимому, у болотных крыс была целая сеть тоннелей над водой. Без проводника здесь можно было мгновенно заблудиться. Пока они бежали, под ногами хлюпало, так что нижняя часть тоннеля, судя по всему, покоилась на воде. Должно быть, по болоту было разбросано множество сухих островков, соединённых плавучими тоннелями из мёртвой травы.
 
-After the innumerable bifurcations, junctions и small rooms they ran through, she finally saw a point of light ahead. It seemed like a dead end, but the grass on the wall was sparse, и the setting sun was visible through that gaps.
+После бесчисленных развилок, перекрёстков и маленьких комнат, через которые они пробежали, впереди, наконец,забрезжила светящаяся точка. Выглядело, словно тупик, но трава в стене была разрозненная, и сквозь щели было видно садящееся солнце.
 
-The rat stopped at the end of the tunnel, protruded only a sharp nose into the gap in the grass, carefully sniffed the outside air и only then thrusted the head all the way out. When it was satisfied it got out through the grass.
+Крыса остановилась в конце тоннеля, просунула в щель между травинками один только острый нос, осторожно понюхала воздух снаружи и только тогда высунула голову. Удовлетворённая, она целиком пролезла сквозь траву.
 
-After a bit of fighting with the grass Цукигаке also left the tunnel finding herself already at the Южной part of the wetland area. The dry grassland spread ahead, и after it a wooden fence was seen that seemed to have been made by humans. Behind was the field she saw from the carriage.
+Немного поборовшись с травой, Цукигаке тоже покинула тоннель, обнаружив себя уже в южной части области болот. Впереди простиралась сухая трава, а за ней виднелся деревянный забор, похоже, сделанный людьми. За ним было поле, что она видела из повозки.
 
-"Кю-ру-ру, Ку-ру!!!"
+"Кю-ру-ру, ку-ру!!!"
 
-*── Thank you, Rat. From here Я can go alone.*
+*── Спасибо, крыса. Отсюда я и сам смогу добраться.*
 
-When Цукигаке said so, the brown rat tilted the neck to the right again:
+Когда Цукигаке так сказала, коричневая крыса снова наклонила голову направо:
 
-"Кю-ii?!"
+"Кю-йи?!"
 
-*── When will give nuts?*
+*── А орехи когда?*
 
-*── Do not have it now. But, Я will have plenty of nuts soon, will come again. Я promise.*
+*── Сейчас нет. Но скоро у меня будет их много, и я вернусь. Обещаю.*
 
-Цукигаке spoke earnestly, but the rat insisted raising и lowering the long ears:
+Цукигаке говорила честно, но крыса настаивала, поднимая и опуская длинные уши:
 
-*── No, Я want to eat it now! Я want to eat lots of crunchy nuts!*
+*── Нет, хочу съесть сейчас! Хочу много хрустящих орехов!*
 
-*── .... Then, come along. If you go to the city, you will get the nuts.*
+*── .... Тогда пошли со мной. Попадёшь в город, тогда получишь орехи.*
 
-To the words of Цукигаке, the rat blinked curiously.
+В ответ на слова Цукигаке, крыса озадаченно заморгала:
 
-*── City? What is a city?*
+*── Город? Что такое город?*
 
-*── The city is... there are a lot of humans.*
+*── Город... там много людей.*
 
-*── Humans? Whenever humans see us, they chase with sticks.*
+*── Людей? Когда люди нас видят, гонятся с палками.*
 
-*── It will be fine if you stay by me. Я do not have the time, let's go!*
+*── Всё будет в порядке, если останешься со мной. У меня нет времени, пошли!*
 
-That said, Цукигаке tried to resume movement. However, the rat grabbed the end of her tail.
+Сказав это, Цукигаке попыталась продолжить движение. Однако, крыса ухватилась за кончик её хвоста.
 
 "Ку-ру-ру!!"
 
-*── What's the matter?*
+*── Что такое?*
 
-"Kikii!!"
+"Ки-кии!!"
 
-*── Do not go away. My father said that it’s scary behind that wall.*
+*── Не ходи туда. Отец говорит, за стеной страшно.*
 
-*── Scary? Because of humans?*
+*── Страшно? Из-за людей?*
 
-*── Я do not know....... But nobody who went beyond the wall had ever come back.*
+*── Я не знаю....... но никто из тех, что уходили за стену, не возвращался.*
 
-Цукигаке tilted her head. Only desolated fields spread out on the Южной side of the wooden fence, as she saw from the horse-drawn carriage window, и she remembered that there were no humans. Her owner said something about that all the *praivatwellerz* were *rilizd*. She did not quite understand the meaning, but if the rat is "scared" of humans, now there should be no danger.
+Цукигаке наклонила голову. Как было видно через окно повозки, лишь опустошённые поля тянулись по южную сторону деревянного забора, и она точно помнила, что людей там не было. Её хозяйка сказала что-то про то, что все *житетории* были *обождены*. Значение было не вполне понятно, но если крысу "пугали" люди, теперь опасности больше не было.
 
-Besides, Цукигаке’s hunger was approaching the limit. *If Я don’t find something to eat in the field, it looks like Я won’t be able to run any more.*
+К тому же, голод Цукигаке достигал своего предела. *Если я не найду что-то поесть в поле, похоже, что бежать больше не получится.*
 
-"Ку-ру-руu..."
+"Ку-ру-рю..."
 
-*── It's okay, there’s nothing to be scared of anymore. You can’t go to the city without going over there.*
+*── Всё в порядке, больше нечего бояться. В город не попасть, если не пройдёшь там.*
 
-Although he spoke so, the rat had a suspicious face for a while, but eventually the appetite appeared to prevail over the alertness:
+Хоть она так и сказала, какое-то время крыса стояла с недоверчивой мордой, но в итоге аппетит превзошёл осторожность:
 
-"Kiki!!"
+"Ки-ки!!"
 
-*── Okay, Я will go with you.*
+*── Ладно, пойду с тобой.*
 
-*── Fine. Then, let's hurry.*
+*── Хорошо. Тогда поторопимся.*
 
-As she said so, Цукигаке kicked off the dry ground. The rat, which ran surprisingly fast, also followed from behind.
+Сказав так, Цукигаке оттолкнулась от сухой земли. Крыса, бежавшая на удивление резво, следовала за ней вплотную.
 
-When they dashed through the grassland и approached the wooden fence, they quickly looked over to the left и right. There was an entrance to the left, so they aimed for it.
+Пронесясь сквозь луг и приблизившись к деревянному забору, они быстро огляделись по сторонам. Слева был вход, и они направились туда.
 
-Fortunately, there was neither door nor grate, just an artless gate. On the signboard struck by the path, there was a notice "Dedicated farm of the direct jurisdiction" in the Мира Людей language, almost disappeared because of sun и rain, but of course neither Цукигаке, nor the rat could read it.
+К счастью, ни дверей, ни заграждения там не было, лишь безыскусные ворота. На прибитой над проходом доске, была табличка "Выделенная ферма прямой юрисдикции" на языке Мира Людей, едва различимая из-за разъедавших её солнца и дождей, но, само собой, ни Цукигаке, ни крыса не смогли её прочесть.
 
-After passing through the gate, the smell of the earth и dead plants struck the nose. It was not a nice smell, but it was still much better than the way the black pit in the deeps of the forest smelled.
+Едва ступив за ворота, они ощутили бьющий в нос запах земли и мёртвых растений. Это был неприятный запах, но всё равно он был много лучше, чем то как воняла чёрная яма в глубине леса.
 
-Vegetables they didn’t know the name of were lined in neat rows on the spacious agricultural land, but it seemed that most of them have lost their Life because there were no people to take care of them. Many of them had yellowish leaves down on the ground, while the roots already have completely disappeared turning back to sacred power.
+На обширном плодородном поле располагались ровными рядами овощи, названия которых они не знали, но похоже, большинство из них уже утратили Жизнь из-за того, что люди перестали о них заботиться. У многих пожухлые листья уже лежали на земле, а корни и вовсе целиком исчезли, обратившись священной силой.
 
-In this situation, vegetables и fruits that Цукигаке could eat were unlikely to be found. Although disappointed, she went ahead by the road running through the middle of the farmland. At a minimum, the road was easier to run than wetlands и grasslands. After making it through this field, the city of Центория will be there soon. In fact, the shadows of innumerable buildings already floated on the horizon, и behind that the old-fashioned Собора tower was clearly visible.
+В такой ситуации было маловероятно найти овощи или фрукты, которые могла бы съесть Цукигаке. Разочарованная, она всё равно продолжила путь, несясь сквозь середину поля. Хотя бы по дороге бежать было легче, чем в болотах или на лугу. Преодолеть это поле — и до города Центория останется совсем немного. На самом деле, на горизонте уже виднелись тени множества зданий, а за ними чётко виднелась старомодная башня Собора.
 
-"Kururu."
+"Ку-ру-ру."
 
-*── Look, that is the city.*
+*── Смотри, это — город.*
 
-She said it proudly to the rat running behind, but unfortunately, it didn’t seem to be much impressed.
+Она гордо сказала это бежавшей позади крысе, но к несчастью, ту это не сильно впечатлило.
 
-"Kikii."
+"Ки-кии."
 
-*── Strange. Are there nuts in such a place?*
+*── Странно. И в таком месте есть орехи?*
 
-*── Of course, there are plenty. Even if Я и you eat for the rest of the year, the count won’t decrease much.*
+*── Конечно, и много. Даже если мы вместе будем их есть целый год, количество не сильно уменьшится.*
 
-*── Really? Would you mind if Я bring a little to my dad, mother и sister?*
+*── Правда? А ничего если я немного возьму для отца, матери и сестры?*
 
-*── Okay, Я will ask to get some for your family members as well.*
+*── Хорошо, я попрошу чтобы дали и для твоей семьи.*
 
-So, they had such a conversation while running.
+Так они и переговаривались на бегу.
 
-Probably because of that Цукигаке was late to notice that smell other than of rotten vegetables had mixed in the air.
+Возможно именно поэтому Цукигаке слишком поздно заметила, что в воздухе присутствует иной запах, кроме вони разложившихся овощей .
 
-Almost at the same time when she noticed, the rat issued a sound of warning "Kii!"
+Почти в тот же самый миг, когда она заметила, крыса издала сигнал опасности "Кйи!"
 
-From the right side, a long и slender — but still a little bigger than Цукигаке — shadow came out и blocked the path.
+Справа вышла длинная и тощая — но всё равно побольше размером, чем Цукигаке — тень и преградила им путь.
 
-Once again, it was a bВосточной she saw for the first time. Slender sides и tail, the limbs are short but sturdy. Only the long projecting nose и eyes are white, the rest is dark gray.
+И снова это был зверь, что она видела впервые. Худые бока и хвост, конечности короткие, но жилистые. Лишь удлинённый нос и глаза были белыми, всё остальное было тёмно-серым.
 
-Цукигаке called out carefully to the bВосточной which silently stopped on the road.
+Цукигаке осторожно обратился к зверю, молча ступившему на дорогу.
 
 "Кю-ру-ру-ру..."
 
-*── Let us pass. We just want to go to the city.*
+*── Дай пройти. Нам просто нужно попасть в город.*
 
-But the gray bВосточной did not answer anything, just kept staring straight at Цукигаке's eyes with both its eyes shining red.
+Но серый зверь ничего не ответил, лишь продолжал смотреть Цукигаке прямо в глаза своими горящими красным зрачками.
 
-While she was thinking of what to do, a quiet sound reached her from left и right. There were the same kind of beasts appearing from behind the dead crops. Four, in total. Two of them went behind almost unnoticed to surround Цукигаке; with the first appearing bВосточной there were five of them now.
+Пока она раздумывала, что же предпринять, слева и справа раздался тихий звук. Из-за мёртвых стеблей появились ещё такие же звери. Четверо. Двое из них почти незаметно обошли Цукигаке сзади, окружив её; вместе с первым появившимся зверем всего их было пятеро.
 
-The gray beasts were called "togari-hanaguma"<sup><a href="#Prim3">3</a></sup> by the private territory dwellers who used to work in this farmland, и these creatures were always hated. They were omnivorous и nocturnal, so they ate the crops from the field during the night. With the permission of a supervisor, the troubled farmers decided to release large dogs in the field at night. Dogs bravely protected fields from hanaguma и reduced the damage to crops, but every once in a while, several hanagumas gathered in groups to attack и kill dogs.
+## Продолжение следует...
+
+<!--The gray beasts were called "togari-hanaguma"<sup><a href="#Prim3">3</a></sup> by the private territory dwellers who used to work in this farmland, и these creatures were always hated. They were omnivorous и nocturnal, so they ate the crops from the field during the night. With the permission of a supervisor, the troubled farmers decided to release large dogs in the field at night. Dogs bravely protected fields from hanaguma и reduced the damage to crops, but every once in a while, several hanagumas gathered in groups to attack и kill dogs.
 
 However, those who were liberated from the position of serfs a year ago took dogs with them while moving to Центория и its suburbs. The field was desolated after all who worked on it disappeared и nearly all of the plants withered, even those which were still producing some fruit for about half a year. Most of the togari-hanagumas who lost the food also starved и died — Underworld's wildlife had an area defined, и it wouldn’t move by itself outside of it — however, some of them, which naturally had a high value for the survivor instinct somehow kept up by eating small animals entering the field, insects they did not pay attention before, и the corpses of their congeners. However, the food was not enough, they were always hungry и ferocious.
 
@@ -413,15 +415,15 @@ Something was flying in a straight line at a great height in the sky gradually g
 
 And touched by a strange sensation, Цукигаке tried to howl.
 
-The voice did not come out at all, but the star changed its orbit as if it heard.
+The voice did not come out at all, but the star changed its orbit as if it heard.-->
 
-## Footnotes:
+## Примечания:
 
-1. <a name="Prim1"></a>Decorative small toy [ball](https://en.wikipedia.org/wiki/Temari_(toy)).
-2. <a name="Prim2"></a>So we had Иванезуми previously, this is another species of Underworld rat. Naming is bit more complicated though. While “Nezumi” remains “rat”, и “nure” probably stays for wetland area it lives in, “miminaga” is the first part of the name they call Australian Bilbies (specifically, [dalgytes](https://en.wikipedia.org/wiki/Greater_bilby)). So, altogether that should be something like… “bilby-like swamp rat”?
-3. <a name="Prim3"></a>тогари = shrew, hanaguma = coati. Я have no clue to what тогари is here, but based on description it talks about [Западной Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
+1. <a name="Prim1"></a>Маленький декоративный игрушечный [мячик](https://en.wikipedia.org/wiki/Temari_(toy)).
+2. <a name="Prim2"></a>У нас уже раньше было "Иванезуми", это ещё одна разновидность крыс Подмирья. Здесь название, правда, несколько сложнее. Хотя “незуми” и остаётся “крысой”, а “нуре”, вероятно, указывает на болотистую местность, где она обитает, “миминага” — это первая часть слова, которым называют билби (конкретно, [кроличьих бандикутов](https://ru.wikipedia.org/wiki/Кроличий_бандикут)). Так что, всё вместе это будет… “кроличья болотная крыса”? К счастью, дальше в основном она упоминается просто как  незуми, что я оставил "крысой". 
+<!--3. <a name="Prim3"></a>тогари = shrew, hanaguma = coati. Я have no clue to what тогари is here, but based on description it talks about [Западной Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
 4. <a name="Prim4"></a>熱線, actually translates as “infrared rays” :)
-<!--5. <a name="Prim5"></a>.
+5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.

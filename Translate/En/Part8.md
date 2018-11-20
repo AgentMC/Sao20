@@ -53,7 +53,7 @@ Unlike the garden of "Cathedral" where Tsukigake lived or the grassland around t
 
 Running around a thick tree, Tsukigake's keen nose caught something smelly, some rotten smell.
 
-A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp and sticky, unlike the soft soil of the flowerbed in the front of the Cathedral garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely he couldn’t see anything at the bottom.
+A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp and sticky, unlike the soft soil of the flowerbed in the front of the Cathedral garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely she couldn’t see anything at the bottom.
 
 "Ku-ru……"
 
@@ -79,9 +79,9 @@ If the memory of what she had seen from the window of the horse-drawn carriage w
 
 Suddenly his foreleg sunk into the ground, so Tsukigake fell somersault and rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
 
-However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Tsukigake, born in Cathedral, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, he stretched and turned the neck carefully around to check the surroundings again.
+However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Tsukigake, born in Cathedral, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, she stretched and turned the neck carefully around to check the surroundings again.
 
-His front and left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
+Her front and left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
 
 "Ku-ru-ru..."
 
@@ -99,7 +99,7 @@ Looking over the elliptical body of the brown rat having no boundary between the
 
 Whether or not Tsukigake was able to communicate a request to wait ─ nobody can say for sure, but the rat stopped running away leaving the long nose where a beard grew sticking out. After two seconds, it fearfully shoved out the whole head.
 
-*If I scare it again — it will run away at once.* Tsukigake lowered her body as low as possible and squeaked in low voice pretending that she is not going to eat it.
+*If I scare it again — it will run away at once.* Tsukigake lowered her body as low as possible and squeaked in low voice pretending that she was not going to eat it.
 
 "Ru-ru-ru-ru......"
 
