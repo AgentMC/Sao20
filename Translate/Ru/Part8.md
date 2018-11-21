@@ -265,165 +265,163 @@
 
 Пока она раздумывала, что же предпринять, слева и справа раздался тихий звук. Из-за мёртвых стеблей появились ещё такие же звери. Четверо. Двое из них почти незаметно обошли Цукигаке сзади, окружив её; вместе с первым появившимся зверем всего их было пятеро.
 
-## Продолжение следует...
+<!--Отсюда и до конца главы - пожалуй самый топовый кусок за все две книги-->"Тогари-ханагума"<sup><a href="#Prim3">3</a></sup> — так звали серых зверей обитатели частных территорий, когда-то работавшие в этом поле, и всякий раз это название произносилось с ненавистью. Это были всеядные ночные твари, так что по ночам они поедали урожай с полей. С разрешения надзирателя, обеспокоенные фермеры решили выпускать на поле по ночам больших собак. Собаки храбро защищали поля от ханагум и уменьшили нанесённый урожаю вред, но иной раз случалось, что несколько ханагум собирались в группы и нападали на собак, даже убивали их.
 
-<!--The gray beasts were called "togari-hanaguma"<sup><a href="#Prim3">3</a></sup> by the private territory dwellers who used to work in this farmland, и these creatures were always hated. They were omnivorous и nocturnal, so they ate the crops from the field during the night. With the permission of a supervisor, the troubled farmers decided to release large dogs in the field at night. Dogs bravely protected fields from hanaguma и reduced the damage to crops, but every once in a while, several hanagumas gathered in groups to attack и kill dogs.
+Однако, те, кто год назад были освобождены от статуса крепостных, забрали собак с собой когда разъезжались по Центории и её окрестностям. После того, как все, кто работал в поле, исчезли, поле оказалось заброшенным, и практически все растения высохли, даже те, что всё ещё продолжали плодоносить в течение полугода. Большинство тогари-ханагум, лишённых корма, умерли с голоду — животные Подмирья имели определённый ареал, и не могли выбраться за его пределы — однако, некоторые из них, от природы обладавшие более высоким значением инстинкта выживания, как-то ухитрились продержаться, поедая забредавших на поле мелких животных, насекомых, на которых они бы раньше и внимания не обратили, и тела своих сородичей. Однако, пищи всё равно не хватало, они были вечно голодны и свирепы.
 
-However, those who were liberated from the position of serfs a year ago took dogs with them while moving to Центория и its suburbs. The field was desolated after all who worked on it disappeared и nearly all of the plants withered, even those which were still producing some fruit for about half a year. Most of the togari-hanagumas who lost the food also starved и died — Underworld's wildlife had an area defined, и it wouldn’t move by itself outside of it — however, some of them, which naturally had a high value for the survivor instinct somehow kept up by eating small animals entering the field, insects they did not pay attention before, и the corpses of their congeners. However, the food was not enough, they were always hungry и ferocious.
+Наконец, в тот момент, когда окружившие её ханагумы начали издавать низкое "Г-р-р-р…", Цукигаке осознала угрозу.
 
-Finally, at the point when the surrounding hanagumas began growling "G-r-r-r…" in a low voice, Цукигаке understood the danger.
+Миминага-нуре-незуми, похоже, застыла на месте и не даже пискнуть не могла. Цукигаке тоже зарычала, обернув её хвостом, чтобы защитить своего маленького напарника.
 
-It seemed that миминага-нуре-незуми froze trembling on a spot и could not make a sound. Цукигаке also growled, while wrapping it with a long tail to protect a small companion.
+"Гюр-р-р-р!!!"
 
-"Gyu-r-r-r!!!"
+*── Если собираетесь лезть в драку, лучше это дело бросьте.*
 
-*── If you're planning to fight, you'd better stop it.*
+Такое значение она старалась передать в крике, но ханагумы только завыли ещё свирепей. И в отличие от крысы, эти звуки не несли никакого смысла.
 
-She intended to convey the meaning in the cry, but hanagumas only growled more violently. и unlike the case of rat, there was no meaning felt in those sounds.
+Конечно, Цукигаке было невдомёк, но драконы являлись дальними родичами древнего Священного Зверя, которому была дарована способность общаться с дикими животными. В оригинале, эта сила существовала чтобы выдворять диких зверей с территории Зверя, и хоть не у всех животных изначально присутствовал AI, когда Священный Зверь с ними входил в контакт, животной единице открывался доступ к минимальной мыслительной способности и простой базе решений.
 
-Of course, there was no way for Цукигаке to know, but the dragons were distant kin of an ancient Divine BВосточной who had been given the ability to communicate with wild animals. Originally it was a power designed to evacuate animal units from territory of the Divine Beast, but not all animals were given AI from the very beginning, however, when the Divine BВосточной came in contact, the animal unit would be given a minimum thinking ability и a decision database.
+Поэтому, у её напарника-крысы и появилась возможность ответить, когда  Цукигаке с ней заговорила, но сила эта была ограничена единицами с приоритетом значительно ниже, чем у инициатора общения. А тогари-ханагумы, выживавшие в суровых условиях, обладали приоритетом лишь немного ниже Цукигаке. Пятеро животных не получили возможность общаться, единственный поведенческий принцип, движущий ими, был охота на жертву для удовлетворения голода.
 
-Hence, her companion-rat got the ability to answer because Цукигаке spoke to it, but the target of that power had to be limited to units with much lower priority than the initiator. и togari-hanagumas which survived the severe conditions were only a little lower than the current priority of Цукигаке. Five animals were not granted thinking ability, the only behavioral principle moving them was to hunt the prey to satisfy the hunger.
+Цукигаке обвела взглядом так и не ответивших зверей.
 
-Цукигаке glared at all the beasts who did not respond to her.
+Раньше она никогда не попадала в такую ситуацию. Более того, сейчас она впервые действовала сама по себе за пределами Собора. И всё же, она инстинктивно поняла, что пятёрка зверей не собираются просто драться, они хотят убить Цукигаке и крысу.
 
-She had never fallen into such a situation until now. Moreover, this was the first time for her to act alone outside the Собора. Still, it was instinctively felt that the five beasts did not want to merely fight, but instead they are going to kill Цукигаке и the rat.
+*Если я здесь погибну или меня серьёзно ранят, не смогу позвать на помощь Госпоже и Шимосаки.* Жизнь Цукигаке уже была снижена, но если присмотреться, ханагумы тоже были сплошные кожа да кости, так что не было невозможным оторваться от них, если побежать достаточно быстро.
 
-*If Я die or get seriously hurt here, won’t be able to call for help for Master и Шимосаки.* Цукигаке's Life has also been decreasing, but if you look closer, hanagumas were also all skin и bones, so it would not be impossible to shake them off if running hard.
+*Но не уверена, сможет ли крыса убежать. Её ноги совсем не медленные, но она должно быть устала, ведь мы пробежали так много от болота до этого поля.* Цукигаке пообещала крысе много вкусных орехов, так что она не могла просто бросить её здесь.
 
-*But Я do not know if the rat will run away. Its legs are not even close to slow, but it should be tired because we were running a considerable distance from wetlands to this field.* Цукигаке promised to give rat a lot of delicious tree nuts, so she could not abandon it there.
+Программа AI Цукигаке не отдала предпочтение идее сбежать, пожертвовав крысой. Молодая дракониха приготовилась сражаться с пятью хищниками и свирепо и негромко зарычала:
 
-Цукигаке's AI program did not come up with an idea of escaping from hanagumas by sacrificing the rat. A young dragon decided to prepare to fight five predators, и growled quietly и violently:
+"Га-р-р-р!!!"
 
-"Ga-r-r-r!!!"
+На этот раз, похоже, её намерение дошло до зверей. Ханагума, блокировавшая путь вперёд, тоже широко разинула пасть, обнажила тонкие, острые клыки и ответила на крик:
 
-This time it seemed that the intention was transmitted to the beasts. The hanaguma which blocked the road in the front, also opens the mouth wide, pulled out a thin, sharp tusk и returned the cry:
+"Гя-у-у-у!!!"
 
-"Gya-u-u-u!!!"
+По этому сигналу две ханагумы слева и справа одновременно сорвались с места.
 
-With that signal, two hanagumas from the left и right jumped over.
+Цукигаке ухватила хвостом всё ещё застывшую крысу и подпрыгнула высоко в воздух. Ханагумы тоже прыгнули, но благодаря машущим со всей силы крыльям она оказалась выше.
 
-Цукигаке wound the tail around the rat which remained frozen, и jumped high in the air. The hanagumas also leaped, but thanks to the wings fluttering with full power she rose up even higher.
+Просчитавшиеся ханагумы столкнулись в воздухе и, сцепившись, свалились на землю. Цукигаке спланировала сквозь проём в растениях на запад и спустилась на поле. Высокие стебли проса ещё стояли в этом месте, так что короткое время чтобы спрятаться у неё было.
 
-The miscalculated hanagumas collided in the air и fell down, entangled. Цукигаке glided in that gap to the Западной и descended into the field. Tall stalks of millet were still left at that side, so she should be able to hide for a short time.
+Однако, сбежать, удерживая крысу обёрнутым вокруг неё хвостом, точно не получится, и тем более сложно будет сражаться с пятёркой хищников, стараясь сохранить её в безопасности. Так что прежде всего ей пришлось спрятать крысу в безопасном месте.
 
-However, it will not be possible to escape with the rat wrapped with a tail, и it is even more difficult to fight the five beasts while keeping it safe. First, she had to hide the rat in a safe place.
+Взгляд Цукигаке остановился на деревянной плетёной корзине, забытой между грядок. Она была на грани разложения, и Жизни оставалось совсем немного, но всё ещё сохраняла форму. *Пожалуйста спрячься под деревянной крышкой и ни звука!* — прошептала она крысе, опуская ту на землю.
 
-That's why Цукигаке chose a wooden cane left between the ridges. It was on the verge of decay и the Life was running short, but still kept the shape. *Please take cover under the wooden lid completely и be quiet there!* — she whispered to the rat after letting it down to the ground.
+Ответа не последовало, но было очевидно, что любое движение или звук приведёт к опасности. Но для того чтобы план удался, с этого момента было нужно разделить врагов. Она начала бежать на юг, намеренно создавая громкий шум, и справа сразу пришёл звук множества шагов.
 
-There was no answer, but it was clear that it would be dangerous if any movement or cry is heard. But for the plan to succeed she had to separate enemies from that point. As she began running to the Южной making a loud noise intentionally, a lot of footsteps came from the right side.
+*Если меня окружат, это будет конец. Нет других вариантов, кроме как разделить этих пятерых зверей, и победить их одного за другим.*
 
-*If I’m surrounded, it’d be the end. There is no choice but to push the five animals apart, to defeat one by one.*
+Прячась в рядах стеблей проса, она хаотично прыгала по сторонам. Звуки шагов  позади постепенно стихали. В тот момент, когда она была уверена, что за ней следует лишь одна ханагума, а остальные рассредоточились, Цукигаке резко изменила направление, используя крылья.
 
-Hiding in the millet lines, she leapt irregularly to the right и left. The sound of footsteps behind was gradually getting weaker. At the moment when she was convinced that only one hanaguma was still following while others scattered, Цукигаке made a sudden change in direction using wings.
+Выпрыгнувшая из щели в просовой грядке ханагума стояла на задних ногах в тот момент, когда она увидела бросившуюся на неё Цукигаке. Пронесясь подобно жёлтой стреле, та глубоко вгрызлась в незащищённое горло.
 
-Hanaguma which jumped out of the millet gaps, stood up only by the hind legs at the moment when it saw Цукигаке thrusting towards it. Leaping like an arrow, she deeply bit into the unprotected throat.
+Вкус свежей крови, наполнивший её рот, ей не очень-то понравился. Похоже было, что свежее мясо станет ещё одной нелюбовью, но сейчас это был вопрос выживания. Она с силой прижала к земле ханагуму, упавшую, не издав ни звука из-за разодранного горла.
 
-The taste of the fresh blood filling her mouth was something that she would not like too much. This time it seemed that raw meat would become another dislike, but that was a question of surviving. She held hard the hanaguma which fell down without being able to raise a scream due to torn apart throat.
+Ханагума попыталась вслепую махать передними лапами с острыми когтями, но стоило их перехватить в запястьях, и порезы больше не угрожали. Это было возможным поскольку драконы, подобно людям, могли манипулировать отдельными пальцами. Примерно через десять секунд движения ханагумы стали слабее, и затем силы покинули тело.
 
-Hanaguma tried to blindly swing the front legs with sharp claws, but grasping them by the wrists prevented the scratches. It was possible because dragons could manipulate their fingers alike to humans. In about ten seconds hanaguma's movement gradually became dull, и then the power went out quickly.
+Отпустив шею зверя, она осмотрелась. Слева приближались быстрые шаги. Спрятаться было негде.
 
-She took the mouth off the beast’s throat и looked around. The sound of footsteps approached rapidly from the left side. There was nowhere to hide.
+Цукигаке застыла и рухнула рядом с мёртвой ханагумой. Через мгновенье, пробившись сквозь рябы проса, появилась вторая ханагума.
 
-Цукигаке stopped moving и laid next to the dead hanaguma. Immediately afterwards, a new hanaguma appeared scrambling the millet lines.
+Стоило её увидеть лежащих друг на друге сородича и Цукигаке, "Г-р-р-р..." — зарычала она. Медленно приблизившись, она принюхалась к крови, пропитавшей шкуру ханагумы.
 
-As soon as it saw the congener и Цукигаке lying over each other, Gu-r-r-r... it growled. Approaching slowly, sniffed the smell of blood soaking the body of dead hanaguma.
+Не уверенная, решит ли зверюга позвать остальных, или начнёт пожирать труп, дождавшись когда внимание той на долю секунду отвлеклось, Цукигаке резко поднялась и вцепилась в её шею.
 
-Although she did not know if it is going to consider calling its friends, or would begin eating a corpse, the moment she felt the attention diverted for a split second, Цукигаке vigorously got up и bit into its neck.
+Несмотря на то, что стратегия притворной смерти удалась, у неё не получилось укусить в нужном месте, поскольку нападала она сбоку.
 
-Although the death pretense strategy succeeded, she could not catch the throat in the desired point because of attacking the enemy from the side.
+"Гья-а-o-o!!!"
 
-"Gya-a-o-o!!!"
+Ханагума дёрнулась и начала извиваться, стараясь сбросить с себя Цукигаке, вгрызавшуюся в правую часть её шеи. Та, в свою очередь, попыталась прижать её лапы, как раньше, но это не удалось, и острые когти прошли сквозь взъерошенные перья Цукигаке и неглубоко порезали шкуру.
 
-Hanaguma shrugged и began to twitch around trying to get rid of Цукигаке clung to the right side of its neck. She tried to hold it down with the front legs like she did the last time but it did not work, the sharp claws made it through Цукигаке’s disturbed feathers и shallowly cut the skin.
+Цукигаке с ханагумой упали вниз и принялись кататься влево и вправо, и землю залила смешавшаяся кровь их обеих. *Я так больше Жизни потеряю, но разжимать челюсти сейчас нельзя.* Цукигаке просунула когти правой передней лапы в рану на горле ханагумы и стала раздирать мягкое мясо вниз со всей своей силы.
 
-The blood of both splashed around as the hanaguma и Цукигаке were rolling on the ground to the right и left. *Я am losing more Life this way, but Я cannot open my mouth now.* Цукигаке pierced the claw of the right front leg into the wound in the throat of hanaguma и tore down to the bottom with all her might.
+В итоге, второй зверь тоже растерял всю Жизнь и обмяк. Вынув клыки из шеи второго трупа, Цукигаке неуверенно встала на ноги.
 
-So finally, the second bВосточной also lost all its Life и became limp. After removing the tusks from the neck of the corpse, Цукигаке stood up unsteadily.
+Она осмотрела своё тело, бессчётные порезы покрывали всю шею и грудь. К тому же, похоже, что порезы на спине, оставленные шипами живой изгороди, снова начали кровоточить из-за неистового катания по земле. Однако, всё ещё оставались трое врагов.
 
-She looked over her body, countless cuts ran from neck to chest. Moreover, it seems that the scratches on the back which were made by the thorns of the hedge also blooded again because of violent rolling over the ground. However, three enemies still remained.
+Снова прислушавшись, она поняла, что, приманённые зовом второго зверя, шаги одновременно приближаются с трёх сторон. Энергии на то чтобы их снова разделить, бегая вокруг, уже не было. Оставалось лишь одновременно сражаться с тремя зверями.
 
-When she listened carefully again, there were footsteps approaching from three directions, being baited by the second beast’s cry. She did not have the energy to run around и away again. The only way was to fight three animals at the same time.
+Через несколько секунд, ломая мёртвые стебли проса, одна за другой появились три тогари-ханагумы. Одна из них была вожаком, что изначально загородил ей дорогу. Стоя в одном ряду с остальными, этот зверь выглядел несколько больше двух других животных.
 
-After a few seconds, togari-hanagumas appeared one after another, kicking down the dead millet. One of them was a leader whom they met first when it blocked the way. Lined up with others, it was slightly larger than the other two animals.
+Как только он увидел трупы двух сородичей, вожак испустил яростный вопль
 
-Lead hanaguma released a ferocious scream as soon as it saw the corpse of two congeners:
+"Гьа-a-a-a-a-у!!!"
 
-"Gyu-a-a-a-a-u!!!"
+Пускай она и не разобрала слов, Цукигаке услышала в этом рёве много злости. Как минимум чтобы показать что её боевой дух ещё не повержен, она собрала оставшиеся силы и ответила:
 
-Even though she did not understand the words, Цукигаке felt a lot of anger in that roar. как минимум to show his fighting spirit is still not defeated, he pulled together the power left behind и replied:
+"Га-р-р-р-р-р!!!"
 
-"Ga-r-r-r-r-r!!!"
+Прошёл всего год с того момента как Цукигаке появилась на свет, но молодая дракониха уже была одной из сильнейших зверей в Мире Людей. Ханагумы, ведомые предельно простым алгоритмом, на какое-то время засомневались, словно бы почуяв угрозу, которую не выразить значением Жизни или приоритета, но в итоге они, конечно, не стали отступать.
 
-Although only a year has passed since Цукигаке was born, still the young dragon was one of the strongest beasts in the present Мира Людей. The hanagumas who were running a very simple algorithm also hesitated for a moment as though they felt a threat not expressed in the value of Life or priority, but of course they did not escape in the end.
+"Гав!"
 
-"Gau!"
+Раздался короткий лай ханагумы-вожака, и двое зверей одновременно прыгнули с двух сторон.
 
-A short barking of lead hanaguma sounded и two animals at the same time came jumping from the left и right.
+Оружием ханагумам служили крепкие когти на всех лапах. Цукигаке тоже обладала таким же основным оружием, но в дополнение к этому, у неё был длинный и гибкий хвост.
 
-The weapon of hanagumas were tough claws of all legs. Цукигаке also had the same main weapon, but in addition to it there was a long и dexterous tail.
+Притворившись, что будет контратаковать с помощью укуса, она внезапно развернулась всем телом и огрела тех двоих хвостом. Предмет её гордости, хвостовые перья теперь были окончательно взъерошены и торчали во все стороны, но и визжащие ханагумы отлетели в сторону, вломившись в стену проса. Растения были уже сухими, и потому торчащие из оттопыренных кусков коры заусеницы вцепились в их шерсть, заставляя их бороться и махать ногами в воздухе.
 
-Pretending to counterattack with biting, he suddenly rotated the body и hit two of them together with a tail. Although tail feathers she used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, и rammed into a wall of millet. It was withered и therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle и wriggle in the air.
+Такой результат был неожиданным, но это определённо был последний шанс. Цукигаке оттолкнулась от земли и атаковала стоящего перед ней вожака-ханагуму.
 
-She did not anticipate this result, but that definitely was the last chance. Цукигаке kicked off the ground и attacked lead hanaguma from the front.
+"Гуа!!!"
 
-"Gua!!!"
+Вожак обнажил острые клыки. Цукигаке изогнула длинную шею и нацелилась на его горло, но враг неожиданно отреагировал, подняв переднюю лапу и защитив жизненно важный участок. В итоге, голова Цукигаке, которую та рефлекторно отдёрнула, и голова ханагума-вожака столкнулись, их челюсти встретились, и они укусили друг друга.
 
-The leader put out the sharp tusks. Цукигаке bent her long neck и aimed at its throat, but the enemy with an unexpected reaction lifted the front leg и protected the vital area. In the end, Цукигаке who reflexively pulled her head away, и the head of the lead hanaguma collided, their jaws intersected и they both have bitten.
+Пламя боли охватило всю её морду. Острые клыки глубоко вгрызались с обеих сторон, в ушах отдавалось скрипение костей, но она не могла себе позволить разжать челюсти. Если бы сила с её стороны уменьшилась хоть немного, ханагума бы легко раздавила её морду.
 
-The burning pain wrapped her entire face. Sharp tusks bit deep from both sides, the creaking sounds of bones could be heard, but she could not release the jaws. If the force is decreased even by a slight amount, the face would be crushed by hanaguma.
+Вцепившись друг другу в морды, они отчаянно катались по земле. В её глотку текла кровь, и неясно было — это её или врага. Одно можно было сказать суверенностью: Жизнь обоих животных стремительно уменьшалась. Тот, у кого Жизнь закончится первым — умрёт.
 
-The two of them clung to each other's face were rolling hard on the ground. When blood flowed into her mouth it wasn’t clear if it was hers or the opponent’s. One thing was certain that the Life of both were rapidly decreasing. The one whose Life runs out first dies.
+До этого момента, Цукигаке никогда не приходилось сталкиваться с тем, что называется смерть.
 
-Until that moment, Цукигаке had never dealt with the thing called death.
+Мать-дракон Акисоми всё ещё была молода; в войне она не участвовала, так что и смерть человека сама не видела. В этот день, когда она поймала и съела живущую в озере рыбу, это само по себе уже было шокирующим опытом. Когда стремительно плававшая в воде рыба попадала в рот Цукигаке или Шимосаки, стоило им укусить, и немного потрепыхавшись, она переставала двигаться.
 
-The mother-dragon Акисоми was still young; she had not participated in the war, so had never seen human death directly. That day, when she caught и ate fish living in the lake, it was quite a shocking experience. When fish that was swiftly swimming in the water was caught in the mouth of Цукигаке or Шимосаки, after they bit, after some shaking for a moment it wouldn’t move anymore.
+Наверное, в этом мире много живых существ каждый день так погибали, становясь пищей для более сильных животных. Даже ханагумы напали на Цукигаке и крысу не ради веселья. Они напали чтобы выжить.
 
-Perhaps, in this world, many living creatures die in such a way every day becoming the food for larger creatures. Even hanagumas did not attack Цукигаке и the rat just for fun. It was in order to survive.
+Но Цукигаке не могла позволить им убить и съесть себя. *В темнице особняка моя Госпожа и брат-дракон вместе со своей Госпожой ждут помощи. Люди в чёрном, схватившие Госпожу, сделали это не потому что они были голодны или при смерти. Это было с плохой целью, чтобы навредить тем, кто для меня важен...... может быть, даже убить их. Я не могу позволить такому случиться, ни в коем случае.*
 
-But Цукигаке could not let to be killed here и eaten. *In the dungeon of the mansion, my Master и brother dragon и his Master are waiting for help. Black humans who caught the Master did not do so because they were hungry or about to die. It was for worse things, trying to hurt  people Я cherish...... or maybe even to kill them. Я cannot let such a thing happen, absolutely.*
+Внезапно, Цукигаке почувствовала, как что-то жжётся в глубине её горла.
 
-Unexpectedly, Цукигаке felt something burning in the back of her throat.
+Что-то горячее расширялось и поднималось из глубин её тела. Она не могла сдерживать это.
 
-Something hot inflated и spiraled up from the deeps of her body. He could not keep it down.
+Цукигаке выпустила пламя наружу, всё ещё вцепившись в челюсти вожака-ханагумы. Бессчётные искры разлились во все стороны из того места, где сцепились их челюсти, обжигая мех им обоим. Большинство из этого неконтролируемого огня и жара устремились прямо в тело ханагумы, нанеся смертельный урон.
 
-Цукигаке unleashed the heat still clung to the jaw of the lead hanaguma. Countless sparks burst from the joint of two jaws, burning fur of both. Most of the uncontrolled flame и heat flew into the body of hanaguma, causing fatal damage.
+"Гьа-у!!!"
 
-"Gya-u!!!"
+Визжащая ханагума-вожак покатилась по земле, отпустив морду Цукигаке, и после нескольких конвульсий затихла.
 
-The screaming lead hanaguma rolled on the ground, releasing Цукигаке's face и stopped moving after several convulsions.
+Цукигаке не поняла, что она сделала. То что это был огненный поток<sup><a href="#Prim4">4</a></sup>, что драконы изрыгали его изо рта, что это их величайшее их оружие, и что оно стоило Жизни — Цукигаке ничего этого не знала.
 
-Цукигаке did not understand what she did. That it was a fire stream<sup><a href="#Prim4">4</a></sup>, the greatest weapon of the dragons they spew out of their mouths, и that it cost Life, Цукигаке did not know any of this.
+На тот момент Жизнь Цукигаке была меньше 10% от максимального значения. К тому же, кровь продолжала капать из спины и груди, и конечно, из свежих ран на морде, что она только что получила.
 
-At this point, Цукигаке's Life was less than 10% of the maximum value. Moreover, blood continued to drip from the back и chest, и from the wounds she received on the face.
+И всё же молодая дракониха смогла подняться и развернуться.
 
-Still the young dragon managed to get up и to turn backward.
+Две оставшиеся ханагумы, запутавшиеся раньше в грядке сухого проса, только что прыгнули на землю. Несмотря на то, что их вожак был мёртв, они не собирались сдаваться. Низко рыча, они сокращали дистанцию.
 
-The two remaining hanagumas that were caught in the millet's ridge just jumped to the ground. Even though their leader was dead, they did not seem to give up. While groaning low, they closed the distance.
+Энергии чтобы продолжать сражение уже не оставалось, но Цукигаке продолжала поддерживать тело, мокрое от бежавшей крови, в стоячем положении. Упади она, те двое мгновенно прыгнули бы.
 
-She did not have enough energy to continue fighting, but Цукигаке continued to support the body stained with blood standing. Would she collapse, the two will jump immediately.
+*В глазах темнеет. Силы покидают конечности. Но падать нельзя. Я доберусь до города и позову на помощь.*
 
-*The vision slowly gets darker. The force comes out of limbs. But Я cannot fall down. I’ll get to the city и call for help.*
+Внезапно, она словно бы что-то услышала.
 
-Suddenly, she felt as if she heard something.
+Ханагумы подняли морды к небу. Цукигаке тоже подняла окровавленную морду.
 
-Hanagumas turned their faces at the sky. Цукигаке also raised the blooded face.
+Что-то летело по прямой на огромной высоте в небе, которое всё больше и больше окрашивали вечерние цвета. Это птица? Это дракон? Это было что-то звучащее как порыв ветра и излучающее зелёный свет, что-то вроде звезды.
 
-Something was flying in a straight line at a great height in the sky gradually getting deeper и deeper shaded with evening colors. Is it a bird? Is it a dragon? It was something sounding like a gust of wind и emitting green light, something like a star.
+*── Хотя я вижу это впервые, почему-то я знаю, кто это.*
 
-*── Although Я see it for the first time, but somehow Я know who that is.*
+И поддавшись странному импульсу, Цукигаке попыталась завыть.
 
-And touched by a strange sensation, Цукигаке tried to howl.
-
-The voice did not come out at all, but the star changed its orbit as if it heard.-->
+Ей не удалось издать ни звука, но словно услыхав, звезда изменила свой курс.
 
 ## Примечания:
 
 1. <a name="Prim1"></a>Маленький декоративный игрушечный [мячик](https://en.wikipedia.org/wiki/Temari_(toy)).
 2. <a name="Prim2"></a>У нас уже раньше было "Иванезуми", это ещё одна разновидность крыс Подмирья. Здесь название, правда, несколько сложнее. Хотя “незуми” и остаётся “крысой”, а “нуре”, вероятно, указывает на болотистую местность, где она обитает, “миминага” — это первая часть слова, которым называют билби (конкретно, [кроличьих бандикутов](https://ru.wikipedia.org/wiki/Кроличий_бандикут)). Так что, всё вместе это будет… “кроличья болотная крыса”? К счастью, дальше в основном она упоминается просто как  незуми, что я оставил "крысой". 
-<!--3. <a name="Prim3"></a>тогари = shrew, hanaguma = coati. Я have no clue to what тогари is here, but based on description it talks about [Западной Mountain Coati](https://en.wikipedia.org/wiki/Nasuella_olivacea). Let’s just think this is some very _special_ variety of coati, but not quite a coati.
-4. <a name="Prim4"></a>熱線, actually translates as “infrared rays” :)
-5. <a name="Prim5"></a>.
+3. <a name="Prim3"></a>Тогари = [землеройка](https://ru.wikipedia.org/wiki/Землеройковые), hanaguma = [коати](https://ru.wikipedia.org/wiki/Коати). Я понятия не имею, при чём тут землеройка, но исходя из описания, речь идёт о [западном горном коати](https://en.wikipedia.org/wiki/Nasuella_olivacea). Давайте будем считать просто что это такая хитрая разновидность коати, но не совсем прям коати. По-этому дальше по тексту я в основном использую оригинальное наименование.
+4. <a name="Prim4"></a>熱線, в принципе переводится как “инфракрасный свет” :)
+<!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.
 8. <a name="Prim8"></a>.

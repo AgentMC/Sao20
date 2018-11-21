@@ -349,7 +349,7 @@ Lead hanaguma released a ferocious scream as soon as it saw the corpse of two co
 
 "Gyu-a-a-a-a-u!!!"
 
-Even though she did not understand the words, Tsukigake felt a lot of anger in that roar. At least to show his fighting spirit is still not defeated, he pulled together the power left behind and replied:
+Even though she did not understand the words, Tsukigake felt a lot of anger in that roar. At least to show her fighting spirit is still not defeated, she pulled together the power left behind and replied:
 
 "Ga-r-r-r-r-r!!!"
 
@@ -361,7 +361,7 @@ A short barking of lead hanaguma sounded and two animals at the same time came j
 
 The weapon of hanagumas were tough claws of all legs. Tsukigake also had the same main weapon, but in addition to it there was a long and dexterous tail.
 
-Pretending to counterattack with biting, he suddenly rotated the body and hit two of them together with a tail. Although tail feathers she used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, and rammed into a wall of millet. It was withered and therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle and wriggle in the air.
+Pretending to counterattack with biting, she suddenly rotated the body and hit two of them together with a tail. Although tail feathers she used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, and rammed into a wall of millet. It was withered and therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle and wriggle in the air.
 
 She did not anticipate this result, but that definitely was the last chance. Tsukigake kicked off the ground and attacked lead hanaguma from the front.
 
@@ -383,7 +383,7 @@ But Tsukigake could not let to be killed here and eaten. *In the dungeon of the 
 
 Unexpectedly, Tsukigake felt something burning in the back of her throat.
 
-Something hot inflated and spiraled up from the deeps of her body. He could not keep it down.
+Something hot inflated and spiraled up from the deeps of her body. She could not keep it down.
 
 Tsukigake unleashed the heat still clung to the jaw of the lead hanaguma. Countless sparks burst from the joint of two jaws, burning fur of both. Most of the uncontrolled flame and heat flew into the body of hanaguma, causing fatal damage.
 
