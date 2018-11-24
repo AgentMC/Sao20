@@ -1,271 +1,273 @@
-# Part 9
+# Часть 9
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 <!--![Image](/Translate/Img/p167.jpg)-->
 
-How many minutes — how many hours have actually passed?
+Сколько минут — сколько часов уже прошло?
 
-There was no way to know the current time in a dungeon which had not a single window и no Центория time bells could be heard either. Премьер-Мечник used to say "I'd like to finish the wearable watch as soon as possible", but though he tested a lot of prototypes with head engineer Sadore, it seemed to be far from complete.
+Сидя в подземелье, в котором ни единого окна не было, ни звук колоколов Центории не пробивался, текущее время узнать было невозможно. Премьер-Мечник повторял "Хотел бы я закончить наручные часы как можно скорее", но, хотя он вместе с ведущим инженером Садоре и перепробовал множество прототипов, до завершения, видимо, было далеко.
 
-Every time Ронье heard that words, she secretly thought, *since the time bell tells the exact time, why would it be necessary to carry bulky equipment......* but after getting in such a situation she had no choice but to change her mind.
+Каждый раз, когда Ронье слышала эти слова, она думала про себя: *раз колокола всё равно позволяют узнать точное время, в чём смысл носить неудобную экипировку......*, но попав в подобную ситуацию, ей не оставалось ничего другого кроме как изменить точку зрения.
 
-Also, the melody that the thousands of bells all over Мира Людей play was a hymn called "Under the light of Solus". It was a beautiful piece of music, but knowing that the history of the Церковь Аксиом is covered with countless lies, listening to a hymn it’s quite difficult to sincerely praise gods as it was before.
+К тому же, мелодия, которую отбивали тысячи колоколов по всему Миру Людей, звалась "Под светом Солуса". Это было прекрасное произведение, но зная испещрённую ложью историю Церкви Аксиом, было весьма непросто искренне восхвалять богов под музыку этого гимна.
 
-The art in Мира Людей such as music, painting, sculpture и poetry were still severely restricted by the Индекс Табу. It was only those who were given the sacred task of an artist could advance the artistic path, и they must also undergo a judgment by the Imperial Government before the work is announced. If the content even slightly denies the genesis myth or Церковь Аксиом, or is excessively entertaining, it gets banned.
+Искусство в Мире Людей, такое как музыка, рисование, скульптура и поэзия, были строжайше запрещены Индексом Табу. Лишь те, кто обретал священный долг творца, могли идти по пути искусства, а их работы перед публикацией обязаны были пройти оценку Имперского Правительства. И если содержимое хоть в чём-то противоречило мифу о сотворении мира или канонам Церкви Аксиом, либо было излишне развлекательным, его не пропускали.
 
-Премьер-Мечник wanted to immediately deprecate the screening system, but the idea was fought back by the Union Council — specifically, as expected, by Рыцарь Целостности Nergius — so it has not come true yet. It was still a little difficult question for Ронье, but she thought that it will be good when time comes for people to sing songs, paint pictures и write stories freely without being bound by any screening.
+Премьер-Мечник хотел немедленно упразднить всю систему предварительных оценок, но против этой идеи выступил Объединённый Совет — точнее, само-собой, Рыцарь Целостности Нергиус — так что она ещё не была реализована. Для Ронье это всё ещё было непростым вопросом, но она полагала что будет здорово, если люди смогут петь песни, рисовать картины и писать рассказы свободно, без какого-либо надзора.
 
-*In order to see such an era, we must survive и escape from here.*
+*Чтобы увидеть этот день, мы должны выжить и сбежать отсюда.*
 
-Almost at the same time as Ронье reconsolidated her resolve again, the quiet sound echoed:
+Почти одновременно с тем, как Ронье вновь собрала в охапку свою решимость, раздались тихие слова:
 
-"Ugh, it's useless......."
+"Ух, всё бесполезно......."
 
-Тейза, who was attempting the "Pick of Mind " in front of the iron gate, flopped to the floor.
+Тейза, пытавшаяся провести "Отмычку Разума" на железных воротах, хлопнулась навзничь на пол.
 
-"Кирито-сенпай would probably have opened in no time..."
+"Кирито-сенпай бы открыл за секунду..."
 
-Although it was a crisis situation, unexpectedly Ронье bitterly smiled to her best friend's words.
+Хотя ситуация была кризисная, Ронье неожиданно для себя горько улыбнулась на слова своей подруги.
 
-"Hey, you cannot do the same thing as the Сенпай so easily"
+"Хэй, ты не сможешь так просто взять и сделать то же, что и Сенпай."
 
-"That's right, but... how about you?"
+"Ну да, а... как там у тебя?"
 
-She returned a silent denial to that whispered question.
+На этот высказанный шёпотом вопрос та ответила молчаливым отрицанием.
 
-While her best friend was trying the Pick of Mind, Ронье was looking over the dungeon walls, but as expected no hidden door or a destructible location could be found. It was impossible to quietly extract the Северной Империи granite stone forming a wall without even a 1 mil gap, even with the power of apprentice knights, и if you try to forcibly destroy walls or grating the sound would be transmitted to the mansion above.
+Пока её лучшая подруга пыталась провернуть Отмычку Разума, Ронье осматривала стены темницы, но, как и ожидалось, никаких потайных дверей или разрушаемых участков найдено не было. Между гранитными блоками, добываемыми в Северной Империи, которые составляли стены, не было зазора даже в один мил, и даже с силой учеников рыцарей бесшумно извлечь их было невозможно, а если попытаться силой разрушить камни или решётку, звук тут же достигнет особняка над ними.
 
-Тейза who finally raised her body, sat hugging her knees и said as if to herself:
+Тейза, снова поднявшаяся, седа, обхватив колени руками, и произнесла, обращаясь, скорее, к самой себе:
 
-"Шимосаки, you all right there?"
+"Шимосаки, как ты там?"
 
-It was the fourth time she sighed out the same question. Still, Ронье kneeled next to her best friend и answered gently stroking her back:
+Это был уже четвёртый раз когда она с вздохом задавала этот вопрос. Тем не менее, Ронье опустилась рядом со своей подругой на колени и ответила, ласково поглаживая её по голове:
 
-"Sure he’s okay. We’ll meet soon."
+"Конечно он в порядке. Мы скоро снова встретимся."
 
-While rubbing the back of Тейза who was silently nodding, Ронье also pondered about Цукигаке inside her mind.
+Приобняв за спину молча кивавшую Тейзу, Ронье задумалась о Цукигаке.
 
-Between the mansion и the Центория Северной Gate, there were some hills, but all-in-all there were just flat plains alternating with former direct jurisdiction farms. Ронье was not familiar with the state of private territories but she though there couldn’t be any animals capable of fighting small dragons there. She could not say there was absolutely no possibility of encountering an unexpected danger, so Ронье only hoped for Цукигаке to arrive safely.
+Между особняком и Северными Вратами Центории было несколько холмов, но в целом там был сплошной равнинный луг, перемежавшийся с несколькими фермами прямой юрисдикции. Ронье не было доподлинно известно о состоянии частных территорий, но она полагала, что там не будет животных, способных драться с маленькими драконами. Она, конечно, не была уверена, что на их пути не возникнет никакой угрозы, так что Ронье просто надеялась, что Цукигаке доберётся в целости и сохранности.
 
-*── Gods-сама.*
+*── Боги-сама.*
 
-Even though she knew that neither the gods’ world in the sky nor the gods themselves living there existed, Ронье devoted her heartfelt prayer.
+Пускай она и знала, что ни Мира Богов в небе, ни самих богов там живущих, не существует, Ронье вложила всю себя в эту искреннюю молитву.
 
-*── Please, please take care of Цукигаке и Шимосаки.*
+*── Прошу, пожалуйста, позаботьтесь о Цукигаке и Шимосаки.*
 
-She could not hear a voice answering.
+Она не услышала чтобы кто-то ответил.
 
-Instead, she heard the sound of heavy rocks rubbing against each other.
+Вместо этого, она услышала звук, с которым трутся друг о друга тяжёлые камни.
 
-The thick stone wall illuminated by the lanterns was slowly rising up on the left side of the passage. Ронье и Тейза winced, abruptly stood up и went closer to the back wall. In the adjacent cell, the mountain гоблинов let out screams in multiple voices.
+Слева по проходу медленно поднималась вверх освещённая неровным светом лампад толстая каменная стена. Ронье и Тейза вздрогнули, резко встали и отошли подальше к задней стене. В соседней камере раздались разноголосые крики горных гоблинов.
 
-The one who slowly, as if seeping out of the darkness behind the completely raised door, appeared was a man in a black robe called Зеппос by Император Крюгер.
+Тем, кто медленно, словно просачиваясь, появился из густой тьмы, стоявшей за поднявшейся до предела дверью, был человек в чёрном плаще, которого Император Крюгер назвал Зеппос.
 
-The man walked through the aisle while chinking the key ring hanging on his right и stopped in front of the cell with Ронье и the other one. He peered inside with a gentle movement, his gaze from behind the hood glided over the two of them, then without saying a word he returned to the previous movement. Went forward several steps и stopped again in front of the next cell.
+Человек прошёл по проходу, позвякивая висевшей на его правом боку связкой ключей, и остановился перед их с Ронье камерой. Он скользящим движением заглянул внутрь, обвёл их своими горящими из глубин капюшона глазами, а затем, ни слова не вымолвив, продолжил свой путь. Прошёл несколько шагов вперёд и остановился перед соседней камерой.
 
-Is it just a patrol, thought Ронье и carefully got closer to the grate to watch the man. The man then inserted into one in the bunch of keys into the lock.
+Это просто обход, подумала Ронье и осторожно приблизилась к решётке чтобы понаблюдать за человеком. Тот как раз вставлял один из ключей в замок.
 
-**Ga-chin**, echoed the cold sound, и the гоблинов raised frightened voices again. The man who opened the door without hesitation declared with a strangely distorted voice:
+**Га-чин**,— раздался холодный звук, и гоблины снова испуганно заголосили. Отперший дверь человек без колебаний провозгласил своим странно искажённым голосом:
 
-"Animals, all three of you, get out of the cell."
+"Животные, все трое, выметайтесь из камеры."
 
-The гоблинов squeaking immediately seized. A quiet whispering voice asked:
+Гоблинский визг немедленно прекратился. Тихий шёпот произнёс:
 
-"You us...... let out?"
+"Ты нас...... отпускаешь?"
 
-After about three seconds, Зеппос answered "yes".
+Через примерно три секунды, Зеппос ответил "да".
 
-Ронье felt it was a lie. The silence was unnatural, и he could not just release the гоблинов whom they abducted from the inn in Южной Центория with a great deal of trouble.
+Ронье почувствовала что это была ложь. Молчание было неестественным, да и не мог он просто так отпустить гоблинов, которых они с таким трудом похитили из таверны в Южной Центории.
 
-But the mountain гоблинов came out of the cell without showing suspicion of doubting the words of the man.
+Но горные гоблины, не выказывая подозрений к словам человека,вышли из камеры.
 
-"Proceed to that door."
+"Идите к той двери."
 
-— said Зеппос said, pointing at the hidden door on the left side, not the right side where there was an exit to the surface. The three of them quietly obeyed и began walking. As if blocking the escape route, Зеппос followed behind.
+— сказал Зеппос, указывая на потайную дверь слева, не на право, где был выход на поверхность. Троица молча подчинилась и двинулась вперёд. Блокируя всякий путь к побегу, за ними следовал Зеппос.
 
-The moment when the man was passing in front of a grate, Ронье could not stand it и said:
+В тот момент, когда человек проходил мимо их камеры, Ронье не могла больше это терпеть и сказала:
 
-"What are you going to do with those people?"
+"Что вы собираетесь сделать с этими людьми?"
 
-The гоблинов stopped и turned their looks at Ронье; they seemed to fully believe the promise to release, so looked disappointed и sorry. Behind them, Зеппос blasted with a squeaking laughter:
+Гоблины остановились и уставились на Ронье; походе, они полностью поверили в обещание, что их отпустят, так что смотрели с разочарованием и сожалением. Зеппос за их спинами разразился скрипучим хохотом:
 
-"Ку-ku...... ‘people’, you say?"
+"Ку-ку...... ‘людьми’, ты сказала?"
 
-"What's funny?"
+"Что смешного?"
 
-It was Тейза who asked it. Зеппос twisted his body again и after looking into the prison replied with a smile.
+Это Тейза спросила. Зеппос снова повернулся и, заглянув в камеру, с улыбкой ответил:
 
-"Гоблины останутся гоблинами покуда их Жизнь не истечёт, no matter how much the world changes."
+"Гоблины останутся гоблинами покуда их Жизнь не истечёт, не важно как сильно меняется мир."
 
-Ронье thought she already heard these words somewhere. But before the memory came out to her, Зеппос came back to senses и ordered the three ahead:
+Ронье подумалось, что она уже где-то слышала эти слова. Но прежде, чем память выдала ответ, Зеппос вернул своё прежнее настроение и приказал трём перед собой:
 
-"Now move, go up the stairs и I'll let you out."
+"А теперь вперёд, вверх по лестнице и я вас выпущу."
 
-The figures of Зеппос и the гоблинов who resorted to move forward timidly dissolved in the darkness behind the secret door. The sound of four footsteps moved up the stone stairs, и also disappeared. Finally, a ‘**Gii!**’ sound shrieked, и the silence returned to the dungeon.
+Фигуры Зеппоса и продолживших движение гоблинов медленно растворились во тьме за потайной дверью. Раздались звуки шагов четверых человек, поднимающихся по каменной лестнице, а затем и они исчезли. Напоследок, проскрипел звук ‘**Гии!**’, и темницу снова поглотила тишина.
 
-"............ really, they’ve got no reason to release them, huh......"
+"............ ну правда, у них же ни одной причины их отпускать, хм......"
 
-— whispered Тейза, и Ронье had no choice but to nod.
+— прошептала Тейза, и Ронье не придумала ничего другого кроме как кивнуть.
 
-"Perhaps... something is ready. Я do not know what it is.... but I'm sure it is somehow related to гоблинов-сан."
+"Возможно... они что-то приготовили. Я не знаю, что.... но я уверена, это как-то связано с гоблинами-сан."
 
-When she responded in a whispering, Тейза touched her lips for a moment и said with tighter expression.
+Когда она шёпотом ответила, Тейза на секунду коснулась своих губ, а затем произнесла более жёстким тоном:
 
-"Кирито-сенпай said that the kidnappers will commit another murder in Центория и that he will frame the abducted гоблинов-сан again. If so...... innocent people will be killed in Центория again."
+"Кирито-сенпай сказал, что похитители совершат ещё одно убийство в  Центории, и что они снова подставят похищенных гоблинов-сан. Если так...... в Центории снова убьют невинных людей."
 
-"…………Yup……"
+"…………Ага ……"
 
-While nodding again, Ронье thought hard.
+Снова кивнув, Ронье глубоко задумалась.
 
-If her friend’s guess is right, whom the kidnappers — who are Император Крюгер и Зеппос, are going to kill?
+Если догадка её подруги права, кого похитители — то есть Император Крюгер и Зеппос — собираются убить?
 
-Кирито was also saying this as well.
+Кирито тоже об этом говорил.
 
-If the culprit was able to violate the Индекс Табу и kill Язен-сан because he was a former private territory dweller, other former serfs could be killed in the same way.
+Если виновник смог нарушить Индекс Табу и убить Язена-сан поскольку тот был бывший житель частной территории, остальные бывшие крепостные могут быть убиты тем же способом.
 
-Премьер-Мечник thought so because he could hear the voice of the murderer in Асуна's "past reflection art". The words of the culprit just before killing the old Язен.
+Премьер-Мечник так полагал, поскольку он смог услышать голос в "Искусстве Отражения Прошлого" Асуны. Слова, что преступник сказал прямо перед тем как убить Язена.
 
 *── Крепостные частных владений остаются собственностью этих владений, покуда их Жизнь не истечёт, так что если тебя это не устраивает, то прямо здесь и сейчас прими же смерть дарованную.*
 
-"…………Ah!"
+"…………А!"
 
-— exclaimed Ронье as Зеппос’ voice heard just a few minutes ago revived in her mind.
+— воскликнула Ронье когда в её голове возник голос Зеппоса, что она слышала лишь минуту назад:
 
 *── Гоблины останутся гоблинами покуда их Жизнь не истечёт.*
 
-Just because the subject is different, exactly the same phrase.
+Предмет другой, но фраза та же самая.
 
-That's it. Too weak for the evidence, purely circumstantial. But Ронье believed her intuition was correct.
+Вот оно. Для доказательства слишком мало, лишь косвенное свидетельство. Но Ронье верила, что интуиция её не подвела.
 
-"...... That guy called Зеппос is the culprit who killed Язен-сан in the inn."
+"...... Этот парень, Зеппос,— это тот, кто убил Язена-сан в таверне."
 
-As she said so in a shivering voice, Тейза who also felt the same, nodded deeply with a tight expression.
+Когда она произнесла это дрожащим голосом, Тейза тоже так считавшая, уверенно кивнула с жёстким выражением на лице.
 
-"Yeah.... Я feel that too, don’t know how far he can break the Индекс Табу, but he’ll definitely try to use гоблинов-сан to cause a more serious incident than the one of Язен-сан's case. We must stop him as soon as possible."
+"Ага.... Я тоже так думаю, не знаю, насколько он может нарушить Индекс Табу, но он точно попытается использовать гоблинов-сан чтобы спровоцировать ещё более серьёзный инцидент, чем дело Язена-сан. Мы должны его остановить как можно скорее."
 
-"Eeeh..."
+"Э-э-э-м..."
 
-While muttering, Ронье gazed at the darkness behind the secret door on the other side of the grid.
+Задумавшись, Ронье взглянула во тьму за открытой потайной дверью по другую сторону решётки.
 
-*Я do not know how much exactly time has elapsed, but if everything went well, about now Цукигаке would be arriving at the Северной gate of Центория. But, of course she<sup><a href="#Prim1">1</a></sup> cannot speak in human language. A gatekeeper guard will notice that Цукигаке is a little dragon, will send a message to the Собора, a report will reach someone like Кирито or Асуна, or an Рыцарь Целостности, и it will take tens of minutes for help to come to this location ──*
+*Я не знаю, сколько прошло времени, но если всё хорошо, примерно сейчас Цукигаке должна бы достичь Северных врат Центории. Но, конечно, она<sup><a href="#Prim1">1</a></sup> не может говорить по-человечьи. Стражник на воротах заметит, что Цукигаке — детёныш дракона, пошлёт сообщение в Собор, отчёт доберётся до кого-то вроде Кирито или Асуны, или какого-нибудь Рыцаря Целостности, и пройдут десятки минут, прежде чем помощь сюда придёт ──*
 
-Moreover, the carriage which Ронье и Тейза rode on was parked on the Восточной bank of the lake. It would be impossible for Премьер-Мечник or anyone else to guess that two of them are held in a dungeon of a mansion in the forest on its Западной bank. The only hope was to expect that Цукигаке would guide the rescue team, but it also takes time, и overall it was clear that it will take как минимум an hour to get help no matter how optimistic estimations are.
+К тому же, повозка, на которой Ронье и Тейза ехали, стояла на восточном берегу озера. Ни для Премьер-Мечника, ни для кого бы то ни было, будет невозможно угадать, что их двоих заперли в темнице особняка, стоящего в лесу на западном берегу. Единственной надеждой было, что Цукигаке сможет провести спасательную команду, но это также займёт время, и в целом было понятно, что по самым оптимистичным прикидкам на всё это уйдёт как минимум час.
 
-*It would be too naïve to think that until then nothing will happen to the гоблинов that were taken to the upper floor. If we do not act now, it will be too late.*
+*Будет слишком наивным полагать, что за это время с гоблинами, которых забрали наверх, ничего не произойдёт. Если мы не начнём действовать сейчас, будет слишком поздно.*
 
-But it is impossible to quietly destroy this sturdy grid. In the first place it is unknown whether it can be broken by the power of the two people, but even if we just try it, a loud sound will reach the mansion above и the Император would notice. If so, Я do not know what hostage Шимосаки will face.
+*Но невозможно разрушить эту крепкую решётку бесшумно. Прежде всего, неизвестно, можно ли её вообще разрушить силой двоих людей, но даже если мы попытаемся, особняка сверху достигнет громкий шум и Император догадается. Раз так, я не могу предсказать, что случится с заложником Шимосаки.*
 
-Unable to come up with an answer, Ронье closed her eyes.
+Неспособная определиться с ответом, Ронье закрыла глаза.
 
-*Я felt this feeling just a week ago. In the Obsidia Castle of Тёмной Территории which we visited with Кирито, Lisetta, the only daughter of Isukan General Commander и Ambassador Шейта, was kidnapped и kidnappers requested Кирито's public execution. If it’s not done by sunset, Lisetta's Life would have been zeroed.*
+*Я только неделю назад чувствовала то же самое. В Замке Обсидия в Тёмной Территории, который мы посетили с Кирито, Лизетту, единственную дочь Главнокомандующего Исукана и Посла Шейты, похитили, и похитители потребовали прелюдно казнить Кирито. И если бы это не произошло до заката, Жизнь Лизетты бы обнулили.*
 
-As the time limit was approaching, Ронье lost her serenity и firmly insisted in front of Кирито. If Кирито chooses to be executed, she will also be executed with him.
+Когда предел времени приближался, Ронье потеряла присутствие духа и, стоя перед Кирито, твёрдо заявила. Если Кирито выберет казнь, её следует казнить вместе с ним.
 
-To that words of Ронье, Кирито said:
+На те слова Ронье, Кирито сказал:
 
-*── Я will not give up. I’ll certainly save Lisetta. и then, we’ll return to Собора together with Ронье. To the place of our home...*
+*── Я не сдамся. Я точно спасу Лизетту. И потом мы вместе с Ронье вернёмся в Собор. Вернёмся домой...*
 
-*Yes, you must not give up. Do not just wait for everything to resolve with Цукигаке alone, but think hard what you can do now. There must be a way that will not result in sacrificing both гоблинов и Шимосаки.*
+*Да, сдаваться нельзя. Не жди, что всё разрешится с помощью одной лишь Цукигаке, а думай, что ты можешь сделать. Должен быть путь, в котором ни гоблинами, ни Шимосаки жертвовать не придётся.*
 
-"... Тейза"
+"... Тейза."
 
-The same moment Ронье whispered, her best friend said as well:
+Стоило Ронье прошептать, и её лучшая подруга произнесла:
 
-"Let's break the iron grid."
+"Давай сломаем железную решётку."
 
-"Eh!…"
+"Э!…"
 
-What was considered the last resort has suddenly been proposed first и foremost, и Ронье involuntarily protested:
+Внезапно предлагалось начать с решения, оставленного на самую крайнюю ситуацию, и Ронье невольно запротестовала:
 
-"B-but, if the sounds are heard above, Шимосаки......."
+"Н-но, если звук услышат сверху, Шимосаки......."
 
-Then Тейза interrupted her with a gesture of understanding, и then glanced at the dungeon ceiling.
+Тейза прервала её, показав жестом, что всё понимает, и и взглянула на потолок темницы.
 
-"...... Я guess there are not so many people in this mansion. Maybe, only two: the Император и Зеппос...... If so, the Император won’t bother taking the risk of countering us."
+"...... Я думаю, в этом особняке не так много людей. Возможно, лишь двое: Император и Зеппос...... Если так, Император не рискнёт сражаться с нами."
 
-Indeed, at that time Император Крюгер continued to attract their attention as a decoy until Зеппос creeped out from behind of Ронье и caught Шимосаки. If there were others or minions around, he would have made a decoy of them.
+Действительно, в тот раз Император Крюгер продолжал удерживать их внимание, словно приманка, пока Зеппос не подобрался к Ронье сзади и не поймал Шимосаки. Если бы вокруг был кто-то другой, или миньоны, он бы использовал их в качестве приманки.
 
-"Well... it seems so..."
+"Ну... полагаю, что так..."
 
-"If there are only two of them, Я think we can secure Шимосаки if we attack suddenly. Fortunately, our Мечs should be left just behind the secret door."
+"И если их всего двое, я думаю, мы можем обезопасить Шимосаки если нападём внезапно. К счастью, наши мечи должны лежать прямо за потайной дверью."
 
 "............"
 
-Ронье stared at the darkness behind the secret door.
+Ронье снова уставилась во тьму за потайной дверью.
 
-The drawn Мечs that the two of them dropped on the floor were kicked to the other side of the door by Император Крюгер, but there was no evidence that they were taken from there to the upper floors. Should they be able to escape from the cell, there was a high chance of retrieving the Мечs back right away.
+Император Крюгер отбросил их брошенные на землю обнажённые мечи за потайную дверь, но не было похоже, чтобы их забирали наверх. Если они смогут сбежать из камеры, весьма вероятно было, что они смогут немедленно вернуть мечи.
 
-*If Я have my beloved Меч, even if that one was a genuine Император Крюгер, Я do not feel like losing. But, again, Я am worried about Шимосаки. Even if there are only two enemies there, it is necessary to как минимум know where he is kept in the mansion in advance to rescue him with surprise attack as Тейза suggested.*
+*Если у меня будет мой любимый меч, то пусть это и подлинный Император Крюгер, я не проиграю. Но, опять-таки, я волнуюсь о Шимосаки. Даже если там всего два врага, нужно как минимум знать заранее, где в особняке его держат, чтобы вышло спасти его с помощью внезапной атаки, как предложила Тейза.*
 
 "Тейза."
 
-While standing in front of her best friend, Ронье lifted her hands:
+Стоя перед своей лучшей подругой, Ронье подняла обе руки:
 
-"Lend a hand."
+"Одолжи-ка руки."
 
-"Eh……?"
+"Ээ……?"
 
-She firmly grasped the hands the other one raised with bewildered expression on the face.
+Она крепко схватила ладони, что та подняла с озадаченным выражением лица.
 
-"Trying to open locks with incarnation is unreasonable, it perhaps we can try incarnational sensivity."
+"Глупо пытаться открыть замки инкарнацией, но по крайней мере мы можем попытаться воспользоваться инкарнационной чувствительностью."
 
-When the Ронье said this, Тейза opened her autumn leaves colored eyes wide.
+Когда Ронье это сказала, Тейза распахнула свои глаза цвета осенних листьев.
 
-The training of the incarnational power emphasized the "ability to perceive" as much as the "ability to influence". The training of "Tanza mind wiping", which the two of them were struggling with, was all about sitting on the training ground, closing the eyes, blanking the mind, и attempting to broaden the perceptual power by the incarnation.
+Тренировка силы инкарнации подчёркивала важность "способности к восприятию" в той же степени, что и "способности к влиянию". Упражнение "Очищение разума в тандзе", которое им обеим никак не давалось, состояла в том, чтобы сидеть на тренировочной площадке с закрытыми глазами, очистить разум и попытаться при помощи инкарнации расширить область восприятия.
 
-Кирито, who had the greatest power of incarnation in Мира Людей, said "If your opponent is a dragon, you can sense it even if you are 10 kilolu away", but Ронье и herself did not even sense humans within the same room. и now it was about locating a small dragon through a thick stone ceiling. Although it seemed reckless, there was no other way to find Шимосаки's location.
+Кирито, обладавший величайшей силой инкарнации в Мире Людей, говорил, что "если оппонент — дракон, то почувствовать его можно даже за 10 килолу", но им с Ронье даже не удавалось почувствовать людей в той же комнате. А сейчас им нужно было обнаружить маленького дракона через толстый каменный потолок. Идея казалась безумной, но другого способа узнать где же находится Шимосаки не оставалось.
 
-Тейза, who thought this way, wanted to say something for a moment, but quickly squeezed lips. Grasped Ронье’s hands и meditated.
+Тейза, думавшая в этом направлении, какое-то мгновение хотела что-то сказать, но тут же поджала губы. Взяла руки Ронье и стала медитировать.
 
-Ронье closed her eyes too и quietly inhaled the cold dungeon air. Тейза in front of her also breathed in. Held it for precisely 1 second, then slowly exhaled.
+Ронье тоже закрыла глаза и медленно вдохнула холодный воздух подземелья. Тейза перед ней тоже втянула воздух. Задержала дыхание ровно на 1 секунду, затем медленно выдохнула.
 
-Although the incarnational power was an individual strength, it can be maxed out by the state of "the spiritual unity" which is achievable by breathing synchronously with someone while holding their hands. With that being quite an advanced technique, even together with such a close friend as Тейза they have only succeeded in it several times in the past. However, the power of one person would probably be not enough to pierce the ceiling with incarnational sensing.
+Несмотря на то, что способность к инкарнации была индивидуальной силой каждого, её можно было усилить при помощи "духовного единства", которое достигалось во время синхронного дыхания с кем-то, кого держишь за руки. Это была весьма продвинутая техника, и даже вместе с такой близкой подругой как Тейза у них всего несколько раз удавалось использовать её в прошлом. Однако, силы одного человека определённо не хватило бы чтобы пробиться сквозь толстый потолок с помощью инкарнационного восприятия.
 
-The breathing of two deepened with every inhale. The sensation of touching each other’s skin melted, the distance dissolved. The boundary between themselves и the outside world gradually faded little by little, as the perception range spread.
+С каждым вздохом дыхание двух девушек становилось глубже. Ощущение касания чужой кожи растаяло, расстояние растворилось. Грань между ними и окружавшим миром мало-помалу исчезала, а радиус восприятия расширялся.
 
-*Я can feel three are present almost directly above the dungeon. It seems they are lying side by side. This would be three mountain гоблинов.*
+*Я чувствую, что прямо над темницей есть трое. Похоже, лежат рядом. Это будут трое горных гоблинов.*
 
-*Two presences somewhere away. They are felt so cold as it cannot be thought of a living human being, that must be Император Крюгер и Зеппос.*
+*Ещё двое немного в стороне. От них исходит такой холод, что сложно представить, что они вообще живы, это должны быть Император Крюгер и Зеппос.*
 
-And there was a small but very warm presence in the corner of the same room. As soon as they perceived it, Тейза’s breathing became slightly disrupted. For a moment, the overlapping incarnational fields fluctuated but quickly regained stability. They sensed Шимосаки's feelings of anxiety и tension, but there was no sign of a major injury.
+И что-то ещё, маленькое, но очень тёплое, ощущалось в углу в той же комнате. Как только они это нащупали, дыхание Тейзы немного нарушилось. На какой-то миг перекрывавшиеся поля инкарнации заволновались, но тут же снова обрели стабильность. Они ощутили, что Шимосаки чувствовал тревогу и напряжение, но признаков серьёзных травм не было.
 
-The sensing range extended further. They can vaguely perceive the layout of the mansion. It was only referred to as an imperial villa, however on both the first floor и the second floor there were many rooms; luckily, all the other halls except the one with five people и Шимосаки seemed to be unmanned.
+Диапазон восприятия расширялся дальше. Они примерно представляли себе планировку особняка. Пусть он и назывался императорской виллой, но и на первом, и на втором этажах было немало комнат; к счастью, все остальные помещение кроме того самого с пятью людьми и Шимосаки, судя по всему, пустовали.
 
-*If we climb the stairs behind the secret door out of the dungeon, we’d get to a room that seems to be a storage on the first floor of the mansion, from there the door of the hall is just 5 meters away via the corridor. If two of us run with full power, it’s fifteen — no, just ten seconds.*
+*Если мы выберемся по лестнице за потайной дверью из темницы, мы попадём в комнату на первом этаже, которая выглядит как хранилище, оттуда дверь в нужный зал всего в пяти метрах по коридору. Если мы побежим со всех ног, это будет пятнадцать — нет, всего лишь десять секунд.*
 
-Ронье и Тейза lifted the eyelids at the same time и stared each other's eyes.
+Ронье и Тейза одновременно подняли веки и посмотрели друг другу в глаза.
 
-No words were needed. They let go of hands и turned to the iron grid.
+Слова были не нужны. Они отпустили руки и повернулись к железной решётке.
 
-It would be difficult to destroy it with bare hands, but the Мечs’ sheaths, which were quite robust too, were left on the waists of both. Priorities of those did not reach the Мечs’ ones, but they should endure a single slash.
+Голыми руками разрушить её было бы сложно, но от мечей на их талиях оставались ножны, которые были тоже весьма крепкими. Приоритеты ножен не были столь высоки как у мечей, но уж один удар они выдержать должны были.
 
-"... Hey, do you remember? The way Юдзио-сенпай и Кирито-сенпай escaped from Собора's dungeon."
+"... Эй, а ты помнишь? Как Юдзио-сенпай и Кирито-сенпай сбежали из темницы Собора."
 
-— Тейза suddenly whispered, Ронье blinked to that.
+— внезапно прошептала Тейза, и Ронье заморгала.
 
-"Of course. They cut the divine iron chains, и using them broke the grid."
+"Ещё бы. Они разорвали цепи из божественного железа, и использовали их чтобы разбить решётку."
 
-"When Я heard that story, Я thought, man our Сенпайs are tough, but... no way Я could ever imagine we would do the same thing."
+"Когда я услышала этот рассказ, я подумала, блин, вот это наши сенпаи жгут, но... я и представить себе не могла, что нам придётся делать то же самое."
 
-"Me too."
+"И я."
 
-A momentary smile wiped out, и Ронье with clasp removed the empty sheath from the Меч belt with her left hand. Pased it to the right hand и raised it vertically. Тейза next to her made perfectly identical movement.
+Улыбки появились и тут же исчезли, и Ронье левой рукой со щелчком отстегнула с мечевого пояса пустые ножны. Переместила их в правую и подняла вертикально вверх. Стоящая рядом с ней Тейза в точности повторила движения.
 
-*Я do not know what the Император и Зеппос are doing to the гоблинов in the hall above. However, if we take the next step, we cannot lose even a second.*
+*Я не знаю, что Император и Зеппос делают с гоблинами в зале над нами. Однако, если мы пойдём на этот шаг, нельзя будет терять ни секунды.*
 
-*…………sorry.*
+*…………прошу прощения.*
 
-After apologizing to the sheath in my mind, Ронье sharply breathed in.
+Извинившись про себя перед ножнами, Ронье резко вдохнула.
 
-*One cannot use secret moves with a sheath, but Я will just hit as much as Я can.*
+*Секретные движения ножнами не выполняются, но я просто ударю так сильно, как только смогу.*
 
-"Haaah!"
+"Хааах!"
 
-"Yaaaa!"
+"Яаааа!"
 
-With the increasingly loud screams, two people sharply swung down empty sheaths performing Норкия style secret move "Lightning slash", also known as Incrad style secret move "Vertical".
+С криками, что звучали всё громче и громче, две девушки резко махнули вниз пустыми ножнами, выполняя секретное движение стиля Норкия, "Молниеносный разрез", также известное как секретное движение стиля Айнкрад "Вертикаль".
 
-It was probably an illusion that the sheath made of wood и leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid и crumbled down to pieces with a tremendous pulsing sound.
+## Продолжение следует :)
+
+<!--It was probably an illusion that the sheath made of wood и leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid и crumbled down to pieces with a tremendous pulsing sound.
 
 Immediately afterwards, a grating of 2 mel height и 4 mel width split in two pieces, blew out of the framing и blasted against the other side of the aisle. Again, the thunderous roaring shook the whole dungeon.
 
@@ -1387,17 +1389,17 @@ Suddenly, **bakin!** — impact-like sound echoed.
 
 The chain that it was pulled with by the power of mind seemed to break apart.
 
-And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Империи Wesdarath.
+And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Империи Wesdarath.-->
 
-## Footnotes:
+## Примечания:
 
-1. <a name="Prim1"></a>Yes, this time it’s definitely “she”. Цукигаке is female. Я wonder how many hours it will take me to fix all the references to the dragon in both books… (the answer is: 2.5 hours) Please don't tell me Орои too is female...
-2. <a name="Prim2"></a>Before doing that Я guess she swapped the Меч to the right one.
+1. <a name="Prim1"></a>Да, на этот раз это определённо “она”. Цукигаке — самка. Интересно сколько у меня часов уйдёт на то чтобы исправить все упоминания этой драконихи в обеих книгах… (ответ: 2,5 часа без учёта всего того что я пропустил и исправлял на этапе рулейта.) Пожалуйста, не говорите мне что Орои тоже самка...
+<!--2. <a name="Prim2"></a>Before doing that Я guess she swapped the Меч to the right one.
 3. <a name="Prim3"></a>If you are confused just like Ронье is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
 3. <a name="Prim4"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
 4. <a name="Prim5"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
 5. <a name="Prim6"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
 6. <a name="Prim7"></a>[Katashiro](http://yokai.com/katashiro/).
 7. <a name="Prim8"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
-8. <a name="Prim9"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird”( 神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
-10. <a name="Prim10"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.
+8. <a name="Prim9"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
+10. <a name="Prim10"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->

@@ -81,7 +81,7 @@ But the mountain goblins came out of the cell without showing suspicion of doubt
 
 "Proceed to that door."
 
-— said Zeppos said, pointing at the hidden door on the left side, not the right side where there was an exit to the surface. The three of them quietly obeyed and began walking. As if blocking the escape route, Zeppos followed behind.
+— Zeppos said, pointing at the hidden door on the left side, not the right side where there was an exit to the surface. The three of them quietly obeyed and began walking. As if blocking the escape route, Zeppos followed behind.
 
 The moment when the man was passing in front of a grate, Ronye could not stand it and said:
 
@@ -111,7 +111,7 @@ The figures of Zeppos and the goblins who resorted to move forward timidly disso
 
 When she responded in a whispering, Tiese touched her lips for a moment and said with tighter expression.
 
-"Kirito-senpai said that the kidnappers will commit another murder in Centoria and that he will frame the abducted goblins-san again. If so...... innocent people will be killed in Centoria again."
+"Kirito-senpai said that the kidnappers will commit another murder in Centoria and that they will frame the abducted goblins-san again. If so...... innocent people will be killed in Centoria again."
 
 "…………Yup……"
 
@@ -133,7 +133,7 @@ Prime Swordsman thought so because he could hear the voice of the murderer in As
 
 *── Goblins remain goblins until they run out of Life.*
 
-Just because the subject is different, exactly the same phrase.
+Just the subject is different, the phrase is exactly the same.
 
 That's it. Too weak for the evidence, purely circumstantial. But Ronye believed her intuition was correct.
 
@@ -153,7 +153,7 @@ Moreover, the carriage which Ronye and Tiese rode on was parked on the eastern b
 
 *It would be too naïve to think that until then nothing will happen to the goblins that were taken to the upper floor. If we do not act now, it will be too late.*
 
-But it is impossible to quietly destroy this sturdy grid. In the first place it is unknown whether it can be broken by the power of the two people, but even if we just try it, a loud sound will reach the mansion above and the emperor would notice. If so, I do not know what hostage Shimosaki will face.
+*But it is impossible to quietly destroy this sturdy grid. In the first place it is unknown whether it can be broken by the power of the two people, but even if we just try it, a loud sound will reach the mansion above and the emperor would notice. If so, I do not know what hostage Shimosaki will face.*
 
 Unable to come up with an answer, Ronye closed her eyes.
 
