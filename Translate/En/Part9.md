@@ -283,7 +283,7 @@ Ronye's Sword of the Moonlight and Tiese's sword were carelessly thrown somewher
 
 Three seconds have elapsed so far.
 
-A stone stairway extended up in the front wall. Grasping the naked sword, they rushed up skipping five steps at a time.
+A stone stairway extended up in the front wall. Grasping the naked swords, they rushed up skipping five steps at a time.
 
 The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing north, let in plenty of sunset-colored outside light, and it was much brighter than in a small basement room. The myriad of display shelves and armor stands around the floor and walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ronye kicked off was disguised as a large shelf, and it would be difficult to find if one doesn’t know what to look for.
 

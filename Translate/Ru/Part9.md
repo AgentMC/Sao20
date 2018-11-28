@@ -265,111 +265,111 @@
 
 С криками, что звучали всё громче и громче, две девушки резко махнули вниз пустыми ножнами, выполняя секретное движение стиля Норкия, "Молниеносный разрез", также известное как секретное движение стиля Айнкрад "Вертикаль".
 
-## Продолжение следует :)
+Выполненные из дерева и кожи ножны окутал слабый синий свет, но наверное, им просто показалось. Двое ножен врезались в стальную решётку и с сильнейшим пульсирующим звуком рассыпались на множество частиц.
 
-<!--It was probably an illusion that the sheath made of wood и leather felt wrapped in faint blue light. The two sheaths crashed into the steel grid и crumbled down to pieces with a tremendous pulsing sound.
+Сразу же после этого заграждение в 2 мела высотой и 4 мела шириной разделилось надвое, вылетело из фрамуг и врезалось в противоположную стену прохода. И вновь громоподобный рёв потряс задрожавшее подземелье.
 
-Immediately afterwards, a grating of 2 mel height и 4 mel width split in two pieces, blew out of the framing и blasted against the other side of the aisle. Again, the thunderous roaring shook the whole dungeon.
+*── Вперёд!*
 
-*── Go!*
+— подумала Тейза, но не произнесла ни слова, и на её мысль:
 
-— though Тейза without saying a word, и to this thought:
+*── За десять секунд!*
 
-*── Within ten seconds!*
+— столь же безмолвно ответила уже бросившаяся в проход Ронье.
 
-— same way silently answered her Ронье jumping into the aisle.
+Вбежав в оставленную открытой потайную дверь, они попали в небольшую, напоминающую кладовку, комнату. На правой стене висели странные полоски кожи, напоминавшие смирительные приспособления, а правую занимали выстроенные рядами странные острые инструменты и стеклянные ёмкости. Было вполне очевидно, для чего это всё, но прогнав эти мысли, они стали шарить по полу в слабом свете, вливающемся через проём позади.
 
-Rushing into a secret door that was left open, they saw a small storage-like room. There were some leather bands looking like restraints on the right wall и strange shaped cutlery и glass containers on the left wall lined up. It was obvious how it was used, but pushing that out of heads, they searched around the floor relying on the weak light flowing in from behind.
+Меч Лунного Света Ронье и меч Тейзы были беззаботно отброшены куда-то в угол кладовки. Первой нашедшая пропажу Ронье подобрала свой любимый меч правой рукой, а Тейзин меч — левой и перебросила его напарнице.
 
-Ронье's Меч of the Moonlight и Тейза's Меч were carelessly thrown somewhere in the corner of the warehouse. Ронье who found the Меч first picked up her beloved Меч with her right hand и Тейза's Меч with her left hand и threw it to her partner.
+Пока что прошло три секунды.
 
-Three seconds have elapsed so far.
+В стене перед ними виднелась уходившая вверх каменная лестница. Сжимая обнажённые мечи, они бросились вверх, перепрыгивая по пять ступеней за раз.
 
-A stone stairway extended up in the front wall. Grasping the naked Меч, they rushed up skipping five steps at a time.
+За распахнутой пинком дверью в конце лестницы оказалась складская комната, бывшая больше предыдущей. Внушительное окно, хоть и выходящее на север, пропускало много закатного света, и здесь было намного ярче, чем в тесной подвальной кладовке. Вдоль стен и по полу были расставлены мириады выставочных полок и стоек для брони, но они все были пусты. Когда эту виллу запечатывали, сокровища наверняка забрали. Дверь, которую Ронье выбила, была замаскирована под большую полку, и найти её было бы не просто, если не знать, что искать.
 
-The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing Северной, let in plenty of sunset-colored outside light, и it was much brighter than in a small basement room. The myriad of display shelves и armor stands around the floor и walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ронье kicked off was disguised as a large shelf, и it would be difficult to find if one doesn’t know what to look for.
+Прошло семь секунд.
 
-Seven seconds passed.
+В западной и в южной стенах было по одной настоящей двери. Поскольку они уже примерно ощутили планировку особняка с помощью инкарнационного восприятия, то без раздумий бросились к западной двери и выбили и её.
 
-There were real doors: one on the Западной и one on the Южной walls. Since the structure of the mansion was roughly sensed with incarnational sensing, they rushed over to the Западной door without hesitation и kicked it open again.
+Дверь слетела с погнутых петель и врезалась в стену напротив, но они рвались вперёд, не задумываясь о подобном. За дверью оказался роскошный коридор, тянувшийся в обе сторону. На красных обоях было изображение лилии и ястреба.
 
-The door was blown away from the destroyed hinges и crashed against the opposite wall, but they ran ahead without worrying about it. Behind it there was a gorgeous hallway lasting long in both directions. The red wallpaper depicted a lily и a hawk.
+Дверь, к которой они торопились, была всего в 15 мелах налево по этому коридору.
 
-The door of this corridor they we aiming at was just 15 mels to the left.
+Восемь секунд. Девять секунд.
 
-Eight seconds. Nine seconds.
+Пробежав по коридору за две секунды, Ронье собрала вместе всю силу ног ученика рыцаря, развернулась к громадной двустворчатой двери и нанесла удар в центр. Хоть дверь, как она, по правде сказать, рассчитывала, и не слетела с петель, обе створки широко распахнулись с ускорением, которого едва не хватило, чтобы их сломать, и открыв взору содержимое комнаты.
 
-Mustering together all the knight’s leg strength, Ронье, who had run through the corridor in two seconds, turned to the huge two-piece door и burst a kick in the center. Although it did not blow off as she, frankly speaking, expected, both pieces of the door opened wide with the momentum just barely insufficient to break them и revealed the interior scenery.
+Десять секунд.
 
-Ten seconds.
+В обширном зале, занимавшем примерно третью часть площади первого этажа, было темно. Все окна с южной стороны были занавешены тёмными портьерами. И всё же это была не кромешная тьма, поскольку в центре стояли около десятка зажжённых свечей.
 
-A vast room that would occupy about one-third of the first-floor area was dark. All the Южной side windows were covered with black curtains. It was not perfect darkness though because ten or so candles were lit in the center.
+Свечи были выставлены в форме кольца около двух мелов в диаметре, а внутри этого кольца лежали гоблины. Стоящая почти вплотную к кольцу тёмная фигура, судя по всему, произносила какое-то заклинание. *Нет, я понимала, что ничего хорошего мы здесь не найдём, но это уже ни в какие ворота ──*
 
-Candles were arranged in a circle about 2 mels in diameter, with three гоблинов lying in it. A black figure standing just outside the circle seemed to be casting some sort of an incantation. *Although we had no doubt that nothing good was happening here, now that’s surely ──*
+Широко раскрытые глаза Ронье заметили большой джутовый мешок, брошенный в углу в левой части зала, и вторую подобную тени фигуру, бросившуюся туда.
 
-Wide open Ронье’s eyes noticed a large jute bag rolled in the corner of the left side of the hall и a second black figure about to run there.
-
-The shadow's identity would be Зеппос. There was no need to guess what was inside the bag.
+Тенью, видимо, был Зеппос. Ну а о содержимом мешка и вовсе гадать было не нужно.
 
 *── Тейза!*
 
-While calling her in her mind, Ронье stuck the left hand forward.
+Про себя воззвав к ней, Ронье выбросила вперёд левую руку.
 
-At the same time Тейза swapped Меч и lifted the right hand that crossed Ронье's one.
+Одновременно с ней, Тейза перебросила меч и подняла правую руку, сцепив свою ладонь с ладонью Ронье:
 
-"**System Call! Generate Thermal Element!**"
+"Систем Колл! Дженерейт Термал Элемент!"
 
-Ронье continued the sacred art Тейза began casting:
+Ронье продолжила священное искусство, которое начала творить Тейза:
 
-"**Form Element! Arrow Shape!**"
+"Форм Элемент! Эрроу Шейп!"<sup><a href="#Prim2">2</a></sup>
 
-The five thermal elements Тейза produced instantaneously changed to five arrows according to Ронье's incantation. It was an advanced technique which allowed to shorten the activation time in half by sharing between casters the chant statements of element generation и forming, "tuned chant". To use it, Тейза и Ронье had to train together for a long time, beginning even before they became apprentice knights ── way before that, actually, since the time they were junior students. But now both "spiritual unity" и "tuned chant" techniques which even senior knights could succeed in with low probability, were available to them.
+Пять термальных элементов, которые сотворила Тейза, немедленно обратились стрелами, подчинившись заклинанию Ронье. Это была продвинутая техника, позволявшая уменьшить время выполнения заклинания вдвое путём разделения между двумя заклинателями фаз создания элементов и придания им формы, "совместное заклинание". Чтобы его использовать, Тейза и Ронье долгое время тренировались в паре, с тех времён, когда они ещё не были учениками рыцарей ── вообще-то, со значительно более далёкого времени, с тех самых пор, когда они ещё были только младшими учениками. Но зато сейчас им были доступны и техника "духовного единства", и "совместное заклинание", которые даже у старших рыцарей получались далеко не всегда.
 
-The two of them, after completing the element generation и formation in just two seconds shouted the last word aloud synchronously:
+Всего лишь за две секунды управившись с созданием и приданием формы элементам, они в один голос выкрикнули последнее слово:
 
 ![Image](/Translate/Img/p269.jpg)
 
-"**Discharge!!**" x2
+"Дисчардж!!" x2
 
-The five glowing lines tore up the darkness.
+Пять сияющих лучей разорвали завесу тьмы.
 
-The shadow in the black robe avoided the flaming arrows swooping ahead with a hum, by jumping backwards with a superhuman move. Arrows were crashing into the wall one after another, causing small explosions.
+Тень в чёрном плаще умудрилась избежать столкновения с огненными стрелами, с гудением несущимися вперёд, отпрыгнув назад каким-то сверхчеловеческим движением. Одна за другой стрелы вреза́лись в стену, создавая маленькие взрывы.
 
-"Go, Тейза!"
+"Давай, Тейза!"
 
-— shouted Ронье while controlling the remaining two arrows.
+— выкрикнула Ронье, управляя остававшимися двумя стрелами.
 
-Тейза removed her hand и rushed to the jute bag. In order to push the black robe — Зеппос further away, Ронье bent the flame arrows trajectory to follow him.
+Тейза разжала руку и бросилась к джутовому мешку. Чтобы оттолкнуть чёрный плащ — Зеппоса — ещё дальше, Ронье изогнула траекторию полёта стрел в его сторону.
 
-The fourth one also missed. But the fifth arrow hit the robe which flared up.
+Четвёртая тоже пролетела мимо. Но пятая попала в плащ, который немедленно вспыхнул.
 
-Зеппос silently dismissed of the robe и retreated further. At the same time, Тейза reached the jute bag и cut off the drawstring tightly tying its neck with the Меч in her left hand.
+Зеппос молча избавился от плаща и отошёл ещё дальше. В это время Тейза достигла джутового мешка и мечом в своей левой руке разорвала завязки, плотно стягивающие его горловину.
 
 "Шимосаки!"
 
-— she shouted with a breaking voice, while inserting the left hand<sup><a href="#Prim2">2</a></sup> into the bag.
+— выкрикнула она дрогнувшим голосом, засунув левую руку<sup><a href="#Prim3">3</a></sup> в мешок.
 
-The young dragon she pulled out и embraced had some plume fallen out where the light blue feathers received a rough handling, but chirped a limp и quiet "Ку-ру-ру......" squeezing into the owner’s chest.
+Оперение маленького дракона, которого она вытащила и обняла, заметно пострадало в тех местах, где со светло-синими перьями грубо обошлись, и он чирикнул тихое и слабое "Ку-р-р......", прижимаясь к груди своей хозяйки.
 
-Feeling how the relief due to Шимосаки's safety is being overcome with anxiety for Цукигаке which has not returned yet, Ронье shouted loudly:
+Чувствуя, как облегчение из-за безопасности Шимосаки вытесняется беспокойством о Цукигаке, которая всё ещё не вернулась, Ронье громко выкрикнула:
 
-"Тейза, take Шимосаки to the safe place outside! Leave this here to me!"
+"Тейза, забери Шимосаки отсюда и спрячь в безопасном месте! Это я беру на себя!"
 
-"But...!!"
+"Но...!!"
 
-She resolutely insisted to her partner who was about to shake her head:
+Её напарница уже готова была возразить, и той пришлось настоять:
 
-"Go!"
+"Давай!"
 
-In order to help the гоблинов who seemed to lose consciousness, it is inevitable to fight with Зеппос и the Император who continued to chant something unclear. It was impossible to fight while holding Шимосаки, и they would never be able to regain him if he’s taken away again.
+Чтобы помочь гоблинам, которые, кажется, потеряли сознание, неизбежно пришлось бы сразиться с Зеппосом и Императором, который продолжал зачитывать что-то непонятное. Но невозможно было сражаться, оберегая Шимосаки, и им уже точно никогда не заполучить его назад, если того снова отберут.
 
-"...... Got it, I’ll be right back!"
+"...... Поняла, скоро вернусь!"
 
-Having shouted this, Тейза swung the Меч around herself. The nearby curtain was cut off и the glass window behind it crumbled with a loud noise.
+Выкрикнув это, Тейза махнула около себя мечом. Часть ближайшей портьеры упала, отсечённая, и за ней с громким шумом разбилось стекло.
 
-Cutting through the darkness, the square of reddened sunset light burst into the hall. As if fearing the light of Solus, Зеппос who lost black robe retreated further.
+Прорезав тьму, в зал ворвался квадрат алеющего закатного света. Словно опасаясь света Солуса, лишившийся чёрного плаща Зеппос отступил ещё дальше.
 
-What the man was wearing under robe was something very much resembling a physical restraint covering the whole body. A number of leather bands fixed together with countless rivets were wound tightly around the stick-thin limbs и body, и it wasn’t clear whether it was a protective gear or a kind of punishment.
+##  Продолжение следует...
+
+<!--What the man was wearing under robe was something very much resembling a physical restraint covering the whole body. A number of leather bands fixed together with countless rivets were wound tightly around the stick-thin limbs и body, и it wasn’t clear whether it was a protective gear or a kind of punishment.
 
 And the skin looking through the gaps in the leather belts was also of a strange color. One couldn’t be certain watching it just under the reflected light of the setting Solus, but it’s bluish-gray color couldn’t be thought of as a human one.
 
@@ -1394,12 +1394,13 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 ## Примечания:
 
 1. <a name="Prim1"></a>Да, на этот раз это определённо “она”. Цукигаке — самка. Интересно сколько у меня часов уйдёт на то чтобы исправить все упоминания этой драконихи в обеих книгах… (ответ: 2,5 часа без учёта всего того что я пропустил и исправлял на этапе рулейта.) Пожалуйста, не говорите мне что Орои тоже самка...
-<!--2. <a name="Prim2"></a>Before doing that Я guess she swapped the Меч to the right one.
-3. <a name="Prim3"></a>If you are confused just like Ронье is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
-3. <a name="Prim4"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
-4. <a name="Prim5"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
-5. <a name="Prim6"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
-6. <a name="Prim7"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim8"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
-8. <a name="Prim9"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
-10. <a name="Prim10"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
+2. <a name="Prim2"></a>Мне кажется, я уже давал сноску по этой фразе, но на всякий случай: form element, arrow shape; придать элементу форму, форма стрелы.
+2. <a name="Prim3"></a>...перед чем, судя по всему, она опять переложила меч в правую.
+<!--3. <a name="Prim4"></a>If you are confused just like Ронье is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
+3. <a name="Prim5"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
+4. <a name="Prim6"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
+5. <a name="Prim7"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
+6. <a name="Prim8"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim9"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
+8. <a name="Prim10"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
+10. <a name="Prim11"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
