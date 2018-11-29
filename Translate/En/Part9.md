@@ -373,7 +373,7 @@ And the skin looking through the gaps in the leather belts was also of a strange
 
 *I think I saw this somewhere already......* While Ronye thought so, Tiese holding Shimosaki jumped through the broken window and escaped to the front yard. In order to hide Shimosaki in a safe place, she has run to the forest surrounding the mansion.
 
-*It's two to one until the she comes back. Not that it’s impossible, but I am concerned about the extraordinarily long art that emperor Krueger continues to cast over goblins lying on the floor.*
+*It's two to one until she comes back. Not that it’s impossible, but I am concerned about the extraordinarily long art that emperor Krueger continues to cast over goblins lying on the floor.*
 
 She listened carefully to the weird voice, but could not understand the meaning of a single word of a chant. However, once the operation is completed, it is certainly that some bad things will happen.
 

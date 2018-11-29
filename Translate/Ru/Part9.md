@@ -367,42 +367,40 @@
 
 Прорезав тьму, в зал ворвался квадрат алеющего закатного света. Словно опасаясь света Солуса, лишившийся чёрного плаща Зеппос отступил ещё дальше.
 
-##  Продолжение следует...
+Под плащом человек носил нечто, сильно напоминавшее покрывающую всё тело смирительную одежду. Большое количество кожаных ремней, соединённых вместе бесчисленными заклёпками, были плотно намотаны по всему его телу и даже покрывали тонкие, словно палки, конечности, и было неясно, то ли это была защитная экипировка, то ли какое-то особенное наказание.
 
-<!--What the man was wearing under robe was something very much resembling a physical restraint covering the whole body. A number of leather bands fixed together with countless rivets were wound tightly around the stick-thin limbs и body, и it wasn’t clear whether it was a protective gear or a kind of punishment.
+И кожа, поглядывавшая сквозь прорези в кожаных лентах, была неестественного цвета. Видя её лишь в отражённом свете садящегося Солуса однозначно сказать было сложно, но её серо-голубой цвет никак нельзя было назвать человеческим.
 
-And the skin looking through the gaps in the leather belts was also of a strange color. One couldn’t be certain watching it just under the reflected light of the setting Solus, but it’s bluish-gray color couldn’t be thought of as a human one.
+*Я думаю, я это где-то уже видела......*, и пока Ронье так думала, Тейза с Шимосаки в руках выпрыгнула через разбитое окно и пробежала через передний двор. Чтобы спрятать Шимосаки в безопасном месте, её нужно было скрыться в окружавшем особняк лесу.
 
-*Я think Я saw this somewhere already......* While Ронье thought so, Тейза holding Шимосаки jumped through the broken window и escaped to the front yard. In order to hide Шимосаки in a safe place, she has run to the forest surrounding the mansion.
+*Пока она не вернётся, у нас тут двое на одного. Не то чтобы это было нереально, но меня особо беспокоит невероятно длинное искусство, что зачитывает Император Крюгер над лежащими на полу гоблинами.*
 
-*It's two to one until the she comes back. Not that it’s impossible, but Я am concerned about the extraordinarily long art that Император Крюгер continues to cast over гоблинов lying on the floor.*
+Она осторожно прислушалась к его странному голосу, но не смогла понять ни одного слова из заклинания. Однако, стоит этой операции завершиться, без сомнений случится что-то нехорошее.
 
-She listened carefully to the weird voice, but could not understand the meaning of a single word of a chant. However, once the operation is completed, it is certainly that some bad things will happen.
+Для того чтобы прервать заклинание Императора, всё ещё указывая кончиком Меча Лунного Света прямо на Зеппоса, Ронье попыталась создать новые термальные элементы.
 
-Ронье tried to generate new thermal elements in order to interrupt the Император's incantation while pointing the tip of the Меч of the Moonlight straight to Зеппос.
+Но прямо перед этим Зеппос, отступивший к прикрытому портьерой южному окну, почти беззвучно вытащил пару кинжалов из ножен, прикреплённых на обматывающих ноги кожаных ремнях. Клинок в правой руке был больше размером, но лезвие в левой покрывала странная зелёная жидкость.
 
-But just before that, Зеппос, who was retreating to the Южной window covered by the curtain, pulled out two daggers with almost no sound from the sheaths attached to the leather bands on both legs. The one in the right hand was slightly larger, but the blade in the left hand was covered with some green liquid.
+*Клинок в левой руке — это тот же ядовитый нож, что он приставил к шее Шимосаки там в подземелье.  
+А тот что в правой — пожалуй им он и лишил жизни старика Язена.*
 
-*The blade in the left hand, same poison knife he pointed to Шимосаки back there in the dungeon.  
-And perhaps the one in the right hand is the knife used to take old Язен's life.*
+Зеппос медленно приближался, огибая зажжённое в центре зала кольцо из свечей. Лучи заката, льющиеся сквозь единственное лишившееся портьеры окно, осветили красным его доселе скрытое под капюшоном лицо.
 
-While going around the candle circle in the center of the hall, Зеппос was getting closer и closer. The light of sunset flowing through the only window that has lost a curtain illuminated in red his face that was hidden under the hood until now.
+На голове этого человека не было ни единого волоска. Удлинённое лицо было того же сине-чёрного цвета, как и остальное тело, в маленьких глазках ярко горели жутковатые зрачки. Она не вспомнила никого с таким лицом.
 
-There was no single hair on the man's head. The elongated face was also blue-and-black like the body, the bizarre pupils of small eyes glowed bright. This face didn’t remind her of anyone.
+"...... вы выбрались из темницы гораздо раньше, чем мы рассчитывали, ты в курсе?"
 
-"...... you got out of the prison quite a bit sooner than expected, you know?"
+— прошептал Зеппос с безразличным выражением.
 
-— Зеппос whispered, with indifferent expression.
+"Чем рассчитывали....... Так... вы специально оставили потайную дверь незакрытой?"
 
-"Than what expected....... So... was it on purpose that you left the secret door open?"
+В ответ на вопрос Ронье, этот человек, выглядящий как кожа-да-кости, изобразил на лице улыбку:
 
-The all skin-and-bones man produced a thin smile to Ронье's question:
+"Ох, ну конечно. Неужто ты подумала, что камергер дома его Императорского величества Норлангарта, то бишь я, может себе позволить нечто столь ужасное как оставить дверь незапертой?"
 
-"Oh, certainly. Would you think that Император Норлангарт house's great chamberlain, being me, can allow for something as bad as forgetting to close the door?"
+"Камергер......!?<sup><a href="#Prim3">3</a></sup>"
 
-"Great chamberlain......!?<sup><a href="#Prim3">3</a></sup>"
-
-As Ронье opened both eyes wide, Зеппос deepened his little smile.
+Ронье широко распахнула глаза, а Зеппос растянул улыбку пошире.
 
 Since she has never met a person who is Император Норлангарт house's great chamberlain before or after the battle for the Imperial Palace, it was no wonder she didn’t recognize his face. But Ронье knew what happened to him. She surely heard what Мира Людей Defense Army General Selrut had reported at the meeting after the chaos was suppressed.
 
