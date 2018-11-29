@@ -396,131 +396,133 @@
 
 В ответ на вопрос Ронье, этот человек, выглядящий как кожа-да-кости, изобразил на лице улыбку:
 
-"Ох, ну конечно. Неужто ты подумала, что камергер дома его Императорского величества Норлангарта, то бишь я, может себе позволить нечто столь ужасное как оставить дверь незапертой?"
+"Ох, ну конечно. Неужто ты подумала, что обер-камергер дома его Императорского величества Норлангарта, то бишь я, может себе позволить нечто столь ужасное как оставить дверь незапертой?"
 
-"Камергер......!?<sup><a href="#Prim3">3</a></sup>"
+"Камергер......!?<sup><a href="#Prim4">4</a></sup>"
 
 Ронье широко распахнула глаза, а Зеппос растянул улыбку пошире.
 
-Since she has never met a person who is Император Норлангарт house's great chamberlain before or after the battle for the Imperial Palace, it was no wonder she didn’t recognize his face. But Ронье knew what happened to him. She surely heard what Мира Людей Defense Army General Selrut had reported at the meeting after the chaos was suppressed.
+Поскольку она никогда не встречала человека, бывшего камергером дома императорской семьи Норлангарт, в том числе, ни до, ни после битвы за Имперский Замок, нет ничего удивительно в том, что его лицо было незнакомым. Но Ронье знала, что с ним случилось. Она определённо слышала, _что_ генерал Армии Защиты Мира Людей Селюрут отрапортовала после того, как хаос улёгся.
 
-"The Император house's great chamberlain... should be dead. He refused to break up with the leaders of great aristocrats и was eliminated by the Мира Людей army, that’s what Я heard. "
+"Обер-камергер императорского дома... должен быть мёртв. Он отказался порвать с главами Великих Аристократов и был уничтожен армией Мира Людей, вот что я слышала. "
 
-"That was my duty, my pleasure. If it is for his Император's Majesty, Я will die again и again, as often as Я can."
+"Это была моя обязанность, не извольте беспокоиться. За его Императорское Величество я буду умирать снова и снова, столь часто, как только смогу."
 
-Crossing his hands holding knives over his chest while saying so, Зеппос quickly glanced at the black robe man standing in the center of the hall.
+Скрестив на груди руки с зажатыми в них ножами, пока Зеппос это произносил, он бросил лишь быстрый взгляд на стоящего в центре зала человека в чёрном плаще.
 
-Specifically, at the supposedly dead Император Крюгер Норлангарт who continued to chant the mysterious incantation. Moreover, unlike Зеппос, Ронье herself took the Император's life. Her palms still remembered the feeling when the Меч she grasped deeply pierced the right side of the Император's chest.
+Если точнее — на предположительно мёртвого Императора Крюгера Норлангарт, продолжавшего зачитывать таинственное заклинание. Однако же, в отличие от Зеппоса, Ронье лично лишила Императора жизни. Её руки всё ещё помнили то ощущение, с которым меч, что она сжимала, глубоко пронзил правую сторону груди Императора.
 
-*If they are not impersonators, it means that according to the words of Зеппос they have recovered from death. However, the resurrection of dead is something impossible neither for Кирито who has the greatest mind power of Мира Людей, nor for Асуна who possesses the power of the goddess Stacia, nor for Ayuha Furia, the Sacred Art department head — nor for the half-god who continued to rule Мира Людей for over 300 years, Первосвященник Администратор. Я cannot believe that these two were truly resurrected. Something evil...... some unimaginably wicked trick should be used for that*, Ронье thought.
+*Если они не выдают себя за других, это значит, как Зеппос и говорит, они вернулись после смерти. Однако, воскрешение мёртвых — это нечто невозможное ни для Кирито, обладающего высшей силой разума в Мире Людей, ни для Асуны, владеющей силой богини Стасии, ни для Аюхи Фурии, главы подразделения Священных Искусств — ни даже для полу-бога, правящего Миром Людей более 300 лет, Первосвященника Администратор. Я просто не могу поверить, что эти двое воскресли. Какой-то злой...... какой-то невообразимо жуткий трюк должен был быть использован для этого*, подумала Ронье.
 
-Perhaps, reading these thoughts from the expression of Ронье, Зеппос returned to the story и opened the crossed arms.
+Возможно, прочитав эти мысли у Ронье на лице, Зеппос вернулся к своему рассказу и выпрямил сложенные руки.
 
-"To keep the doors of the dungeons open was, of course, to lure you here. Because thou is a perfect match for гоблинов combat training, without the need to pass that hidden passage....... "
+"Дверь темницы была оставлена открытой, конечно же, чтобы заманить вас сюда. Потому что ты отлично подойдёшь для проверки гоблинов боем, и при этом по потайному ходу идти не нужно....... "
 
-"Combat training...... needn’t to pass...?"
+"Проверка боем...... идти не нужно...?"
 
-While repeating after him with a hoarse voice, Ронье gazed at the гоблинов lying in the circle of candles. No matter how they looked, they were even smaller than Ронье, not mentioning tall Зеппос и the Император, of course. *To begin with, what was the problem that made them to took you out of the dungeon?*
+Повторяя за ним охрипшим голосом, Ронье уставилась на гоблинов, лежащих в кольце свечей. Как бы они не выглядели, они были ещё меньше, чем Ронье, не говоря уже, конечно, о высоких Зеппосе и Императоре. *Да для начала, зачем им вообще было вас забирать из темницы?*
 
-That was something she couldn’t understand, but one thing was certain — that it was necessary to stop the incantation as soon as possible. To do that, she first had to eliminate Зеппос.
+Это было выше её понимания, но одно было очевидно — что заклинание следует остановить как можно скорее. И чтобы это сделать, ей прежде всего нужно было устранить Зеппос.
 
-"...... Enough of this wasteful talk. If you are resurrected from death, Я will just drive you back to the deeps of the ground!"
+"...... Хватит этой пустой болтовни. Даже если вы воскресли из мёртвых, я просто загоню вас обратно глубоко под землю!"
 
-— Ронье stated resolutely и held up her left hand.
+— решительно сказала Ронье и подняла левую руку.
 
-*Зеппос has blades in both hands. He cannot use Sacred Arts this way. I’ll pause for an art, then will immediately shorten the distance и slay him.*
+*Зеппос держит клинки в обеих руках. Так он не сможет использовать Священное Искусство. Я задержусь для каста, затем немедленно сокращу дистанцию и поражу его.*
 
-"**System Call! Generate Thermal Element!**"
+"Систем Колл! Дженерейт Термал Элемент!"
 
-Just like minutes ago, when she let Тейза to continue the incantation after the elements generation to maximize speed, she created 5 thermal elements. At the same time, Зеппос kicked of the floor и jumped over with two blades in hands. He seemed to think that since it was not a "tuned chant", the early attack would work, but that was a trap Ронье set up.
+Как и несколько минут назад, когда она позволила Тейзе продолжить заклинание для увеличения скорости каста, она создала 5 термальных элементов. В то же самое время, Зеппос оттолкнулся ногами от земли и прыгнул на неё с клинками в обеих руках. Наверное он решил, что раз это не "совместное заклинание", атака на упреждение будет эффективной, но это была ловушка, которую Ронье подстроила.
 
-Ронье jumped back и shouted, leaving elements in the place of generation:
+Ронье отпрыгнула назад и выкрикнула, оставив элементы висеть в том месте, где они сгенерировались:
 
-"**Discharge!!**"
+"Дисчардж!!"
 
-Five thermal elements were discharged at once и exploded with tremendous roar.
+Пять термальных элементов, одновременно разрядившись, с ужасным грохотом взорвались.
 
-It is necessary to process the element in order to hit the target of no fixed position by an attack technique. "**Arrow shape**" gives priority to linear penetrating power, "**bird shape**" gives an ability to pursuit, и there are many other processing formulae, but if enemies themselves come to the location of an element, they all are unnecessary. Just release it as it is at the moment of contact.
+Для того чтобы попасть по движущейся цели с помощью атакующей техники, элементы необходимо обработать. "Эрроу Шейп" отдаёт предпочтение прямолинейному проникающему удару, "Бёд Шейп" (форма птицы) добавляет возможность преследования, и существует много других формул обработки, но если враг сам по себе оказывается в точке нахождения элемента, в них попросту нет необходимости. Их просто можно разрядить в момент контакта.
 
-As Ронье planned, Зеппос was caught in the explosion. His leather bands which she couldn’t even call an armor won’t be able to negate the damage. Although thermal elements blast is a basic attack technique, the five elements blasted together have the power enough to completely erase the Life of even young и tough soldier.
+Как Ронье и планировала, Зеппос попал в эпицентр взрыва. Его кожаные ремни, которые и бронёй-то назвать язык не поворачивался, не смогли бы уменьшить урон. Хотя взрыв термального элемента — это весьма базовая техника, взорванные вместе пять элементов обладали мощью достаточной чтобы полностью аннулировать Жизнь даже молодого и сильного бойца.
 
-*And even if you survive, you cannot move right away. So, I’ll slay you ── there!*
+*А если ты и выживешь, то двигаться точно не сможешь. Тогда я избавлюсь от тебя ── сейчас!*
 
-"Waaaa!!!"
+"У-а-а-а-а-а!!!"
 
-With a high shout, she crushed the Меч of the Moonlight down towards the center of the black smoke cloud remaining in the air.
+С высоким криком, она обрушила Меч Лунного Света в центр клубящегося чёрного дыма, висящего в воздухе.
 
-**Ga-ki~i~i~n**! The piercing metal sound echoed, и the Меч stopped with the impact which was passed from the wrist to the right shoulder.
+**Га-ки~и~и~н**! Раздался пронзительный металлический звук, и меч остановился столь резко, что болезненная отдача прошла по её запястью и правому плечу.
 
 "............!?"
 
-In front of astonished Ронье, Зеппос appeared from the dissolving smoke.
+Перед поражённой Ронье из растворяющихся клубов дыма появился Зеппос.
 
-Most of the leather bands were burned black, и some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, и beneath the skin had a hollow enough to fir two fists. But that was it. Not a single drop of blood was flowing, и his right hand holding a large knife over his head firmly received Ронье’s Меч.
+Большинство кожаных ремней были обожжены или обуглены, а некоторые и вовсе разорваны. Большинство повреждений пришлось на правую часть груди, где теперь свободно болтались ошмётки кожаных полос, а под ними в коде была дыра, в которую поместились бы два кулака. Но на этом всё. Не текло ни единой капли крови, а его правая рука, держащая над головой большой нож, уверенно сдержала удар меча Ронье.
 
-*Impossible. He is standing despite the body is dented to the degree that the lungs и heart should collapse.* The full-body blow with the Меч of the Moonlight, which had the priority of the Divine Object class, delivered by Ронье, who despite being an apprentice, belonged to Рыцари Целостности, was stopped by one hand of a great chamberlain who wasn’t even a guard.
+*Не может быть. Он продолжает стоять, хотя в его теле такая дыра, что сердце с лёгкими должны быть кашей.* Удар Мечом Лунного Света, обладавшим приоритетом Божественного Инструмента, в который Ронье, бывшая хоть и учеником, но всё же принадлежавшая к ордену Рыцарей Целостности, вложила всю свою силу, был остановлен одной рукой обер-камергера, который и стражником-то не был.
 
-Standing close to her, Зеппос burst into laughter.
+Стоящий вплотную к ней Зеппос разразился хохотом.
 
-A small knife in his left hand, wet of poisonous green, was quickly protruding, и Ронье tried to avoid it by jumping backwards.
+Маленький нож в его левой руке, влажный от зелёного яда, выстрелил вперёд, и Ронье попыталась уклониться, отпрыгнув назад.
 
-But she did not make it. The knife slid like a green snake through the air, reaching to her chest. The edge of the fluttering cloak is cut away without a sound ──
+Но не смогла. Нож пронёсся по воздуху подобно зелёной змее и достиг её груди. Край её влетевшего в воздух плаща был беззвучно отрезан, и ──
 
-**Zag**!
+**Цаг**!
 
-— A damp sound reached Ронье's ears.
+— ушей Ронье достиг влажный мясистый звук.
 
-However, it was a piece of silver metal flying from behind — probably a stake generated from metallic element — that made the sound when it deeply pierced Зеппос' belly.
+Однако, звук этот издал кусок серебристого металла, прилетевший сзади, — видимо, кол, созданный из металлического элемента — когда глубоко погрузился в живот Зеппоса.
 
 "Ронье!"
 
-— Тейза shouted и jumped through the cracked window, grasping the naked standard Меч:
+— выкрикнула Тейза и спрыгнула с разбитого окна внутрь, сжимая в руке обнажённый стандартный меч:
 
-"Get away from her!"
+"Отвали от неё!"
 
-Following her friend’s voice, she retreated a step away from the poisoned knife which stopped just a few millis away from the solar plexus. Зеппос wiped out his smile и tried to catch up, but Тейза shouted again:
+Услышав голос подруги, та отступила на шаг от отравленного ножа, который застыл всего в нескольких миллисах от солнечного сплетения. Улыбка исчезла с лица Зеппоса, и он двинулся было, чтобы не отстать от неё, но Тейза снова прокричала:
 
-"**Discharge!!**"
+"**Дисчардж!!**"
 
-Зеппос stared at the pointed tip of the second stake that flew with a humming sound, hit his back и protruded from the center of his chest. Blackened blood was splattered from the man's mouth.
+Зеппос вытаращился на заострённый кончик второго кола, который с гудящим звуком пролетел, пробил его спину и высунулся из центра груди. Изо рта мужчины полилась чёрная кровь.
 
-*This time, he’s dead. There are no people living with the heart pierced with a 3 cen thick stake.*
+*На этот раз, он точно труп. Нет таких людей, что выжили бы с сердцем, из которого торчит кол толщиной в три цена.*
 
-Confident of that, Ронье stepped on the floor with both feet и brandished the Меч to deliver the final slash.
+Уверенная в этом, Ронье ступила на пол обеими ногами и занесла меч чтобы нанести завершающий удар.
 
-"No, he still can move!"
+"Нет, он всё ещё может двигаться!"
 
-Had Тейза not shout so, she might have been beheaded by a large knife Зеппос swept sideways at a horribly rapid speed.
+Если бы Тейза не прокричала, её бы обезглавил большущий нож, которым Зеппос с ужасающей скоростью махнул в сторону.
 
-"Wha............"
+"Что............"
 
-Astonished, Ронье bent her upper body to the limit. A blunt silver blade flew so close that her neck felt the pressure of the air it created.
+Поражённая, Ронье до предела выгнула тело. Грубый серебристый клинок пронёсся столь близко, что её шея почувствовала давление воздуха, что тот создал.
 
-Зеппос who swayed the knife also did not seem to be dead, but he was not intact either; he stopped following her и retreated with uneven steps. Stopped near the center of the hall и spread the two knives as if trying to protect the circle of candles.
+Резанувший ножом Зеппос тоже не казался мёртвым, хотя и невредимым его назвать было сложно; он прекратил наступление и неуверенным шагом отошёл. Остановился в центре зала и развёл ножи в стороны, словно бы защищая кольцо со свечами.
 
-Тейза ran through the hall’s space to a place by the side of Ронье, shouting with the Меч directed to Зеппос.
+Тейза пробежала через зал и встала рядом с Ронье, прокричав, направляя меч на Зеппоса:
 
-"Ронье, he is not a human!"
+"Ронье, это не человек!"
 
-"Eh... what do you mean...?"
+"Э... в каком смысле...?"
 
-As Ронье dashed a confused gaze back и forth to the broken window where she jumped in, Тейза added:
+Пока Ронье переводила озадаченный взгляд между неё и окном, через которое она запрыгнула, Тейза добавила:
 
-"I’ve found a heap of jute bags in the deeps of the forest. Inside them, was pure soil...... clay, stinking badly."
+"В глубине леса я нашла кучу джутовых мешков. Внутри, была чистая почва...... глина, притом вонючая."
 
-"Clay……?"
+"Глина……?"
 
-At the moment when she heard that word, Ронье's mind suddenly flashed.
+В тот момент, когда она услышала это слово, Ронье осенило подобно вспышке молнии.
 
-Зеппос' gray skin. Even if he gets caught in the thermal elements explosion, it is just a hollow appearing in the body. Darkish blood.
+Серая кожа Зеппоса. При попадании во взрыв термальных элементов, они отделывается появившейся в теле дырой. Тёмная кровь.
 
-Ронье saw a body with a similar texture at Obsidia Castle in Тёмной Территории. Not human. A huge monster suddenly appearing in the treasury store ──
+Ронье уже видела тело с подобной текстурой в замке Обсидия в Тёмной Территории. Не человек. Огромный монстр, внезапно появившийся в сокровищнице ──
 
-"............ Minion!"
+"............ Миньон!"
 
-Тейза nodded deeply to Ронье’s panting voice, и Зеппос twisted his lips wet with black blood.
+Тейза утвердительно кивнула в ответ на тяжёлый выдох Ронье, и Зеппос искривил свои окроплённые чёрной кровью губы.
 
-Minion. An artificial creature that could only be produced by Тёмной Территории Dark Arts Guild Masters. Although it accepts only simple instructions, it has enormous Life suitable for a large body и has high resistance to heat и cold. If Зеппос is a Minion made of clay rather than man, that could very well explain that the body only dented even though it was hit directly by five thermal elements explosion.
+## Продолжение следует...
+
+<!--Minion. An artificial creature that could only be produced by Тёмной Территории Dark Arts Guild Masters. Although it accepts only simple instructions, it has enormous Life suitable for a large body и has high resistance to heat и cold. If Зеппос is a Minion made of clay rather than man, that could very well explain that the body only dented even though it was hit directly by five thermal elements explosion.
 
 But that possibility suggested a new mystery.
 
@@ -1394,8 +1396,8 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 1. <a name="Prim1"></a>Да, на этот раз это определённо “она”. Цукигаке — самка. Интересно сколько у меня часов уйдёт на то чтобы исправить все упоминания этой драконихи в обеих книгах… (ответ: 2,5 часа без учёта всего того что я пропустил и исправлял на этапе рулейта.) Пожалуйста, не говорите мне что Орои тоже самка...
 2. <a name="Prim2"></a>Мне кажется, я уже давал сноску по этой фразе, но на всякий случай: form element, arrow shape; придать элементу форму, форма стрелы.
 2. <a name="Prim3"></a>...перед чем, судя по всему, она опять переложила меч в правую.
-<!--3. <a name="Prim4"></a>If you are confused just like Ронье is, [Chamberlain](https://en.wikipedia.org/wiki/Chamberlain_(office)).
-3. <a name="Prim5"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
+3. <a name="Prim4"></a>Если вы в замешательстве не меньше Ронье, то вот: [Камергер](https://ru.wikipedia.org/wiki/Камергер). Ну а "оставить дверь незапертой" - это отсылка к тому, что во всех странах эта должность ассоциировалась с крайне ограниченным доступом в монаршии покои, и соответственно, с ключом от оных, либо же от всего дворца. Иными словами, должность этого человека по определению — держать двери закрытыми.
+<!--3. <a name="Prim5"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
 4. <a name="Prim6"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
 5. <a name="Prim7"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
 6. <a name="Prim8"></a>[Katashiro](http://yokai.com/katashiro/).

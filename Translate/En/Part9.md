@@ -456,7 +456,7 @@ With a high shout, she crushed the Sword of the Moonlight down towards the cente
 
 In front of astonished Ronye, Zeppos appeared from the dissolving smoke.
 
-Most of the leather bands were burned black, and some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, and beneath the skin had a hollow enough to fir two fists. But that was it. Not a single drop of blood was flowing, and his right hand holding a large knife over his head firmly received Ronye’s sword.
+Most of the leather bands were burned black, and some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, and beneath the skin had a hollow enough to fit two fists. But that was it. Not a single drop of blood was flowing, and his right hand holding a large knife over his head firmly received Ronye’s sword.
 
 *Impossible. He is standing despite the body is dented to the degree that the lungs and heart should collapse.* The full-body blow with the Sword of the Moonlight, which had the priority of the Divine Object class, delivered by Ronye, who despite being an apprentice, belonged to Integrity Knights, was stopped by one hand of a great chamberlain who wasn’t even a guard.
 
