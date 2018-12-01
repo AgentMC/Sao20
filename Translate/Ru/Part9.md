@@ -520,179 +520,179 @@
 
 Тейза утвердительно кивнула в ответ на тяжёлый выдох Ронье, и Зеппос искривил свои окроплённые чёрной кровью губы.
 
-## Продолжение следует...
+Миньон. Искусственное существо, создаваемое исключительно мастерами из Гильдии Тёмных Искусств Тёмной Территории. Хоть они и понимали лишь простые команды, но обладали огромной Жизнью, под стать крупному телу, и кроме того имели высокое сопротивление жару и холоду. Если Зеппос — это глиняный миньон, а не человек, это вполне могло объяснить почем в его   теле просто появилась дыра после попадания во взрыв пяти термальных элементов.
 
-<!--Minion. An artificial creature that could only be produced by Тёмной Территории Dark Arts Guild Masters. Although it accepts only simple instructions, it has enormous Life suitable for a large body и has high resistance to heat и cold. If Зеппос is a Minion made of clay rather than man, that could very well explain that the body only dented even though it was hit directly by five thermal elements explosion.
+Но такая возможность приводила к новой загадке.
 
-But that possibility suggested a new mystery.
+"Миньон...... Это монстр, что даже говорить не может. А он...!"
 
-"Minion...... It is a monster that cannot even speak. But he ...!"
+Когда Ронье это выкрикнула, Зеппос, живот и грудь которого всё ещё пронзали колья из стальных элементов, прогремел:
 
-When Ронье shouted that, Зеппос, with its belly и chest penetrated by the steel-element stake, said with thunderous voice:
+"...... Не только вы, ребята из Церкви Аксиом, исследовали Священное Искусство....... Его величество Крюгер...... и не только, те, что принадлежали старейшим родам с чистейшей кровью среди четырёх имперских домов, сотни лет вели бесчисленные исследования чтобы завершить некое Искусство..."
 
-"...... It was not just you guys from Церковь Аксиом who were doing research on Sacred Art....... His Majesty Крюгер...... no, those of the oldest и most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
+"Четверо Императоров...... работали вместе!?"
 
-"The Four Императорs...... collaborated!?"
+— на этот раз возглас пришёл от удивлённой Тейзы.
 
-— this time Тейза exclaimed in surprise.
+Ронье была столь же потрясена. Для Ронье, рождённой в семье аристократа низшего класса Северной Империи Норлангарт, остальные три Империи долгое время были всего лишь дальними странами. И только присоединившись к Войне с Внешним Миром, она на собственном горьком опыте научилась тому, что Бессмертную Стену, которая для неё была концом мира, можно не особо напрягаясь преодолеть, и что за пределами Мира Людей лежат обширные пространства.
 
-Ронье was appalled the same way. For Ронье born in the lower aristocratic house of the Норлангарт Северной Империи, the other three Империиs for the long time weren’t anything more than the far-away countries. It was only after she joined the Войны с Внешним Миром when she learned the hard way that the Timeless Wall, which she thought was the end of the world, could be jumped over with a minimal effort, и that there is a vast world spreading outside of Мира Людей.
+*Но Зеппос сказал, что Императоры четырёх Империй в течение нескольких сотен лет исследовали Священное Искусство. Хоть это и шокирует, не сказать, что в это прям уж не верится. Ведь даже под властью Первосвященника выдавались пропускные жетоны и можно было пересечь Бессмертную Стену, а четыре замка, громоздящихся вокруг Собора стоят друг от друга не дальше чем в килолу по небу. Пускай для самого Императора мотаться туда-сюда и будет неподобающим, для кого-то другого это вполне возможно. Например, для человека в должности обер-камергера ──*
 
-*But Зеппос said that the Императорs of the four Империиs had been doing research on Sacred Art for hundreds of years since a long time ago. Although it was a shocking story, it was not impossible come to think of it. If there were bills of passage even under the reign of the Первосвященник, it was possible to go и cross the Timeless Wall, и the four castles towering around the Собора were not farther away from each other than one kilolu by the sky. Even if it is unreasonable for the Император himself to go back и forth, it is fully possible for someone else. For example, for a person in a position of a great chamberlain ──*
+"И что это за искусство!?"
 
-"What is that art!?"
+Зеппос ответил на вопрос Тейзы непривычным смешком:
 
-Зеппос returned an unusual chuckle to Тейза’s request:
+"Гы, гы-гы-гы...... Что ты за глупая девчонка, если до сих пор не поняла. Но я скажу тебе...... это техника, позволяющая обладать привилегией богов, которую узурпировала Первосвященник, ‘Вечная жизнь’.... "
 
-"Gy, gy-gy-gy...... What a foolish girl you are that you have not understand it yet. I’ll tell you...... it is a technique to acquire the privilege of gods monopolized by the Первосвященник, ‘Eternal life’.... "
+"Вечная……"
 
-"Eternal……"
+"…жизнь, да!?"
 
-"…life, is it!?"
+Услышав этот ответ, Ронье и Тейза застыли словно громом поражённые.
 
-Struck by the new shock, Ронье и Тейза just stood stock still.
+Тем временем, тело Зеппоса задрожало в каком-то радостном возбуждении, и он схватился за голову обеими руками, в которых всё ещё были зажаты ножи:
 
-Meanwhile, Зеппос’ body quivered with some sort of cheerful vibe, as he grabbed his narrow head with both hands holding knives:
+"Гы-гы-гы....... Мы провели самые разные эксперименты, пытаясь остановить естественное уменьшение Жизни: все виды искусств, материалы от эликсиров до подчас токсичных ядов. Та темница, из которой вы только что так легко сбежали. Там сдохло столько черни, посвятившей свои жизни этой скромной цели..."
 
-"Gy-gy-gy....... We used all sorts of experiments to stop the natural decline of Life: all kinds of art, media from elixirs to even toxic poison sometimes. That dungeon where you were confined before. Lot of serfs died there dedicating their lives for this sublime purpose..."
+За этим ужасным монологом последовал издевательский смех.
 
-A horrible monologue, followed by an annoying laughter.
+Ронье вздрогнула, почувствовав, как его голос и цепкий взгляд наполнялись крепчающей агрессией, ненавистью и завистью.
 
-Ронье frowned feeling deep grudge, и hatred, и jealousy in his voice и tenacious look.
+*Тот, кто был обер-камергером императорского дома, должен был обладать влиянием и властью, сравнимой со старшей аристократией. Такой человек, чему он может завидовать у двоих, бывших не более чем учениками рыцарей?......*, эта мысль ошеломила её.
 
-*The one who became a great chamberlain of the imperial house, should have had a position и power comparable to the senior nobility. Such a person, what could he be jealous of the two who are barely apprentice knights?......* this thought really took her aback.
+Но Зеппос завидовал не конкретно Тейзе и Ронье. Причиной было само существование Рыцарей Целостности. Бессмертных, чья Жизнь была заморожена, живущих вечно ──
 
-But it was not Тейза и Ронье as individuals that Зеппос was jealous of. It was the very existence of Рыцари Целостности. Immortals whose Life was frozen, living for eternity ──
+Для Императора и старшей аристократии, обладавших всей мыслимой властью, доступной человеку, и проживающих полные роскоши жизни, пожалуй, не было никого, кому они могли завидовать больше, чем Первосвященнику и Рыцарям Целостности, смотрящих на Мир Людей с вершины белой башни, бывшей много выше Имперских Замков, наслаждавшихся своей вечной жизнью, которой те не могли достичь, как бы страстно не желали. К тому же, из-за Индекса Табу, предписывавшего подчинение Церкви Аксиом, даже Императору не позволялось проявить антипатию.
 
-For the Император и senior nobility who were given the highest power a human may have и used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Первосвященник и the Рыцари Целостности overlooking the Мира Людей from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Индекс Табу which forces submission to the Церковь Аксиом, even Император was not allowed to reveal antipathy.
+Однако, Рыцари Целостности страдали от проблем Рыцарей Целостности. Ронье стало это понятно с момента вхождения в Собор.
 
-However, Рыцари Целостности suffered the Рыцари Целостности’ troubles. Ронье knew that since entering Собора.
+Тем, чьи жизни были заморожены, приходилось раз за разом проходить через болезненное прощанье с теми, кто не обладал бессмертием. К примеру, глава рыцарей Фанатио. Она, прожив уже более двух сотен лет, остаётся вечно молодой, но Берчи, её сын, таким не был. Разве что кто-то воскресит священное Искусство заморозки Жизни, утраченное со смертью Первосвященника ── и Фанатио согласится наложить это заклинание на Берчи, её сын со временем станет старше матери и в итоге умрёт. Для обоих это будет невероятно жестокая судьба.
 
-Those whose Lives have been frozen must go through repeated separation from the others who do not live indefinitely. For example, knights’ head Фанатио. She is forever young person who have lived for more than two hundred years, but Berchie, her son, is not the same. Unless someone resurrects the Life freeze Sacred Art lost with the death of the Первосвященник ── и unless Фанатио chooses to apply it to Berchie, her son will definitely get older than his mother и will eventually die. What an unbelievably cruel fate for both.
+"Вечная жизнь противоречит самой сути мира."
 
-"Eternal life contradicts to the essence of the world."
+— сказала Ронье, с трудом сдерживая гнев, —
 
-— Ронье declared while restraining her anger hard, —
+"И никому не позволено убирать невинных людей..... множество других людей в поисках такого......"
 
-"It is absolutely forbidden to kill innocent people..... dozens of them, in search for such things......"
+Лицо Зеппоса мгновенно исказилось гораздо сильнее, чем когда-либо ранее.
 
-Зеппос’ face immediately distorted to a greater extent than ever before.
+"Чёртовы рыцари... да как вы смеете такое даже произносить?"
 
-"Damned knights... how dare you saying such words at all?"
+Чёрные капли крови разлетались из его исторгавшего проклятия рта.
 
-Black blood scattered from his mouth pronouncing curses.
+*Даже если Зеппос — миньон, как думает Тейза, внутренности тела не обязательно должны быть такими же. Он совершенно отличается лот людей, поскольку не умер, когда грудь повредило, а живот пронзили толстым колом, но он, похоже, и не просто глиняная кукла, напоминающая человека. Вся эта кровь, как минимум, текла в его теле, так что когда он потеряет её, он умрёт. Его физические данные гораздо хуже чем у настоящих миньонов, так что и количество крови должно быть невелико.*
 
-*Even if Зеппос is minion as Тейза guesses, there is no guarantee that the body's contents are the same. It will be totally different from humans because it didn’t die even after the chest was damaged и belly were pierced with a thick stake, but it seems not to be just a clay of human type either. That blood как минимум appears to be flowing in the body, so if he loses all that blood he will die that time. The physique is much worse than of the real minion, so the amount of blood should be small too.*
+Двое из трёх появившихся в замке Обсидия миньонов разлетелись на куски от удара кулака Командующего Исукана, и ещё один был рассечён надвое ударом подобной мечу руки посла Шейты. Их с Ронье навыки не позволяли нанести фатальные повреждения ── Кирито и компания назвали бы это "задамажить", но если проскользнуть между ножами и отсечь одну из конечностей — то победитель будет очевиден.
 
-Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, и the other one was split in two with the Меч-like hand slash by the ambassador Шейта. With skills of Ронье и the other one, it was difficult to give a fatal injury ── Кирито и others would call it "**damage**", but if one can slip through two knives и slash one of the limbs then there is a winner.
+Проблема была в Императоре Крюгере, которого старательно защищал Зеппос. Не меньше трёх минут прошло с того момента, как они попали в зал, а тот всё ещё зачитывал заклинание. Чем дольше Священное Искусство, тем длительнее, масштабнее и мощнее эффекты оно создаёт, и Ронье не слышала пока что ни об одном столь же длительном заклинании. Зачитывание Искусства Отражения Прошлого, которое зачитала недавно Асуна, тоже длилось немало времени, но тем не менее, оно занимало всего около двух минут.
 
-But the problem was Император Крюгер whom Зеппос was trying to protect. Three minutes or more have passed since they broke into the hall, и he was still singing. The longer the Sacred Art is, the longer, more complex и more powerful effects is produced, и Ронье was not aware of any so long technique. The incantation of the Past Reflection art that Асуна used felt quite long too, but still it would have been only about two minutes.
+*Нельзя откладывать битву с Зеппосом. Чем ждать его смерти от кровопотери, битву надо завершить как можно скорее, и затем сразу же остановить заклинание Императора.*
 
-*We cannot prolong the fight with Зеппос. Rather than waiting for death of blood loss, the battle must be resolved at shortest, и then we’d stop the Император's incantation.*
+"Тейза, когда я запущу секретное движение, заставь его замереть с помощью световых элементов."
 
-"Тейза, when Я activate the secret move, stop his movements with light element technique."
+— когда Ронье это прошептала, её подруга мгновенно кивнула.
 
- — when Ронье whispered this, her friend instantly nodded.
+Сила меча, сила Священного Искусства и сила инкарнации у них были на одном уровне. Тейза, само собой, не стала бы просто так отдавать эту опасную роль Ронье. Однако, за пределами их способностей между ними была большая разница. Тейзин стандартный меч Армии Мира Людей обладал приоритетом 25, а Меч Лунного Света Ронье был 39-го приоритета — так что бить надлежало именно Ронье.
 
-The Меч power, the sacred art power, и the incarnational power of the two were at the same levels. Тейза for sure would not want to impose a dangerous role on Ронье. However, there was a big difference between the two of them outside of their abilities. Тейза's Мира Людей army standard Меч must have had priority 25 и Ронье's Меч of the Moonlight’s priority was 39 — so it was Ронье who had to strike.
+"...... конечно, ни Рыцари Целостности, ни Церковь Аксиом не могут быть правы всегда и во всём."
 
-"...... certainly, neither Рыцари Целостности nor the Церковь Аксиом may be absolutely correct."
+— громко сказала Ронье, занося любимый меч над головой, —
 
-— while raising her beloved Меч overhead, Ронье shouted, —
+"Но пусть мы иногда неправы, то что вы тут творите совершенно точно неправильно, как ни посмотри!"
 
-"But even if we are sometimes not right, what you are doing here is definitely wrong whatever you say!"
+Словно почуяв настроение владелицы, клинок испустил яркое светло-синее сияние. В тот миг, когда Тейза начала зачитывать первую строчку Священного Искусства, она оттолкнулась от пола, вложив силу всего тела.
 
-As if the attitude of the owner was passed to it, the blade released a brilliant light blue shine. The moment Тейза began chanting the first line of Sacred Art, she kicked off the floor with the power of the whole body.
+За её спиной можно хлопнули невидимые крылья, передав ей сильнейшее ускорение. Мгновенно преодолев расстояние больше, чем 10 мелов, она оказалась перед врагом. Техника высокоскоростного рывка стиля Айнкрад, "Звуковой скачок".
 
-The invisible wings vigorously flapped behind her back, creating a tremendous acceleration. Instantaneously she shot through a distance of more than 10 mel и approached the enemy. Incrad style high-speed rushing technique, "**Sonic Leap**".
+"Тебе тоже суждено стать пищей, что будет питать наши амбиции, девчонка!"
 
-"You too shall be food for our ambitions, little girley!"
+— выкрикнул Зеппос, его ухмылка обнажала жёлтые заострённые, словно клыки, зубы. Он расслабленно перехватил ножи поудобнее и приготовился встретить Ронье.
 
-— Зеппос shouted out, grinning with pointed yellow fang-like teeth. He carelessly got better hold of the knives in both hands и tried to catch Ронье.
+Но его злые слова потонули в яркой белой вспышке.
 
-A pure white shine wrapped his evil words.
+Грохот взрыва наложился на три высоких хлопка. Световые пули, выпущенные Тейзой, обогнали Ронье в воздухе.
 
-Three high-pitched pops overlapped with bang. Light bullets Тейза released had overtaken Ронье in the air.
+Световые элементы были не столь мощными, как термальные или криогенные элементы, но благодаря их сумасшедшей скорости полёта и точности попадания, они были оптимальными, чтобы сбить врага с толка. К тому же, они были контратакующим анти-атрибутом против миньонов, созданных из силы тьмы, так что ещё и могли нанести какой-никакой урон.
 
-Light elements were not as powerful as thermal or cryogenic elements, but with their overwhelming flight speed и hit accuracy, they were optimal to cause dizziness. Moreover, it became a counter anti-attribute to minion made with the power of darkness, so it was able to give some damage.
+От лица Зеппоса, обожженного ярким светом, поднимались клубы фиолетового дыма. Его движения замедлились лишь на мгновение, но Ронье этого хватило.
 
-Purple smoke rose from the Зеппос’ face burned by intense light. The movement stopped only for a moment, but it was enough for Ронье.
+Между двух обрушившихся вниз ножей наискосок блеснула светло-синяя вспышка.
 
-The light blue flash passed diagonally between the two knives being swung down.
+Меч Лунного Света глубоко вгрыззся в правое плечо бывшего обер-камергера и вышел из тела под мышкой слева. Замерев в устрашающей позе, Зеппос простонал хрипящим голосом:
 
-The Меч of the Moonlight bit deeply into the right shoulder of the former great chamberlain и exited the body under the left armpit. A cracked voice groaned from Зеппос’ mouth while he stiffened in a daunting pose.
+"...... Крюгер, ...... ваше...... величество......"
 
-"...... Крюгер, ...... your...... majesty......"
+Верхняя половина рассечённого надвое тела съехала влево-вниз и с глухим звуком упала на ковёр. Сразу за ней на колени упала и нижняя половина.
 
-The upper half of the split body slid to the lower left и dropped onto the carpet with a thud. Slightly behind, the lower body also collapsed to the knees.
+Ронье отпрыгнула в сторону, уклоняясь от потоков чёрной крови, хлынувшей по всей поверхности разреза из обеих половинок его тела.
 
-Ронье avoided the black blood which gushed from the cut surface of the two body pieces by leaping beside.
+В тот момент, когда она поверила, что он наконец-то умер, всё её тело почти лишилось сил, но битва ещё не была окончена. Прежде, чем заклинание будет завершено, им предстояло ещё победить Императора Крюгера.
 
-The moment she was convinced that this time he’s dead, power left her entire body, but the battle had not ended yet. Before the incantation is completed, they had to also defeat Император Крюгер.
+Перед её глазами беззвучно покачивалось пламя свечей, выставленных кольцом. Внутри лежали трое горных гоблинов, их глаза закрыты. А за ними стоял человек в чёрном плаще и, держа обе руки поднятыми вверх, продолжал произносить заклинание ──
 
-In front of her eyes, there was soundlessly swaying candles ring. Inside, the three mountain гоблинов laying, with their eyes closed. и beyond that, man in a black robe, keeping both hands up и continuing to cast the incantation ──
+*Если окажется, что переродившийся Император — тоже миньон, его не победить ударом вполсилы. Как с Зеппосом, придётся разрубить его тело или обезглавить его.*
 
-*If that is the case that the reborn Император is also a minion, he cannot be defeated by a half-power attack. Like Зеппос, Я need to break his body or behead him.*
+Ронье снова занесла меч вверх чтобы активировалось секретное движение.
 
-Ронье brought her Меч up again to activate the secret move.
-
-The next moment, several things happened at the same time.
+В следующий миг одновременно случилось несколько событий.
 
 "Ронье!!"
 
-— Тейза exclaimed behind her,
+— воскликнула Тейза позади неё,
 
-"Зеппос, do your duties!"
+"Зеппос, исполняй свои обязанности!"
 
-— The Император roared interrupting the cast,
+— проревел Император, прервав зачитывание,
 
-**Ga~ts**!!!
+**Га~ц**!!!
 
-— a heavy impact hit Ронье's right foot.
+— тяжёлый удар пришёлся по правой ноге Ронье.
 
-A bit later, a tremendous pain ran up to her head. Looking down she saw Зеппос who became only a head и a left arm thrusting the knife deeply to the instep of the right foot. With blade glittering green.
+А через мгновенье, сильнейшая боль пробежала вверх до самой головы. Взглянув вниз, она увидела что Зеппос, от которого осталась лишь голова да левая рука, глубоко вонзил нож в подъём её правой ноги. И что лезвие блестело зелёным.
 
-Intense numbness followed the pain, и Ронье clenched teeth. The poison had to be dealt with before it spreads throughout the whole body, but there were many kinds of poisoning techniques, и it is not possible to judge which kind of sacred art should be used unless the identity of poison is defined.
+За болью пришло сильное онемение, и Ронье сжала зубы. С ядом нужно было справиться прежде, чем он распространится по всему телу, но существовало множество отравляющих техник, и не зная, что за яд был использован не было возможно рассудить, какое использовать священное искусство.
 
-"Kh...!!!"
+"Кх...!!!"
 
-While groaning, she cut Зеппос’ left arm off with a Меч. Grabbed the guard of the poisoned knife и pulled it out of the foot. The blood streaming from the wound was already dark.
+Застонав, она отрубила левую руку Зеппоса мечом. Схватилась за гарду отравленного ножа и вытащила его из ноги. Полившаяся из раны кровь уже была чёрной.
 
-At the very least, in order to delay the circulation of the poison, Ронье generated five light elements, then deeply cut the leg above her right knee with a Меч. Blood flowed again, but its color was still barely red. To allow the light elements into the wound, she converted them to fog using the "**Mist Shape**" command и blended into the blood.
+Самое малое, чтобы остановить циркуляцию яда, Ронье создала пятёрку световых элементов, а за тем мечом нанесла глубокий разрез по своей ноге выше колена. Снова полилась кровь, но на этот раз её цвет всё ещё был хоть немного красным. Чтобы запустить элементы в рану, она превратила их в туман, используя команду "мист шейп", который смешала с кровью.
 
-*With this, poison и light should cancel each other to some extent, but to completely detox, it is necessary to use a special technique with medicinal herb that is contained in the carrying bag on the waist. The time’s running out, Я have no choice but to use the first toxin decomposition technique which I’ll remember.*
+*Так яд и свет должны друг друга немного уравновесить, но чтобы полностью избавиться от токсина, нужно воспользоваться специальной техникой, требующей лечебную траву, которая у меня в поясной сумке. Времени мало, придётся просто применить первую технику расщепления токсина, что вспомню.*
 
-Ронье was thinking so while trying to open the carrying bag with her left hand, but the sense of the fingertips was already dull и she could not unravel the strap. Also, the power was leaving from the left leg as well as from the injured right leg, her body violently shook и tilted ──
+Ронье так мыслила, пытаясь открыть поясную сумку левой рукой, но кончики пальцев уже чувствовались очень слабо и ей никак не удавалось распустить завязки. А ещё, силы начали медленно покидать её левую ногу, как это уже происходило с травмированной правой, её тело жестоко затряслось и накренилось ──
 
 "Ронье!"
 
-— Тейза, who ran from behind, supported collapsing Ронье. Carefully swinging the Меч, she cut the head of Зеппос who was still watching from the floor.
+— Тейза, подбежавшая сзади, поддержала падающую Ронье. Аккуратно махнув мечом, она рассекла голову Зеппоса, продолжавшего наблюдать с пола.
 
-The sharp metal sound **Kiin**! overlapped the dull sound something made of clay could produce. Зеппос’ head, which was split in two from the crown to the chin, apparently, had completely lost the Life this time, lost its shape и smoothly melted. The lower body that was kneeling nearby also turned into black mucus, и after it spread around the floor it quickly started to evaporate.
+Звонкое металлическое **Киин!** наложилось на глухой звук, издаваемый разрезаемой глиной. Голова Зеппоса, разрезанная надвое от макушки до подбородка, судя по всему, на этот раз полностью лишилась Жизни, потеряла форму и медленно растаяла. Нижняя часть тела, стоящая рядом на коленях, тоже обратилась чёрной слизью, и растёкшись по полу, начала быстро испаряться.
 
-There was a strange thing falling in the place where Зеппос’ head disappeared. Silvery ring<sup><a href="#Prim4">4</a></sup> with petals of lily и feathers of a bird of prey ─ an emblem given to those serving Император Норлангарт house, petals и feathers representing the top-ranking ones.
+На том месте, где исчезла голова Зеппоса, осталась лежать странная вещь. Серебристое кольцо<sup><a href="#Prim5">5</a></sup> с изображением лепестков лилии и перьев хищной птицы ─ эмблема, которую получали те, что служили дому Императора Норлангарт, лепестки и перья указывали на высший ранг слуги.
 
-The ring was cut in two pieces. The Тейза’s Меч has broken it. A sort of purple smoke was rising from the cut, и soon it disappeared with a sound resembling a faint scream.
+Кольцо было разрезано надвое. Меч Тейзы сломал его. Из разреза струилось нечто вроде фиолетового дыма, и скоро оно исчезло со звуком, похожим на тихий крик.
 
-*This strange thing is the core of the mystery why Зеппос и the Император who should have died were resurrected as minions. Perhaps, no, for sure there is something contained in the Император’s head, which gives the character и personality to the clay body.*
+*Эта странная вещь будет ключом в загадке, как Зеппос и Император, которые должны были умереть, воскресли в виде миньонов. Возможно, нет, наверняка и в голове Императора есть что-то, что наделяет глиняные тела личностью и характером.*
 
-"Tie......se."
+"Тей......за."
 
-Ронье called her best friend, resisting the numbness that was finally reaching the mouth.
+Позвала Ронье свою лучшую подругу, сопротивляясь онемению, добравшемуся и до её губ.
 
-*── Cut the Император's head. This way you can defeat him.*
+*── Разруби голову Императора. Так ты сможешь его победить.*
 
-She wanted to continue, but her mouth wouldn’t move anymore. Тейза hugging Ронье with her left hand had thrown the Меч on the floor и was searching hard in the carrying bag. Rather than defeating the Император, she decided to cure Ронье. This decision cannot be blamed. If the situation is the opposite, Ронье would also do the same.
+— хотела она продолжить, но её губы больше не двигались. Тейза, обнимавшая Ронье левой рукой, бросила свой меч на пол и что-то старательно искала в поясной сумке. Вместо того, чтобы поразить Императора, она решила исцелить Ронье. Впрочем, её нельзя винить за такое решение. Будь ситуация противоположной, Ронье бы сделала тоже самое.
 
-Behind the black hood drawn down to the eyes, Крюгер thinly smiled. Nothing like a sorrow for Зеппос who was supposed to be his long-time supported to die for the second time reflected in that smile.
+Во тьме под натянутым на самые глаза капюшоном показалась тонкая улыбка Крюгера. В этой улыбке не было ничего похожего на грусть о Зеппосе, который должен был по идее быть его давнишним помощником, и теперь погиб во второй раз.
 
-"**Connect All Circuit! Open Gate!**"
+"Коннект олл сёкит! Опэн гейт!"<sup><a href="#Prim6">6</a></sup>
 
-— the Император raised both hands up to the limit, sharply bent the tall slender body, и shouted with a voice resembling a cracked bell.
+— Император до предела поднял вверх руки, резко изогнул высокое худое тело и прокричал это голосом, прозвучавшим словно треснувший колокол.
 
-Ронье did not understand the meaning of the phrase at all. But guided by some kind of instinct, she hardly turned the numbing neck.
+Ронье совершенно не поняла значение этой фразы. Но словно бы влекомая неким инстинктом, она с трудом повернула немеюшую шею.
 
-The high ceiling of the large hall was painted black и there were decorative chandeliers hanging, that seemed to be expensive, but not lit. However, Ронье's eyes were drawn to the middle of the ceiling — to a circular hole just above the lying гоблинов.
+## Продолжение следует...
+
+<!--The high ceiling of the large hall was painted black и there were decorative chandeliers hanging, that seemed to be expensive, but not lit. However, Ронье's eyes were drawn to the middle of the ceiling — to a circular hole just above the lying гоблинов.
 
 *The diameter is about 30 cen. It wasn’t a neat job, the shape is distorted, и the wood is left scratched as it was. Perhaps it was a rough digging through the second-floor room floor with something like an ax.*
 
@@ -945,7 +945,7 @@ Minion swayed to the left because of the momentum of the whole-body swoosh и tu
 
 *Definitely within the range of a "Sonic Leap". With one whole-body blow, destroy the katashiro that should be stored in the middle of the head и the red jewel hanging on the chest, и end it all.*
 
-When she kicked off the floor again with the blooded right foot, vigorously swinging the Меч of the Moonlight up ──
+When she kicked off the floor again with the blooded right foot, vigorously swinging the Меч Лунного Света up ──
 
 It happened at that very moment.
 
@@ -1021,13 +1021,13 @@ Unexpectedly ──
 
 Right hand felt a gentle warmth.
 
-She did not immediately understand what the hand was holding. It was a handle of the Меч of the Moonlight, carefully wrapped with a slightly rough leather.
+She did not immediately understand what the hand was holding. It was a handle of the Меч Лунного Света, carefully wrapped with a slightly rough leather.
 
 **To-кун**, **to-кун**, through the pulsing heat Меч spoke to her. Unleash me, for Я will respond.
 
-*However, Я can’t do "that thing". Меч of the Moonlight is certainly a high priority instrument, but it is not a divine object.  
+*However, Я can’t do "that thing". Меч Лунного Света is certainly a high priority instrument, but it is not a divine object.  
 Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories и can communicate with their masters.  
-On the other hand, it was some human blacksmith who forged the Меч of the Moonlight, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
+On the other hand, it was some human blacksmith who forged the Меч Лунного Света, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
 Cannot. Cannot…….*
 
 On the verge of her и Тейза’s death, as the time became weirdly stretched, in her head Ронье was repeating the single word over и over.
@@ -1040,7 +1040,7 @@ She had heard that a long time ago somewhere far away, the words of the deceased
 
 To open the heart.
 
-It was the owner Ронье who had decided that Меч of the Moonlight had no spirit. But looking back at what happened there, it was Вице-Премьер-Мечник Асуна who told her to pick one of the three Мечs, but it was Ронье who was left with the choice of the Меч, not her. At that moment, something drifted Ронье's right hand, attracted it to this Меч with the silver guard in a form of a crescent moon.
+It was the owner Ронье who had decided that Меч Лунного Света had no spirit. But looking back at what happened there, it was Вице-Премьер-Мечник Асуна who told her to pick one of the three Мечs, but it was Ронье who was left with the choice of the Меч, not her. At that moment, something drifted Ронье's right hand, attracted it to this Меч with the silver guard in a form of a crescent moon.
 
 And now, the Меч which Ронье named "Moonlight" was speaking to her to help its troubled owner. Believe in the Меч, open your heart и release it’s memory.
 
@@ -1052,7 +1052,7 @@ She intended to scream, but the voice was so weak that she could barely hear it 
 
 But the Меч и the essence of the world responded to Ронье’s call.
 
-The guard и blade of the Меч of the Moonlight emitted a dazzlingly bright silver shine. The moment it was shined by the light, minion that was on the verge of descending the claws of both hands, jumped back, и the other two blocking the exit, together with Император Крюгер who continued to laugh loudly, covered the eyes, twisted bodies.
+The guard и blade of the Меч Лунного Света emitted a dazzlingly bright silver shine. The moment it was shined by the light, minion that was on the verge of descending the claws of both hands, jumped back, и the other two blocking the exit, together with Император Крюгер who continued to laugh loudly, covered the eyes, twisted bodies.
 
 At the same time, Ронье felt that the pain in the right leg pierced by a knife и in the left arm crushed by the tail, goes away. The blood streaming from Тейза’s wounds also rapidly reduced the flow.
 
@@ -1060,7 +1060,7 @@ At the same time, Ронье felt that the pain in the right leg pierced by a kn
 
 Essence of incarnational force that only the top knights can use with divine objects, a true mystery.
 
-Perhaps the Меч of the Moonlight released part of its own Life as an enhanced version of the light element healing art. It was a fairly simple category of a complete armament control, but it was a true miracle that Ронье, who has only been a year since becoming an apprentice knight, was able to activate it without doing the full-scale study first.
+Perhaps the Меч Лунного Света released part of its own Life as an enhanced version of the light element healing art. It was a fairly simple category of a complete armament control, but it was a true miracle that Ронье, who has only been a year since becoming an apprentice knight, was able to activate it without doing the full-scale study first.
 
 The light of the blade continued for more than ten seconds, then gradually faded little by little, flashed couple of times и disappeared.
 
@@ -1070,7 +1070,7 @@ On the other hand, three minions were burned with the anti-attribute light и gr
 
 *Я do not want to let the Император go, but Я cannot exchange Тейза's life to his one. Я have to escape from the hall before minions attack again.*
 
-She gathered up the energy that Меч of the Moonlight gave them и rose up with Тейза on her left hand. As for the exit, the door to the hallway was larger, but if minion follows, they will not be able to escape. There was no choice but to go to the front yard through the broken window.
+She gathered up the energy that Меч Лунного Света gave them и rose up with Тейза on her left hand. As for the exit, the door to the hallway was larger, but if minion follows, they will not be able to escape. There was no choice but to go to the front yard through the broken window.
 
 "Тейза, try hard a little more!"
 
@@ -1092,8 +1092,8 @@ Also, behind, two other minions barked one after another.
 
 To escape, they needed to eliminate the one in front of the window. But Ронье couldn’t attack the fusion-type minion. Even just trying to slash its leg to make it stop moving will trigger the "seal of the right eye" и she will not be able to move just like Тейза previously.
 
-*The only remaining means is to just use complete armament control. If it has curative spirit, burning the flesh of Minion should not hurt the гоблинов inside. But how much more Меч of the Moonlight's Life has left? Я cannot afford confirming it through the Stacia’s window.  
-Меч of the Moonlight will crumble if it runs out of Life by complete armament control.  
+*The only remaining means is to just use complete armament control. If it has curative spirit, burning the flesh of Minion should not hurt the гоблинов inside. But how much more Меч Лунного Света's Life has left? Я cannot afford confirming it through the Stacia’s window.  
+Меч Лунного Света will crumble if it runs out of Life by complete armament control.  
 Still.  
 If it is to save Тейза, will the Меч forgive me?*
 
@@ -1219,7 +1219,7 @@ However, the element disappears or gets out of control the moment caster loses t
 
 On the other hand, minions opened their mouths again to shoot the miasmic breath.
 
-It was then that the light that just drifted in space moved. Tens thousands of light elements flew altogether as if they have their own will и wrapped up three minions’ bodies in a swirl. Like at the time when Меч of the Moonlight emitted spiritual light, their skins cracked и unpleasantly smelling smoke rose up, but it did not last for long.
+It was then that the light that just drifted in space moved. Tens thousands of light elements flew altogether as if they have their own will и wrapped up three minions’ bodies in a swirl. Like at the time when Меч Лунного Света emitted spiritual light, their skins cracked и unpleasantly smelling smoke rose up, but it did not last for long.
 
 Numerous light elements penetrated one after another into dark-gray bodies, making it to glow from the inside in pure white.
 
@@ -1249,7 +1249,7 @@ They hugged each other for a moment и let each other go. Ронье quickly che
 
 "Later. Keep an eye on the Император."
 
-To Ронье’s words, her best friend nodded with tense facial expressions. She was worried about the mountain гоблинов lying on the floor, but there was also the possibility that the Император will try to use them again in some way. While carefully holding the Меч of the Moonlight, the other one gradually approached the cage of light elements.
+To Ронье’s words, her best friend nodded with tense facial expressions. She was worried about the mountain гоблинов lying on the floor, but there was also the possibility that the Император will try to use them again in some way. While carefully holding the Меч Лунного Света, the other one gradually approached the cage of light elements.
 
 Кирито и Асуна descend from the sky along a wide arc. Ронье и Тейза’s role was to make sure Император doesn’t do anything weird until the two land.
 
@@ -1397,10 +1397,11 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 2. <a name="Prim2"></a>Мне кажется, я уже давал сноску по этой фразе, но на всякий случай: form element, arrow shape; придать элементу форму, форма стрелы.
 2. <a name="Prim3"></a>...перед чем, судя по всему, она опять переложила меч в правую.
 3. <a name="Prim4"></a>Если вы в замешательстве не меньше Ронье, то вот: [Камергер](https://ru.wikipedia.org/wiki/Камергер). Ну а "оставить дверь незапертой" - это отсылка к тому, что во всех странах эта должность ассоциировалась с крайне ограниченным доступом в монаршии покои, и соответственно, с ключом от оных, либо же от всего дворца. Иными словами, должность этого человека по определению — держать двери закрытыми.
-<!--3. <a name="Prim5"></a>Original reads "disk" (円盤). However, this is probably editors' miss because all the way ahead, similar object is referred to as "ring" (指輪) и it is mentioned that it is a piece of jewelry.
-4. <a name="Prim6"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
-5. <a name="Prim7"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
-6. <a name="Prim8"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim9"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
-8. <a name="Prim10"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
-10. <a name="Prim11"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
+3. <a name="Prim5"></a>В оригинале тут "диск" (円盤). Однако, вероятно это пропуск редактора, поскольку дальше по тексту подобный объект всегда называют "кольцо" (指輪), и упоминается, что это ювелирное изделие.
+4. <a name="Prim6"></a>_Connect All Circuit! Open Gate!_ Здесь: "Соединить всю схему! Открыть заслонку!"
+<!--4. <a name="Prim7"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
+5. <a name="Prim8"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
+6. <a name="Prim9"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim10"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
+8. <a name="Prim11"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
+10. <a name="Prim12"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->

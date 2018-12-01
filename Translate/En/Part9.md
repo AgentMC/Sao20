@@ -526,7 +526,7 @@ But that possibility suggested a new mystery.
 
 "Minion...... It is a monster that cannot even speak. But he ...!"
 
-When Ronye shouted that, Zeppos, with its belly and chest penetrated by the steel-element stake, said with thunderous voice:
+When Ronye shouted that, Zeppos, with its belly and chest penetrated by the steel-element stakes, said with thunderous voice:
 
 "...... It was not just you guys from Axiom Church who were doing research on Sacred Art....... His Majesty Krueger...... no, those of the oldest and most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
 
@@ -562,7 +562,7 @@ Ronye frowned feeling deep grudge, and hatred, and jealousy in his voice and ten
 
 But it was not Tiese and Ronye as individuals that Zeppos was jealous of. It was the very existence of Integrity Knights. Immortals whose Life was frozen, living for eternity ──
 
-For the emperor and senior nobility who were given the highest power a human may have and used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest and the Integrity Knights overlooking the Human World from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even emperor was not allowed to reveal antipathy.
+For the emperor and senior nobility who were given the highest power a human may have and used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest and the Integrity Knights overlooking the Human World from the top of white tower far higher than the Imperial Palaces while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even emperor was not allowed to reveal antipathy.
 
 However, Integrity Knights suffered the Integrity Knights’ troubles. Ronye knew that since entering Cathedral.
 
@@ -584,7 +584,7 @@ Black blood scattered from his mouth pronouncing curses.
 
 Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, and the other one was split in two with the sword-like hand slash by the ambassador Scheta. With skills of Ronye and the other one, it was difficult to give a fatal injury ── Kirito and others would call it "**damage**", but if one can slip through two knives and slash one of the limbs then there is a winner.
 
-But the problem was emperor Krueger whom Zeppos was trying to protect. Three minutes or more have passed since they broke into the hall, and he was still singing. The longer the Sacred Art is, the longer, more complex and more powerful effects is produced, and Ronye was not aware of any so long technique. The incantation of the Past Reflection art that Asuna used felt quite long too, but still it would have been only about two minutes.
+But the problem was emperor Krueger whom Zeppos was trying to protect. Three minutes or more have passed since they broke into the hall, and he was still chanting. The longer the Sacred Art is, the longer, more complex and more powerful effects is produced, and Ronye was not aware of any so long technique. The incantation of the Past Reflection art that Asuna used felt quite long too, but still it would have been only about two minutes.
 
 *We cannot prolong the fight with Zeppos. Rather than waiting for death of blood loss, the battle must be resolved at shortest, and then we’d stop the emperor's incantation.*
 
@@ -624,7 +624,7 @@ The Sword of the Moonlight bit deeply into the right shoulder of the former grea
 
 The upper half of the split body slid to the lower left and dropped onto the carpet with a thud. Slightly behind, the lower body also collapsed to the knees.
 
-Ronye avoided the black blood which gushed from the cut surface of the two body pieces by leaping beside.
+Ronye avoided the black blood which gushed from the cut surface of the two body pieces by leaping aside.
 
 The moment she was convinced that this time he’s dead, power left her entire body, but the battle had not ended yet. Before the incantation is completed, they had to also defeat emperor Krueger.
 
@@ -640,7 +640,7 @@ The next moment, several things happened at the same time.
 
 — Tiese exclaimed behind her,
 
-"Zeppos, do your duties!"
+"Zeppos, fulfil your duties!"
 
 — The emperor roared interrupting the cast,
 
@@ -682,7 +682,7 @@ Ronye called her best friend, resisting the numbness that was finally reaching t
 
 She wanted to continue, but her mouth wouldn’t move anymore. Tiese hugging Ronye with her left hand had thrown the sword on the floor and was searching hard in the carrying bag. Rather than defeating the emperor, she decided to cure Ronye. This decision cannot be blamed. If the situation is the opposite, Ronye would also do the same.
 
-Behind the black hood drawn down to the eyes, Krueger thinly smiled. Nothing like a sorrow for Zeppos who was supposed to be his long-time supported to die for the second time reflected in that smile.
+Behind the black hood drawn down to the eyes, Krueger thinly smiled. Nothing like a sorrow for Zeppos who was supposed to be his long-time supporter to die for the second time reflected in that smile.
 
 "**Connect All Circuit! Open Gate!**"
 
