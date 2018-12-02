@@ -35,7 +35,7 @@ That's fine, but no matter how few people were in the Собора’s ninety-fi
 
 — whispered Асуна и continued, smiling again:
 
-"Anyway, Ayuha-сан since her childhood wanted to become a doctor и it seems her plant research passion has rekindled after listening to the story that Кирито-kun managed to make Zefiria flower blooming in Северной Центория."
+"Anyway, Ayuha-сан since her childhood wanted to become a doctor и it seems her plant research passion has rekindled after listening to the story that Кирито-кун managed to make Zefiria flower blooming in Северной Центория."
 
 "Ah...... It is not advisable to compete against the work of Кирито-сенпай...."
 
@@ -348,7 +348,7 @@ Actually, she did not want to let it go so quickly, but she wouldn’t be able t
 
 — a voice from behind. Turning around in surprise, Ронье saw Кирито holding the Меч Синей Розы in his right hand, about to jump from the platform straight to the air.
 
-"Ah, hey Кирито-kun, please take me along!"
+"Ah, hey Кирито-кун, please take me along!"
 
 — shouted Асуна, leaping at him from behind и falling together with him outside. Премьер-Мечник и Вице-Премьер-Мечник disappeared in a blink of an eye, и when Ронье again looked back at Тейза, she grinned.
 

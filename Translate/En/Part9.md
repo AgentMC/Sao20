@@ -81,7 +81,7 @@ But the mountain goblins came out of the cell without showing suspicion of doubt
 
 "Proceed to that door."
 
-— said Zeppos said, pointing at the hidden door on the left side, not the right side where there was an exit to the surface. The three of them quietly obeyed and began walking. As if blocking the escape route, Zeppos followed behind.
+— Zeppos said, pointing at the hidden door on the left side, not the right side where there was an exit to the surface. The three of them quietly obeyed and began walking. As if blocking the escape route, Zeppos followed behind.
 
 The moment when the man was passing in front of a grate, Ronye could not stand it and said:
 
@@ -111,7 +111,7 @@ The figures of Zeppos and the goblins who resorted to move forward timidly disso
 
 When she responded in a whispering, Tiese touched her lips for a moment and said with tighter expression.
 
-"Kirito-senpai said that the kidnappers will commit another murder in Centoria and that he will frame the abducted goblins-san again. If so...... innocent people will be killed in Centoria again."
+"Kirito-senpai said that the kidnappers will commit another murder in Centoria and that they will frame the abducted goblins-san again. If so...... innocent people will be killed in Centoria again."
 
 "…………Yup……"
 
@@ -133,7 +133,7 @@ Prime Swordsman thought so because he could hear the voice of the murderer in As
 
 *── Goblins remain goblins until they run out of Life.*
 
-Just because the subject is different, exactly the same phrase.
+Just the subject is different, the phrase is exactly the same.
 
 That's it. Too weak for the evidence, purely circumstantial. But Ronye believed her intuition was correct.
 
@@ -153,7 +153,7 @@ Moreover, the carriage which Ronye and Tiese rode on was parked on the eastern b
 
 *It would be too naïve to think that until then nothing will happen to the goblins that were taken to the upper floor. If we do not act now, it will be too late.*
 
-But it is impossible to quietly destroy this sturdy grid. In the first place it is unknown whether it can be broken by the power of the two people, but even if we just try it, a loud sound will reach the mansion above and the emperor would notice. If so, I do not know what hostage Shimosaki will face.
+*But it is impossible to quietly destroy this sturdy grid. In the first place it is unknown whether it can be broken by the power of the two people, but even if we just try it, a loud sound will reach the mansion above and the emperor would notice. If so, I do not know what hostage Shimosaki will face.*
 
 Unable to come up with an answer, Ronye closed her eyes.
 
@@ -283,7 +283,7 @@ Ronye's Sword of the Moonlight and Tiese's sword were carelessly thrown somewher
 
 Three seconds have elapsed so far.
 
-A stone stairway extended up in the front wall. Grasping the naked sword, they rushed up skipping five steps at a time.
+A stone stairway extended up in the front wall. Grasping the naked swords, they rushed up skipping five steps at a time.
 
 The door at the end of the stairs was kicked open, revealing a storage room, bigger than the previous one. A large window, despite facing north, let in plenty of sunset-colored outside light, and it was much brighter than in a small basement room. The myriad of display shelves and armor stands around the floor and walls were all empty. When this villa was sealed off, the treasures must have been removed. The door that Ronye kicked off was disguised as a large shelf, and it would be difficult to find if one doesn’t know what to look for.
 
@@ -373,7 +373,7 @@ And the skin looking through the gaps in the leather belts was also of a strange
 
 *I think I saw this somewhere already......* While Ronye thought so, Tiese holding Shimosaki jumped through the broken window and escaped to the front yard. In order to hide Shimosaki in a safe place, she has run to the forest surrounding the mansion.
 
-*It's two to one until the she comes back. Not that it’s impossible, but I am concerned about the extraordinarily long art that emperor Krueger continues to cast over goblins lying on the floor.*
+*It's two to one until she comes back. Not that it’s impossible, but I am concerned about the extraordinarily long art that emperor Krueger continues to cast over goblins lying on the floor.*
 
 She listened carefully to the weird voice, but could not understand the meaning of a single word of a chant. However, once the operation is completed, it is certainly that some bad things will happen.
 
@@ -456,7 +456,7 @@ With a high shout, she crushed the Sword of the Moonlight down towards the cente
 
 In front of astonished Ronye, Zeppos appeared from the dissolving smoke.
 
-Most of the leather bands were burned black, and some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, and beneath the skin had a hollow enough to fir two fists. But that was it. Not a single drop of blood was flowing, and his right hand holding a large knife over his head firmly received Ronye’s sword.
+Most of the leather bands were burned black, and some parts torn apart. The most damaged was in the right chest, ragged leather bands were loosely dangling, and beneath the skin had a hollow enough to fit two fists. But that was it. Not a single drop of blood was flowing, and his right hand holding a large knife over his head firmly received Ronye’s sword.
 
 *Impossible. He is standing despite the body is dented to the degree that the lungs and heart should collapse.* The full-body blow with the Sword of the Moonlight, which had the priority of the Divine Object class, delivered by Ronye, who despite being an apprentice, belonged to Integrity Knights, was stopped by one hand of a great chamberlain who wasn’t even a guard.
 
@@ -526,7 +526,7 @@ But that possibility suggested a new mystery.
 
 "Minion...... It is a monster that cannot even speak. But he ...!"
 
-When Ronye shouted that, Zeppos, with its belly and chest penetrated by the steel-element stake, said with thunderous voice:
+When Ronye shouted that, Zeppos, with its belly and chest penetrated by the steel-element stakes, said with thunderous voice:
 
 "...... It was not just you guys from Axiom Church who were doing research on Sacred Art....... His Majesty Krueger...... no, those of the oldest and most precious bloodline of the four imperial houses have been running a countless study in order to complete a certain Art since hundreds of years ago..."
 
@@ -562,7 +562,7 @@ Ronye frowned feeling deep grudge, and hatred, and jealousy in his voice and ten
 
 But it was not Tiese and Ronye as individuals that Zeppos was jealous of. It was the very existence of Integrity Knights. Immortals whose Life was frozen, living for eternity ──
 
-For the emperor and senior nobility who were given the highest power a human may have and used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest and the Integrity Knights overlooking the Human World from the top of white tower far higher than the Imperial Palace while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even emperor was not allowed to reveal antipathy.
+For the emperor and senior nobility who were given the highest power a human may have and used to live a life full of luxury, there perhaps was nobody they could be more jealous of than the Highest Priest and the Integrity Knights overlooking the Human World from the top of white tower far higher than the Imperial Palaces while enjoying their eternal lives, which they could never gain no matter how much desired. Moreover, because of the Taboo Index which forces submission to the Axiom Church, even emperor was not allowed to reveal antipathy.
 
 However, Integrity Knights suffered the Integrity Knights’ troubles. Ronye knew that since entering Cathedral.
 
@@ -584,7 +584,7 @@ Black blood scattered from his mouth pronouncing curses.
 
 Two of the three minions that appeared in the Obsidia castle were shattered in pieces by the fist of general commander Isukan, and the other one was split in two with the sword-like hand slash by the ambassador Scheta. With skills of Ronye and the other one, it was difficult to give a fatal injury ── Kirito and others would call it "**damage**", but if one can slip through two knives and slash one of the limbs then there is a winner.
 
-But the problem was emperor Krueger whom Zeppos was trying to protect. Three minutes or more have passed since they broke into the hall, and he was still singing. The longer the Sacred Art is, the longer, more complex and more powerful effects is produced, and Ronye was not aware of any so long technique. The incantation of the Past Reflection art that Asuna used felt quite long too, but still it would have been only about two minutes.
+But the problem was emperor Krueger whom Zeppos was trying to protect. Three minutes or more have passed since they broke into the hall, and he was still chanting. The longer the Sacred Art is, the longer, more complex and more powerful effects is produced, and Ronye was not aware of any so long technique. The incantation of the Past Reflection art that Asuna used felt quite long too, but still it would have been only about two minutes.
 
 *We cannot prolong the fight with Zeppos. Rather than waiting for death of blood loss, the battle must be resolved at shortest, and then we’d stop the emperor's incantation.*
 
@@ -624,7 +624,7 @@ The Sword of the Moonlight bit deeply into the right shoulder of the former grea
 
 The upper half of the split body slid to the lower left and dropped onto the carpet with a thud. Slightly behind, the lower body also collapsed to the knees.
 
-Ronye avoided the black blood which gushed from the cut surface of the two body pieces by leaping beside.
+Ronye avoided the black blood which gushed from the cut surface of the two body pieces by leaping aside.
 
 The moment she was convinced that this time he’s dead, power left her entire body, but the battle had not ended yet. Before the incantation is completed, they had to also defeat emperor Krueger.
 
@@ -640,7 +640,7 @@ The next moment, several things happened at the same time.
 
 — Tiese exclaimed behind her,
 
-"Zeppos, do your duties!"
+"Zeppos, fulfil your duties!"
 
 — The emperor roared interrupting the cast,
 
@@ -682,7 +682,7 @@ Ronye called her best friend, resisting the numbness that was finally reaching t
 
 She wanted to continue, but her mouth wouldn’t move anymore. Tiese hugging Ronye with her left hand had thrown the sword on the floor and was searching hard in the carrying bag. Rather than defeating the emperor, she decided to cure Ronye. This decision cannot be blamed. If the situation is the opposite, Ronye would also do the same.
 
-Behind the black hood drawn down to the eyes, Krueger thinly smiled. Nothing like a sorrow for Zeppos who was supposed to be his long-time supported to die for the second time reflected in that smile.
+Behind the black hood drawn down to the eyes, Krueger thinly smiled. Nothing like a sorrow for Zeppos who was supposed to be his long-time supporter to die for the second time reflected in that smile.
 
 "**Connect All Circuit! Open Gate!**"
 

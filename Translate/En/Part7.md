@@ -95,7 +95,7 @@ It was clear that the subject of the words were missing goblins. Asuna instantly
 
 "Yup, I think that it is impossible to go through the South Gate, but...... what about other gates?"
 
-She stared at the face of Kirito who quickly responded with another question.
+She stared at the face of Kirito and quickly responded with another question.
 
 "... You mean that the carriage has crossed the Timeless Wall and moved to Eastern Centoria or Western Centoria.......?"
 
@@ -109,7 +109,7 @@ Even Asuna who have seen a number of virtual worlds, could not help feeling awe 
 
 They said, Highest Priest Administrator had made it appear overnight with Sacred Art, but even with the unlimited terrain manipulation ability granted to the Stacia account, it was absolutely impossible to imitate the same. The enormous amount of data flowing into the fluctlight could not be tolerated, it would result in unconsciousness after making a wall of about only ten kilometers.
 
-Because of that perception, Asuna has never imagined someone could be able to trespass the Timeless Wall, of walking on top of it like Kirito did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain goblins passed the wall.
+Because of that perception, Asuna has never imagined someone could be able to trespass the Timeless Wall, or walk on top of it like Kirito did yesterday. Therefore, from the very beginning she eliminated the possibility that the carriage containing the mountain goblins passed the wall.
 
 "... In order to pass through the four gates on the Timeless Wall, it is necessary to have a pass issued by Cathedral or a day permit issued by the administration of one of the four empires... but......."
 
@@ -213,7 +213,7 @@ Having efficiently pinned down the fidgeting Prime Swordsman, Fanatio walked up 
 
 *Normally Tiese or Ronye take care of little Berchie during meetings, but if they are not in the Cathedral......* Asuna thought, and at that moment.
 
-As if waiting for Fanatio to disappear, Kirito said:
+After waiting for Fanatio to disappear, Kirito said:
 
 "Ehm....... I am not going to join the search, but can I just go outside for a moment?"
 
@@ -275,7 +275,7 @@ Actually, Asuna had heard about the incident in the middle of the Foreign World 
 
 At the time when the sharp rise using six elements began to decelerate, the remaining four were simultaneously released. The disk rapidly accelerated again, and Kirito with "Hye-e-e!!!" stuck to Asuna’s back. Without teasing the poor fellow any more, she just stepped on the floor pedal to lock the disc to the wall as they arrived at the ninetieth floor.
 
-In the past, the elevator shaft was only connecting floors from fiftieth to eightieth, but in conjunction with the automation, the shaft from the first to the fiftieth floor was newly established, as well as an extension of the shaft to the ninetieth. The reason for that was, of course, that the large public bath on this floor was opened to all the staff, but since there was no wide gaps in the outer wall on this floor, they run to the 95th floor, the "Lookout of the Morning Star" by the stairs.
+In the past, the elevator shaft was only connecting floors from fiftieth to eightieth, but in conjunction with the automation, the shaft from the first to the fiftieth floor was newly established, as well as an extension of the shaft to the ninetieth. The reason for that was, of course, that the large public bath on this floor was opened to all the staff; since there were no wide gaps in the outer wall on this floor, they run to the 95th floor, the "Lookout of the Morning Star" by the stairs.
 
 Yesterday they had lunch here with Ronye, Tiese and chef Hana who joined them, but as the evening was approaching, the hanging flower pots looked differently. The inclined sunlight entering directly from the outside appeared reminiscent — of course, at the much smaller scale — of the atmosphere of evening scenes in the floating castle of Incrad.
 
@@ -313,7 +313,7 @@ As if he had been waiting for it, the field of vision suddenly gleamed bright gr
 1. <a name="Prim1"></a>Prefecture in the northern Honshu, 23% of it's territory consists of natural parks.
 2. <a name="Prim2"></a>軽装 could mean both lightweight equipment, say, leather armor, and light dress. Choose your poison.
 3. <a name="Prim3"></a>Originally 空振り, “karaburi”, coming from 空振り三振 “karaburi san-shin”, which means “strikeout”. But since shortening strikeout to “strike” would rather associate with corresponding bowling term, which has opposite meaning, I just picked up something applicable by nature, “no-hit game”.
-4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsikigake name of which does NOT end with -i.
+4. <a name="Prim4"></a>汐撫, “smooth current”, “tide glider”, etc. Remarkably, it’s the 2nd dragon after Tsukigake name of which does NOT end with -i.
 <!--5. <a name="Prim5"></a>.
 6. <a name="Prim6"></a>.
 7. <a name="Prim7"></a>.

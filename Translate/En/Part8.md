@@ -53,7 +53,7 @@ Unlike the garden of "Cathedral" where Tsukigake lived or the grassland around t
 
 Running around a thick tree, Tsukigake's keen nose caught something smelly, some rotten smell.
 
-A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp and sticky, unlike the soft soil of the flowerbed in the front of the Cathedral garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely he couldn’t see anything at the bottom.
+A part of the ground surrounded by winding trees was dug out almost entirely. The black soil was cold, damp and sticky, unlike the soft soil of the flowerbed in the front of the Cathedral garden. The odor seemed to drift from the big hole, but even after inspecting the pit closely she couldn’t see anything at the bottom.
 
 "Ku-ru……"
 
@@ -79,9 +79,9 @@ If the memory of what she had seen from the window of the horse-drawn carriage w
 
 Suddenly his foreleg sunk into the ground, so Tsukigake fell somersault and rolled. After several turns the rolling finally stopping, the back touching the ground felt submerging in cold water. Sharp pain echoed from fresh wounds where blood has just stopped, thin cry leaked from the back of the throat.
 
-However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Tsukigake, born in Cathedral, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, he stretched and turned the neck carefully around to check the surroundings again.
+However, it wasn’t possible lying down forever. The area was a wetland covering the vast grounds produced with water flowing out of the lake. Tsukigake, born in Cathedral, has never entered wetlands before, but there was an instinctive knowledge that if you are immersed in cold water for long, the Life will decrease faster. Reanimating the body, she stretched and turned the neck carefully around to check the surroundings again.
 
-His front and left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
+Her front and left were blocked by wide wetlands, the dry ground was only on the right side. However, it was completely unknown how far the wetlands extend. If wetlands continue all the way to the white wall visible in that direction, a lot of time will be wasted.
 
 "Ku-ru-ru..."
 
@@ -99,7 +99,7 @@ Looking over the elliptical body of the brown rat having no boundary between the
 
 Whether or not Tsukigake was able to communicate a request to wait ─ nobody can say for sure, but the rat stopped running away leaving the long nose where a beard grew sticking out. After two seconds, it fearfully shoved out the whole head.
 
-*If I scare it again — it will run away at once.* Tsukigake lowered her body as low as possible and squeaked in low voice pretending that she is not going to eat it.
+*If I scare it again — it will run away at once.* Tsukigake lowered her body as low as possible and squeaked in low voice pretending that she was not going to eat it.
 
 "Ru-ru-ru-ru......"
 
@@ -349,7 +349,7 @@ Lead hanaguma released a ferocious scream as soon as it saw the corpse of two co
 
 "Gyu-a-a-a-a-u!!!"
 
-Even though she did not understand the words, Tsukigake felt a lot of anger in that roar. At least to show his fighting spirit is still not defeated, he pulled together the power left behind and replied:
+Even though she did not understand the words, Tsukigake felt a lot of anger in that roar. At least to show her fighting spirit is still not defeated, she pulled together the power left behind and replied:
 
 "Ga-r-r-r-r-r!!!"
 
@@ -361,7 +361,7 @@ A short barking of lead hanaguma sounded and two animals at the same time came j
 
 The weapon of hanagumas were tough claws of all legs. Tsukigake also had the same main weapon, but in addition to it there was a long and dexterous tail.
 
-Pretending to counterattack with biting, he suddenly rotated the body and hit two of them together with a tail. Although tail feathers she used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, and rammed into a wall of millet. It was withered and therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle and wriggle in the air.
+Pretending to counterattack with biting, she suddenly rotated the body and hit two of them together with a tail. Although tail feathers she used to be proud of were scattered, hanagumas also flew away leaking a shrill voice, and rammed into a wall of millet. It was withered and therefore caught bodies with hangnails appearing on the everted stems crust, leaving them to struggle and wriggle in the air.
 
 She did not anticipate this result, but that definitely was the last chance. Tsukigake kicked off the ground and attacked lead hanaguma from the front.
 
@@ -383,7 +383,7 @@ But Tsukigake could not let to be killed here and eaten. *In the dungeon of the 
 
 Unexpectedly, Tsukigake felt something burning in the back of her throat.
 
-Something hot inflated and spiraled up from the deeps of her body. He could not keep it down.
+Something hot inflated and spiraled up from the deeps of her body. She could not keep it down.
 
 Tsukigake unleashed the heat still clung to the jaw of the lead hanaguma. Countless sparks burst from the joint of two jaws, burning fur of both. Most of the uncontrolled flame and heat flew into the body of hanaguma, causing fatal damage.
 
