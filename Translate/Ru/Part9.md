@@ -690,49 +690,47 @@
 
 Ронье совершенно не поняла значение этой фразы. Но словно бы влекомая неким инстинктом, она с трудом повернула немеюшую шею.
 
-## Продолжение следует...
+Высокий потолок большого зала был покрашен чёрным, а под ним висели декоративные люстры, на вид весьма недешёвые, но не горевшие. Однако, взгляд Ронье как магнитом притянуло к центру потолка — круглой дыре прямо над лежавшими гоблинами.
 
-<!--The high ceiling of the large hall was painted black и there were decorative chandeliers hanging, that seemed to be expensive, but not lit. However, Ронье's eyes were drawn to the middle of the ceiling — to a circular hole just above the lying гоблинов.
+*Диаметр около 30 ценов. Сработано неаккуратно, форма неровная, и окружающие доски оставлены поцарапанными. Похоже, что продолбили чем-то вроде топора прямо через пол второго этажа.*
 
-*The diameter is about 30 cen. It wasn’t a neat job, the shape is distorted, и the wood is left scratched as it was. Perhaps it was a rough digging through the second-floor room floor with something like an ax.*
+*И для чего подобное может......* замешательство немедленно сменилось дрожью.
 
-*For what such a thing could......* the confusion immediately changed to shivering.
+Потому что в глубине дыры колыхалось нечто грязно-чёрное. Тягучее, словно глина. Оно сильно напоминало глиноподобный материал, из которого было сделано мёртвое тело Зеппоса.
 
-Because something filthy-black was shaking at the back of the hole. Highly viscous, like mud. It closely resembled the clay-like material that the body of dead Зеппос was made of.
+Ронье и Тейза обе смотрели вверх, наблюдая как чёрная глина или, скорее, жижа полезла из дыры. Она двигалась, словно с силой чем-то выдавливаемая, или будто бы она сама выползала наружу, обладая собственным сознанием.
 
-Ронье и Тейза both looked up и watched the black clay, or mucus, drooped down out of the hole. It moved as if being extruded with a strong pressure, or as if it crawling out by its own will.
+Жида надулась, как воздушный шар, зарябила, задрожала — и с ужасным звуком взорвалась.
 
-Mucus swelled like a balloon, waved, wriggled — и burst with a horrible sound.
-
-In front of their eyes, the flood of mucus fell on the floor like a waterfall instantly sinking mountain гоблинов underneath. The stream ended after the heap of mucus reached the height of more than 2 mel, but the wriggling where the caught creatures were buried did not stop. It continued trembling, waving, seething with гоблинов inside.
+На их глазах поток жижи водопадом пролился на пол, мгновенно погребя гоблинов под собой. Поток прекратился только когда гора из жижи достигла высоты в 2 мела, но дрожание в той части, где под её слоем были скрыты живые существа, не прекращалось. Жижа с гоблинами внутри продолжала вздрагивать, волноваться и бурлить.
 
 "............!!!"
 
-— Тейза exclaimed и quickly retreated while holding Ронье.
+— Тейза вскрикнула и спешно отступила с Ронье в руках.
 
-The latter could only desperately clench the handle of beloved Меч with her right hand which had already lost sensitivity as the influence of the poison spread over the entire body. If what knife was covered with was a lethal poison, it is supposed that her life was rapidly decreasing, but the numb body could not even feel pain.
+Последняя могла лишь отчаянно сжимать рукоять своего любимого меча правой рукой, что уже почти потеряла всякую чувствительность под влиянием яда, распространившегося по всему телу. Если то, чем был покрыт нож, было смертоносным ядом, её Жизнь должна была сейчас стремительно падать, но онемевшее тело даже боли уже не чувствовало.
 
-Despite understanding the need to use detoxification procedure immediately, Ронье could not take her eyes off the wrinkling black mucus.
+Хоть и понимая, что нужно срочно начать лечение, Ронье не могла оторвать взгляд от морщинистой горы чёрной жижи.
 
-The mucus which was an amorphous heap split into three parts after some more trembling. It spread over the floor reaching the ring of candles, и as it absorbed them, flames disappeared one after another.
+Которая, в свою очередь, ещё немного подрожав, разделилась из аморфной кучи на три части. Она растеклась по полу, достигнув кольца свечей, и огоньки пламени гасли один за другим, когда свечи оказывались залиты.
 
-The only light illuminating the hall that moment were sunset rays hardly flowing in through the window Тейза broke, и also some from the corridor through the big door Ронье kicked open. Both were weak и hardly reached the center of the hall.
+Всем светом, что освещал зал в тот момент, был свет заката, с трудом проникавший через разбитое Тейзой окно, и ещё совсем немного попадало из коридора через распахнутую широкую дверь, которую Ронье распахнула пинком ноги. Оба источника были слабые и едва достигали середины зала.
 
-The two watched, stunned, as the mucus continued to change into a human shape after becoming the three huge shadows.
+Девушки зачарованно наблюдали за тем, как масса из трёх огромных теней начала обретать черты человеческих фигур.
 
-Strong upper body, swollen straw rope-like muscles. Oddly long arms. Two legs bent like goats’ ones. The wings folded on the back, и the tail hanging to the floor.
+Крепкое туловище, бугрящиеся мышцы, крепкие словно плетёные канаты. Странно длинные руки. Две выгнутые подобно козлиным ноги. На спине сложены крылья, а к полу свисает хвост.
 
-It closely resembled the figures of minion seen at the Obsidia Castle. But there was one important difference.
+Это было очень похоже на фигуры недавних миньонов из замка Обсидия. Но было одно важное отличие.
 
-The original minion had a circular mouth at the tip of a long hagfish-like<sup><a href="#Prim5">5</a></sup> head, и two round eyes are lined up one on each side. But the head of a monster standing in front of them was much closer to humans, with a sharp nose и pointed ears, и two half-closed eyes.
+Настоящие миньоны обладали круглым ртом на кончике длинной, как у угря<sup><a href="#Prim5">5</a></sup>, головы, и двумя круглыми глазами, расставленными по сторонам. Но голова чудовища, стоящего перед ними, гораздо больше напоминала человеческую, обладая чётко выраженным носом, заострёнными ушами и двумя полу-прикрытыми глазами.
 
-"That face ............ гоблинов’............?"
+"Это лицо............ гоблинское............?"
 
-— Тейза muttered with trembling voice. Indeed, the face of the monster closely resembled mountain гоблинов, but there were no rat-like teeth. Countless fangs stuck out of a wide mouth stretching between two sides of a bald head.
+— пробормотала Тейза дрогнувшим голосом. И вправду, лицо монстра сильно напоминало горных гоблинов, разве что не было передних резцов как у крысы. Вместо них из широкого рта, растянувшегося от уха до уха по лысой голове, торчали бесчисленные клыки.
 
-Unexpectedly, Зеппос’ words he said a few minutes ago echoed in her mind:
+Неожиданно вспомнились слова, которые Зеппос произнёс несколько минут назад:
 
-*── Because it is a perfect match for гоблинов combat training, without the need to pass that hidden passage...*
+*── Ведь ты отлично подойдёшь для проверки гоблинов боем, и при этом по потайному ходу идти не нужно...*
 
 For these three minions in front of them, or rather for the three mountain гоблинов transformed by the Император's technique и the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of your body would be as long as two и a half mels, their heads would reach the ceiling if they fully extend the bent legs.
 
@@ -1399,8 +1397,8 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 3. <a name="Prim4"></a>Если вы в замешательстве не меньше Ронье, то вот: [Камергер](https://ru.wikipedia.org/wiki/Камергер). Ну а "оставить дверь незапертой" - это отсылка к тому, что во всех странах эта должность ассоциировалась с крайне ограниченным доступом в монаршии покои, и соответственно, с ключом от оных, либо же от всего дворца. Иными словами, должность этого человека по определению — держать двери закрытыми.
 3. <a name="Prim5"></a>В оригинале тут "диск" (円盤). Однако, вероятно это пропуск редактора, поскольку дальше по тексту подобный объект всегда называют "кольцо" (指輪), и упоминается, что это ювелирное изделие.
 4. <a name="Prim6"></a>_Connect All Circuit! Open Gate!_ Здесь: "Соединить всю схему! Открыть заслонку!"
-<!--4. <a name="Prim7"></a>[Numa-unagi](https://en.wikipedia.org/wiki/Inshore_hagfish).
-5. <a name="Prim8"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
+4. <a name="Prim7"></a>В оригинале - вполне конкретный вид угря, [Нума-унаги](https://en.wikipedia.org/wiki/Inshore_hagfish), но русского описания сего чуда я не нашёл.
+<!--5. <a name="Prim8"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
 6. <a name="Prim9"></a>[Katashiro](http://yokai.com/katashiro/).
 7. <a name="Prim10"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
 8. <a name="Prim11"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
