@@ -59,9 +59,9 @@ On the other hand, Ронье и Тейза, after getting scolded by knights le
 
 Formal appointment was scheduled to be in early March after the Liberation Memorial Festival, but they were already given the hint on knight numbers.
 
-Following the knight Eldrie Синтез Thirty-One who died a noble death at the time of Войны с Внешним Миром, Тейза was given the number 32. и Ронье got 33.
+Following the knight Eldrie Синтезис Thirty-One who died a noble death at the time of Войны с Внешним Миром, Тейза was given the number 32. и Ронье got 33.
 
-According to the tradition of Рыцари Целостности, they both would have to throw away their family names, but "**Синтез**" is a sacred word meaning "a person who received the Синтез ritual", so after discussion with Кирито и Асуна, the two who were not synthesized, were left to only add the number to their names. This way, the knights Тейза Shtolienen Thirty-Two и Ронье Arabel Thirty-Three were born.
+According to the tradition of Рыцари Целостности, they both would have to throw away their family names, but "**Синтез**" is a sacred word meaning "a person who received the Синтезис ritual", so after discussion with Кирито и Асуна, the two who were not synthesized, were left to only add the number to their names. This way, the knights Тейза Shtolienen Thirty-Two и Ронье Arabel Thirty-Three were born.
 
 After fighting with the Император и Зеппос, the equipment control authority of the two rose to 40, which would be totally insufficient for a member of the Order, but Ронье did not feel that they are going to be regular knights anyway.
 
@@ -222,7 +222,7 @@ When Кирито said so, Тейза shivered with the whole body. She grasped 
 
 Then Кирито closed the eyes for a moment и slowly shook his head:
 
-"...... Even if Я can hear Юдзио's voice because of some form of an art, it cannot be said that it would be the real Юдзио. Just like Император Крюгер who revived as a minion was not the real Император....... Five floors above this place, on the top floor of the Собора, Юдзио died by the hand of the Первосвященник while attacking her. His soul, along with the Алиса’s soul consisting of her childhood memories taken away during the Синтез ritual, are now gone. After that Юдзио’s memory stayed in the Меч which helped me a number of times, but... in the battle with Император Vector, it finally burned out......"
+"...... Even if Я can hear Юдзио's voice because of some form of an art, it cannot be said that it would be the real Юдзио. Just like Император Крюгер who revived as a minion was not the real Император....... Five floors above this place, on the top floor of the Собора, Юдзио died by the hand of the Первосвященник while attacking her. His soul, along with the Алиса’s soul consisting of her childhood memories taken away during the Синтезис ritual, are now gone. After that Юдзио’s memory stayed in the Меч which helped me a number of times, but... in the battle with Император Vector, it finally burned out......"
 
 Кирито's words were comforting but cruel at the same time. Тейза slowly dropped her shoulders и muttered:
 

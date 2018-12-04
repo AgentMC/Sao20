@@ -732,7 +732,7 @@ Unexpectedly, Zeppos’ words he said a few minutes ago echoed in her mind:
 
 *── Because it is a perfect match for goblins combat training, without the need to pass that hidden passage...*
 
-For these three minions in front of them, or rather for the three mountain goblins transformed by the emperor's technique and the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of your body would be as long as two and a half mels, their heads would reach the ceiling if they fully extend the bent legs.
+For these three minions in front of them, or rather for the three mountain goblins transformed by the emperor's technique and the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of their bodies would be as long as two and a half mels, their heads would reach the ceiling if they fully extend the bent legs.
 
 *Zeppos ─ perhaps, also the emperor ─ were revived as a humanoid minions by embedding their dead corpses in clay after the Rebellion of Four Empires. And the three goblins were taken into the clay alive and transformed into huge minions.  
 There must be someone further standing in the shadows of the two phenomena. Someone who used the remnants to revive the emperor and the other one, and taught them minions manufacturing method. And that person must be the key to a kidnapping incident in Obsidia Castle and a series of events in Human World.  
@@ -751,21 +751,21 @@ As if reading the doubt in the eyes, her best friend whispered again:
 
 The other one agreed solely by moving her eyes.
 
-Integrity Knight Linel Synthesis Twenty-Eight and her fellow Fizel Synthesis Twenty-Nine were the main characters of a story of how they tried to paralyze Kirito and Yujio and get them kill by poison sword. Despite being reliable senior knights, they used to share knowledge somewhat different from the other knights, and probably that was the source from which Tiese may have learned about poison sword.
+Integrity Knight Linel Synthesis Twenty-Eight and her fellow Fizel Synthesis Twenty-Nine were the main characters of a story of how they tried to paralyze Kirito and Yujio and get them killed by poison sword. Despite being reliable senior knights, they used to share knowledge somewhat different from the other knights, and probably that was the source from which Tiese may have learned about poison sword.
 
 Hardly moving the lips that just got barely relieved from paralysis, Ronye whispered:
 
-"Tiese...... that Minion, do not kill. Need to save the goblins-san."
+"Tiese...... that minions, do not kill. Need to save the goblins-san."
 
 "...... Got it."
 
 Tiese nodded deeply and glanced at the broken window:
 
-"But it is impossible to dissolve three Minion bodies with light-element art. As soon as Ronye can move, we will escape from here."
+"But it is impossible to dissolve three minion bodies with light-element art. As soon as Ronye can move, we will escape from here."
 
 "……but……"
 
-Emperor and minion may disappear if Ronye and she escape. Minion can fly in the sky even if it cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
+Emperor and the minions may disappear if Ronye and herself escape. Minions can fly in the sky even if they cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
 
 "I know, but we have no choice."
 

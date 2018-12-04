@@ -732,40 +732,40 @@
 
 *── Ведь ты отлично подойдёшь для проверки гоблинов боем, и при этом по потайному ходу идти не нужно...*
 
-For these three minions in front of them, or rather for the three mountain гоблинов transformed by the Император's technique и the power of black mucus, it was certainly impossible to go down the stairs to the dungeon anymore. The length of your body would be as long as two и a half mels, their heads would reach the ceiling if they fully extend the bent legs.
+Для этих стоящих перед ними трёх миньонов, или скорее для трёх горных гоблинов, обращённых техникой Императора и силой чёрной жижи, совершенно точно было бы уже невозможно спуститься по ступенькам вниз в темницу. Их тела высились на все два с половиной мела, а стоит им распрямить согнутые ноги — и головы бы достигли потолка.
 
-*Зеппос ─ perhaps, also the Император ─ were revived as a humanoid minions by embedding their dead corpses in clay after the Rebellion of Four Империиs. и the three гоблинов were taken into the clay alive и transformed into huge minions.  
-There must be someone further standing in the shadows of the two phenomena. Someone who used the remnants to revive the Император и the other one, и taught them minions manufacturing method. и that person must be the key to a kidnapping incident in Obsidia Castle и a series of events in Мира Людей.  
-But, rather than that, we should think about how to restore the гоблинов.  
-If we destroy minions in a normal way, гоблинов will definitely die as well. It is necessary to remove only the black clay without hurting them who still should be inside. It may be possible if we hit the anti-attribute, light element, in large amounts, but as much as 10 or even 20 might not be enough. Moreover, there is probably not much sacred power remaining in this hall.*
+*Зеппоса ─ наверное, Императора тоже ─ воскресили после Восстания Четырёх Империй в виде человекоподобных миньонов, внедрив их трупы в глину. А троицу гоблинов погрузили в глину заживо и превратили в этих огромных миньонов.  
+Должен быть кто-то ещё, стоящий за этими двумя феноменами. Кто-то, кто воспользовался их с Императором останками для воскрешения, и кто научил их производству миньонов. И этот человек будет ключом к разгадке и инцидента с похищением в замке Обсидия, и событиям, происходящим в Мире Людей.  
+Но вместо этого всего, нужно думать, как вернуть гоблинов.  
+Если миньонов уничтожить по-обычному, гоблины тоже наверняка умрут. Необходимо только снять слой глины, не навредив тем, кто внутри. Это может получиться если ударить большим анти-атрибутом, световым элементом, притом в большом количестве, но ни десяти, ни двадцати может быть недостаточно. К тому же, в этом зале может уже и не осталось достаточно Священной Силы.*
 
-"Ронье, drink this."
+"Ронье, выпей это."
 
-Suddenly, a small bottle was brought to her mouth accompanied with such a whisper. She thought it was an elixir to restore Life, but the smell was different. While Ронье thought about all those things, Тейза seemed to have made antidote with available media и sacred art.
+Внезапно, под тихий шёпот ей ко рту поднесли маленькую бутылочку. Ей подумалось, что это был эликсир, восстанавливающий Жизнь, но запах отличался. Пока Ронье обо всём этом размышляла, Тейза, похоже, сделала антидот из имеющихся материалов и Священного Искусства.
 
-The liquid that flowed into her mouth was intensely bitter, but she felt that the numbness of the tongue melted after drinking just a single drop. But how did Тейза identify the kind of poison in Ронье's body?
+Потёкшая ей в рот жидкость была безумно горькой, но после первой же капли она почувствовала как онемение покидает язык. Но как Тейза определила вид яда в теле Ронье?
 
-As if reading the doubt in the eyes, her best friend whispered again:
+Словно прочтя в глазах сомнение, её лучшая подруга снова прошептала:
 
-"That knife was probably the ‘poisonous Ruberyl steel’. I’ve never seen the real thing before, but it was similar to the color Linel told."
+"Этот нож наверняка был ‘ядовитой Рубериловой сталью’. Я раньше никогда не видела такую штуку по-настоящему, но по цвету было очень похоже на то, что рассказывала Линель."
 
-The other one agreed solely by moving her eyes.
+Другая согласилась, поведя одними лишь глазами.
 
-Рыцарь Целостности Linel Синтез Twenty-Eight и her fellow Fizel Синтез Twenty-Nine were the main characters of a story of how they tried to paralyze Кирито и Юдзио и get them kill by poison Меч. Despite being reliable senior knights, they used to share knowledge somewhat different from the other knights, и probably that was the source from which Тейза may have learned about poison Меч.
+Рыцарь Целостности Линель Синтезис Твенти-Эйт и её подруга Физель Синтезис Твенти-Найн были главными героями рассказа о том, как они пытались парализовать Кирито и Юдзио и убить их ядовитым мечом. Они хоть и были надёжными старшими рыцарями, но обычно обладали знаниями несколько отличавшими их от остальных рыцарей, и наверное благодаря этому Тейза и узнала об ядовитом мече.
 
-Hardly moving the lips that just got barely relieved from paralysis, Ронье whispered:
+Едва двигая губами, которые только-только начал отпускать паралич, Ронье прошептала:
 
-"Тейза...... that Minion, do not kill. Need to save the гоблинов-сан."
+"Тейза...... эти миньоны, не убивай. Надо спасти гоблинов-сан."
 
-"...... Got it."
+"...... Ясно."
 
-Тейза nodded deeply и glanced at the broken window:
+Тейза согласно кивнула и бросила взгляд в разбитое окно:
 
-"But it is impossible to dissolve three Minion bodies with light-element art. As soon as Ронье can move, we will escape from here."
+"Но растворить тела аж трёх миньонов с помощью световых элементов не выйдет. Как только, Ронье, сможешь двигаться, мы смоемся отсюда."
 
-"……but……"
+"…… Но……"
 
-Император и minion may disappear if Ронье и she escape. Minion can fly in the sky even if it cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
+Император и миньоны могут исчезнуть если они с Ронье сбегут. Minions can fly in the sky even if it cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
 
 "Я знаю, но у нас нет другого выхода."
 
