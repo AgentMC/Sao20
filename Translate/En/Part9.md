@@ -771,7 +771,7 @@ Emperor and minion may disappear if Ronye and she escape. Minion can fly in the 
 
 With a painful look, Tiese brought the mouth close to Ronye's ears and said:
 
-"If the art does not work, and we have to use a sword...... perhaps we won’t be able to slay that Minion."
+"If the art does not work, and we have to use swords...... perhaps we won’t be able to slay those minions."
 
 "............!!"
 
@@ -787,7 +787,7 @@ The Integrity Knight team won’t be able to fight back "sub-humans forced to tr
 
 No, even more terrible things can happen than that.
 
-Emperor Krueger and Zeppos abducted the mountain goblins and transformed them into minions in order to cause a new war between Human World and Dark Territory. If these minions attack Centoria and after a large number of casualties it turns out that their actual identities are goblins, the influence of that would not be limited to the Yazen’s murder scale. The anger and hatred far exceeding the ones of former Foreign World War would rise and the people of Human World will have the genuine wish to begin a reverse invasion into the Dark Territory.
+Emperor Krueger and Zeppos abducted the mountain goblins and transformed them into minions in order to cause a new war between Human World and Dark Territory. If these minions attack Centoria and after a large number of casualties it turns out that their actual identities are goblins, the impact of that would not be limited to the Yazen’s murder scale. The anger and hatred far exceeding the ones of former Foreign World War would rise and the people of Human World will have the genuine wish to begin a reverse invasion into the Dark Territory.
 
 In order to avoid that definite catastrophe, some knights may be able to break the seal of the right eye and fight minions.
 
@@ -809,7 +809,7 @@ Whether he had been exhausted by a long-time high-level incantation, he stuck on
 
 And the Emperor moved as if he felt Ronye’s determination. He staggeringly stood up, passed between minions which remained in the standby posture, and stopped before Ronye.
 
-"...... I did not recognize the style, but it was a splendid secret move, girl."
+"...... I did not recognize the style, but it was a splendid secret move back then, girl."
 
 Ronye was unable to respond quickly to that surprising words she did not expect. But the emperor did not seem to care, he kept talking in crackling voice from behind the hood:
 
@@ -871,7 +871,7 @@ As he said so, satisfied Krueger stroked Minion's powerful arm with his left han
 
 Ronye desperately thought while startle and shock quickly converted to a saturated horror in her head.
 
-*Katashiro, that badge that came out from the head of Zeppos. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
+*Katashiro, that ring that came out from the head of Zeppos. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
 The emperor Hozaica, whose arms were cut off by ambassador Scheta and Ronye, threw himself out of the window on the top floor of Obsidia Castle. The corpse was not found not because he flew away or ran, the katashiro was destroyed when he fell, and the clay body melted.  
 But if we believe in Krueger's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Norlangarth empire and gave Krueger the memory and knowledge of Hozaica ──  
 If the guess so far is correct.  
@@ -887,7 +887,7 @@ Ronye strongly clasped the beloved sword with the right hand, already purified f
 
 "After slashing the emperor, goblins may return to the original."
 
-It was a slight hope, but at least they can earn some time if there is no one to control them.
+It was a weak hope, but at least they can earn some time if there is no one to control them.
 
 The problem was that the poison hasn’t come out of the wounds above the right knee and right instep. Strong posture was essential for secret sword moves, as well as to release several whole-body blows. Still there was no choice but to try.
 

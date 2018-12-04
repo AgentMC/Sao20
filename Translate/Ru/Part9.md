@@ -767,161 +767,163 @@ Hardly moving the lips that just got barely relieved from paralysis, Ронье 
 
 Император и minion may disappear if Ронье и she escape. Minion can fly in the sky even if it cannot go downstairs to the dungeon. Tracking is impossible without a dragon.
 
-"Я know, but we have no choice."
+"Я знаю, но у нас нет другого выхода."
 
-With a painful look, Тейза brought the mouth close to Ронье's ears и said:
+Тейза приблизила губы к уху Ронье и с болью в голосе сказала:
 
-"If the art does not work, и we have to use a Меч...... perhaps we won’t be able to slay that Minion."
+"Если Искусство не сработает и придётся использовать мечи...... наверное мы не сможем победить тех миньонов."
 
 "............!!"
 
-Ронье sharply inhaled.
+— резко втянула воздух Ронье.
 
-That was exactly right. Mountain гоблинов are integral parts of minions и they could be killed by slashing through; и even if they with Ронье decide that they should do so, there is high possibility that their bodies won’t obey the intention. The "seal of the right eye" ──
+Всё было именно так. Горные гоблины являлись основой миньонов, и если рубить насквозь, то их можно было убить; и даже если они с Ронье решат что это следует сделать, высока вероятность, что их тела просто не подчинятся этому намерению. Потому что "печать правого глаза" ──
 
-However, it was not limited to them. Other Рыцари Целостности, и even guards of the Мира Людей Defense Army who share the same iron rule: "In order to protect the peace between Мира Людей и Тёмной Территории, we must never injure a sub-human"<sup><a href="#Prim6">6</a></sup>, will fall into the same situation.
+Но ведь это касалось не только их. Другие Рыцари Целостности, и даже стража Армии Защиты Мира Людей, подчиняющиеся одному железному правилу: "Дабы защитить перемирие между Миром Людей и Тёмной Территорией, мы ни за что не должны вредить суб-людям"<sup><a href="#Prim8">8</a></sup>, окажутся в той же ситуации.
 
-What if there are not only these three?
+И что, если есть не только эти трое?
 
-The Рыцарь Целостности team won’t be able to fight back "sub-humans forced to transform into minions" attacking Центория in dozens or hundreds.
+Орден Рыцарей Целостности не сможет дать отпор "суб-людям, насильно превращённым в миньонов", тысячами нападающими на Центорию.
 
-No, even more terrible things can happen than that.
+Нет, могут произойти ещё более ужасные вещи.
 
-Император Крюгер и Зеппос abducted the mountain гоблинов и transformed them into minions in order to cause a new war between Мира Людей и Тёмной Территории. If these minions attack Центория и after a large number of casualties it turns out that their actual identities are гоблинов, the influence of that would not be limited to the Язен’s murder scale. The anger и hatred far exceeding the ones of former Войны с Внешним Миром would rise и the people of Мира Людей will have the genuine wish to begin a reverse invasion into the Тёмной Территории.
+Император Крюгер и Зеппос похитили горных гоблинов и превратили их в миньонов для того чтобы спровоцировать новую войну между Миром Людей и Тёмной Территорией. Если эти миньоны нападут на Центорию и после большого количества жертв выяснится, что на самом деле это гоблины, эффект от этого не ограничится масштабами дела об убийстве Язена. Разгорятся гнев и ненависть, много сильнее тех, что были в время Войны с Внешним Миром, и жители Мира Людей искренне захотят начать обратное вторжение в Тёмную Территорию.
 
-In order to avoid that definite catastrophe, some knights may be able to break the seal of the right eye и fight minions.
+Это точно будет катастрофа, и для того чтобы избежать её, некоторые рыцари смогут сломать печать на правом глазу и сражаться с миньонами.
 
-However, what if the one who is behind the Император, instead of clashing the two worlds, wants just to break the present order on its own — to end the rule of the Объединённого Совета Мира Людей?
+Но что если те, кто стоит за Императором, вместо того, чтобы стравить два мира, просто хотят переломить нынешний порядок вещей — лишить власти Объединённый Совет Мира Людей?
 
-Instead of sub-humans, they could convert Мира Людей people into minions.
+Вместо суб-людей, они могут использовать жителей Мира Людей чтобы создавать миньонов.
 
-Today, there will be at most two hundred or three hundred tourists from Тёмной Территории staying in Мира Людей. Even if they somehow abduct all of them, that would be the upper limit for the number of minions that can be made. However, the total population of Мира Людей exceeds 80000. With the clay as the material, one can prepare as many bodies as they need.
+Сегодня в Мира Людей присутствует от силы две-три сотни жителей Тёмной Территории. Даже если они их каким-то образом похитят, это число будет максимумом возможных миньонов. Однако, суммарное население Мира Людей превышает 80000. С глиной в качестве материала можно подготовить сколько угодно тел.
 
-After Мира Людей people get transformed into minions, Рыцари Целостности will not be able to fight any of them.
+Когда жители Мира Людей превратятся в миньонов, Рыцари Целостности не смогут сражаться с ними.
 
-After controlling the Объединённого Совета Мира Людей with an army of minions, it would be even possible to invade the Тёмной Территории и even defeat the Тёмной Территории army. It is nothing more but the return of "Меч skeleton soldiers plan" that the Первосвященник Администратор had been attempting.
+А после получения контроля над Объединённым Советом Мира Людей, с помощью армии миньонов станет возможным начать вторжение в Тёмную Территорию и даже одержать победу над армией Тёмной Территории. Это ничто иное, как возрождение "Плана по созданию солдатов-скелетов из мечей", который пыталась воплотить в жизнь Первосвященник Администратор.
 
-Ронье, who had thought about this for a while, watched the shadow of the Император Крюгер through the gap between the three minions, which still hadn’t moved.
+Ронье, какое-то время над этим размышлявшая, взглянула на тень Императора Крюгера через просвет между троицей миньонов, продолжавших стоять столбами.
 
-Whether he had been exhausted by a long-time high-level incantation, he stuck one knee on the floor. Despite that, the evil wickedness emanating from his black robe appearance, did not appear to fade away. He remained the same or even more malicious than the kidnapper trying to kill the baby Lisetta in Obsidia Castle.
+То ли потому что он был истощён длительным высокоуровневым заклинанием, то ли ещё почему, он стоял, опустившись на одно колено. Несмотря на это, излучаемая всем его видом аура чёрной злобы и не думала исчезать. Он оставался не меньше, а то и более опасным врагом, чем похититель, что был готов убить малышку Лизетту а замке Обсидия.
 
-*Я ultimately cannot let this man to escape.*
+*Я ни за что не могу позволить этому человеку улизнуть.*
 
-And the Император moved as if he felt Ронье’s determination. He staggeringly stood up, passed between minions which remained in the standby posture, и stopped before Ронье.
+И тогда Император начал двигаться, словно почувствовав решимость Ронье. Он встал, шатаясь, прошёл между миньонами, продолжавшими стоять в позах ожидания команды, и остановился около Ронье.
 
-"...... Я did not recognize the style, but it was a splendid secret move, girl."
+"...... Я не распознал тогда твой стиль, но то было блестящее секретное движение, девочка."
 
-Ронье was unable to respond quickly to that surprising words she did not expect. But the Император did not seem to care, he kept talking in crackling voice from behind the hood:
+Ронье не смогла ответить на эту его неожиданную похвалу. Но Императора это, похоже, не заботило, он продолжил говорить, его треснувший голос доносился из-под капюшона:
 
-"Not simply murdering, but also slashing away Hozaica’s left arm."
+"Не просто убить, а ещё и аккуратно отрезать левую руку Хозайки."<sup><a href="#Prim9">9</a></sup>
 
-She shivered trying to remember the killing, which he talked of with such an emotionless casual voice, but still she could not remember the name he called. To be exact, she felt like she heard it somewhere, but could not remember details easily.
+Дрожа, она пыталась вспомнить, о каком убийстве он так безэмоционально и обыденно говорил, но названное им имя никак не всплывало в голове. Точнее, когда-то она точно его слышала, но где и когда — никак не вспоминалось.
 
-In lieu of Ронье who raised the eyebrows, Тейза exhaled "Eh......". The arms holding Ронье's body slightly stiffened.
+В отличие от удивлённо поднявшей брови Ронье, Тейза выдохнула "Эээ......". Поддерживающие тело Ронье руки слегка напряглись.
 
-"....... Hozaica Eastabarieth......?"
+"....... Хозайка Истабариет......?"
 
-"Yes...... They used to call him this name at that time."
+"Да...... когда-то его так звали."
 
-Listening to that interaction, Ронье finally realized who it was.
+Слушая их диалог, Ронье поняла, наконец, кто это был.
 
-One who lost his life in the Rebellion of Four Империиs, the Император of the Eastabarieth Империи.
+Один из тех, кто лишился жизни во время Восстания Четырёх Империй, правитель Империи Истабариет.
 
-However, Император Крюгер misunderstood something. In the battle of a year ago Ронье и Тейза rushed into the Северной Центория Imperial castle, и never stepped into the Восточной Центория. They were knight Nergius и knight Entokia who attacked the Восточной Центория Imperial castle и slashed Император Hozaica.
+Однако, Император Крюгер что-то явно путал. Во время сражения годичной давности Ронье и Тейза участвовали в броске к Имперскому замку Северной Центории, и даже шагу не ступали в Восточную Центорию. Теми, кто напал на Имперский замок Восточной Центории и убил Императора Хозайку были рыцарь Нергиус и рыцарь Энтокиа.
 
-In the first place, there were only three people, including Зеппос who died a few minutes ago, whom Ронье defeated using a secret move. The first one was the Император Крюгер, и the second one was a black robe kidnapper whom she fought on the top floor of Obsidia Castle.
+Да и вообще, было всего лишь трое человек, включая Зеппоса, умершего несколько минут назад, кого Ронье победила с использованием секретного движения. Первым был сам Император Крюгер, а вторым — похититель в чёрном плаще, с которым она сражалась на верхушке замка Обсидия.
 
-At that time, Ронье slashed kidnapper’s left arm with the same "Sonic Leap" as she did just now.
+В тот раз, Ронье отрубила левую руку похитителя с помощью того же движения "Звуковой скачок", который она использовала только что.
 
-Left arm.......
+Левую руку.......
 
-All of a sudden, thanks to the antidote, the feeling came back to Ронье, from toes to the eyelids. In her head, the kidnapper’s voice faintly echoed:
+В этот миг, благодаря противоядию, чувствительность вернулась в тело Ронье, от кончиков пальцев ног до век. В её голове тихо раздался голос похитителя:
 
-*── Well, so it was the Мира Людей Премьер-Мечник who slashed the sealing chain? This person is more troublesome than his reputation.......*
+*── О, так значит это был Премьер-Мечник Мира Людей, кто перерубил запечатывающую цепь? От этого человека даже больше проблем, чем ходит слухов.......*
 
-That day, should the kidnapper be of Тёмной Территории people, he could not hear rumors of Мира Людей Премьер-Мечник. Both times Кирито visited Obsidia, including the last time, were incognito, so the people of the city never had a chance to even see Премьер-Мечник.
+В тот день, будь похититель жителем Тёмной Территории, но бы никак не смог услышать слухи о Премьер-Мечнике Мира Людей. Оба раза, когда Кирито посещал Обсидию, включая и последний, он желал это инкогнито, так что у людей в городе да же увидеть Премьер-Мечника шансов не было.
 
-"Did...... did you mean......"
+"Так...... так значит......"
 
-Roughly moving dry lips, Ронье decided to confirm the true meaning of Император's words.
+С трудом ворочая пересохшими губами, Ронье решила убедиться в том, что верно поняла значение слов Императора.
 
-"Was the kidnapper who appeared in the Obsidia Castle the Eastabarieth Император, who survived as minion just like you...?"
+"Похититель, появившийся в замке Обсидия, был Император Истабариет, выживший в виде миньона, как и вы...?"
 
-To that question, Крюгер suggestively lifted the pointed mustache:
+Вместо ответа, концы острых усов Крюгера поползли вверх:
 
-"You have not found the corpse of Hozaica, have you?"
+"Вы же не смогли найти тело Хозайки, не так ли?"
 
-— и shook his right hand quickly before Ронье said anything:
+— и замахал правой рукой, прежде, чем Ронье успела что-то сказать:
 
-"Do not worry, that person is dead. Dead bodies that fell to the ground melt и disappear...... just like Зеппос did."
+"Не беспокойтесь, этот человек мёртв. Мёртвые тела, что падают на землю, тают и исчезают...... прямо как Зеппос только что."
 
-These words confirmed that the kidnapper was Император Hozaica in a form of a minion. But that led to a new doubt.
+Эти слова подтверждали, что похитителем был Император Хозайка в виде миньона. Но это вело лишь к новым вопросам.
 
-"...... How would you know such a thing while you were in Мира Людей?"
+"...... Откуда вам это всё известно, если вы были в Мире Людей?"
 
-Who asked that was Тейза, not Ронье.
+Спросившей была Тейза, не Ронье.
 
-Император Крюгер did not reply by words, but spread the black robe on his chest.
+Император Крюгер ответил не словами, а вместо этого распахнул чёрный плащ у себя на груди.
 
-There, hanging on a thin chain, was a blood-red jewel shining even in the dark. Kidnapper — Император Hozaica — had exactly the same on his chest.
+Там висел на тонкой цепочке сиявший во тьме кроваво-красный драгоценный камень. У похитителя — Императора Хозайки — был на груди точно такой же.
 
-"Again, Hozaica’s plan was destroyed и he died. When 'katashiro'<sup><a href="#Prim7">7</a></sup> also breaks, he cannot be resurrected anymore. However, what he observed was passed over, becoming the cornerstone of the next plan...... that's it. The same way we made this fusion-type minion... prototypes of them, which will strand you knights."
+"Как я и сказал, план Хозайки был расстроен и он погиб. Когда и 'каташиро'<sup><a href="#Prim10">10</a></sup> тоже разрушается, снова воскресить становится невозможно. Однако, то, что он видел и слышал, попало к нам, став краеугольным камнем нового плана...... вот откуда. Точно так же нам и удалось сделать этих миньонов совмещённого типа... их прототипов, которые по рукам и ногам свяжут рыцарей."
 
-As he said so, satisfied Крюгер stroked Minion's powerful arm with his left hand.
+Сказав это, довольный Крюгер погладил мощную лапу миньона своей левой рукой.
 
-Ронье desperately thought while startle и shock quickly converted to a saturated horror in her head.
+Ронье отчаянно думала, в то время как удивление и шок в её голове быстро превращались в красочный ужас.
 
-*Katashiro, that badge that came out from the head of Зеппос. Although the overall mechanism is not clear, that was an essential element for the resurrection technique using minions as a material.  
-The Император Hozaica, whose arms were cut off by ambassador Шейта и Ронье, threw himself out of the window on the top floor of Obsidia Castle. The corpse was not found not because he flew away or ran, the katashiro was destroyed when he fell, и the clay body melted.  
-But if we believe in Крюгер's words, the red gem that Hozaica had hanging on his chest did not break. Moreover, by some means it moved over three thousand kilolu from Obsidia to Норлангарт Империи и gave Крюгер the memory и knowledge of Hozaica ──  
-If the guess so far is correct.  
-That red gemstone is the heart of a gigantic conspiracy intertwining Мира Людей и Тёмной Территории.*
+*Каташиро, то кольцо, что выпало из головы Зеппоса. Пускай механизм в целом был и непонятен, это явно важный элемент в технике воскрешения, использующей миньонов в качестве тел.  
+Император Хозайка, руки которого были отрублены послом Шейтой и Ронье, выбросился из окна с верхнего этажа замка Обсидия. Труп не нашли не потому что он сбежал или улетел, когда он упал каташиро разрушилось, и глиняное тело растаяло.  
+Но если верить словам Крюгера, красный камень, что висел на груди Хозайки, не разрушился. К тому же, каким-то чудом он переместился за тысячу килолу от замка Обсидия в Империю Норлангарт и передал Крюгеру память и знания Хозайки ──  
+Если все эти догадки верны.  
+Этот красный камень — это ядро гигантского заговора, сплетённого над Миром Людей и Тёмной Территорией.*
 
-Ронье strongly clasped the beloved Меч with the right hand, already purified from paralysis poison и able to move again.
+Ронье с силой сжала любимый меч правой рукой, уже освободившейся от паралитического яда и способной снова двигаться.
 
-*Я cannot let you go away here. Even if Я could defeat the Император Крюгер, if the gem disappears somewhere, there must be someone who inherits the accumulated mАлиса.*
+*Я не могу позволить тебе уйти. Даже если я смогу одолеть Императора Крюгера, если камень исчезнет, то он достанется следующему, кто унаследует злой умысел.*
 
-"Тейза...... somehow attract minions for just 30 seconds."
+"Тейза...... отвлеки миньонов как-нибудь на 30 секунд."
 
-— Ронье whispered at such a volume that she could barely hear it herself.
+— прошептала Ронье столь тихо, что едва сама смогла услышать:
 
-"After slashing the Император, гоблинов may return to the original."
+"Если сразить Императора, может, гоблины вернутся в норму."
 
-It was a slight hope, but как минимум they can earn some time if there is no one to control them.
+Надежда на это была слабая, но как минимум если их никто не будет контролировать, они смогут выиграть какое-то время.
 
-The problem was that the poison hasn’t come out of the wounds above the right knee и right instep. Strong posture was essential for secret Меч moves, as well as to release several whole-body blows. Still there was no choice but to try.
+Проблема была в том, что яд ещё не до конца вышел из ран выше колена и в правой стопе. Твёрдая стойка была важным элементом секретных движений меча, и необходима для полновесного удара всем телом. Однако иного выбора кроме как попытаться не оставалось.
 
-"...... I’ve got it."
+"...... Поняла."
 
-Тейза who was supporting Ронье’s back also replied with the quietest voice.
+Тейза, поддерживающая спину Ронье, тоже прошептала на грани слышимости.
 
-She moved the fingers of both hands и feet a little again, to confirm that the sensation is back. Thanks to the Император talking about it, she gained time to get the medicine to work, but surely the same is true for the other party. Император’s mental exhaustion — regardless of whether there is any spirit in the head of minion made of pure clay — seemed to have passed, и the skin surface of the fusion-type minions also became shinier than when freshly made.
+Та же снова пошевелила пальцами рук и ступнями, чтобы убедиться, что чувствительность вернулась. Благодаря разговорившемуся Императору, у неё было достаточно времени, чтобы лекарство подействовало, но, конечно, то же самое относилось и к оппоненту. Ментальное истощение Императора — вне зависимости, есть ли дух в голове сделанного из глины миньона, — судя по всему, прошло, да и поверхность кожи миньонов совмещённого типа тоже стала более гладкой по сравнению с только что сделанными.
 
-Император Крюгер stroke the minion's arm again with his fingertips и nodded, satisfied:
+Император Крюгер снова погладил лапу миньона кончиками пальцев и удовлетворённо кивнул:
 
-"Well, according to the plan, Зеппос was supposed to be the opponent for the combat training, but he died. Let me take that responsibility for you."
+"Что ж, согласно плану, Зеппос должен был быть оппонентом в боевой тренировке, но он умер. Позвольте мне взять на себя эту ответственность."
 
-While talking, he went in the back. Probably, the intention was for minions to kill them.
+Произнося это, он отошёл назад. Видимо, в его намерения входило чтобы миньоны их убили.
 
-The prototype minions, which Император Hozaica used in Obsidia Castle, accepted limited set of very simple commands in sacred words or Тёмной Территории people words. Moreover, their thinking power was at a wild bВосточной degree, it could not deal with Рыцари Целостности' Меч skill и complicated tactics that make use of Sacred Art. At the time of the Войны с Внешним Миром, 800 precious minions introduced by the Dark Arts Masters Guild could not recognize the trap of full armament control technique that the knight chief Беркули set up, и all of them were destroyed in a blink of an eye.
+Те прототипы миньонов, которые Император Хозайка использовал в замке Обсидия, принимали крайне ограниченный набор команд на Священном Языке и на языке жителей Тёмной Территории. К тому же, их мыслительные способности находились на уровне диких зверей, они не могли справиться с силой меча Рыцарей Целостности и сложной тактикой, включавшей Священное Искусство. Во время Войны с Внешним Миром, 800 бесценных миньонов, представленных Гильдией Мастеров Тёмных Искусств, не смогли распознать ловушку, созданную техникой полного контроля вооружения, которую подстроил глава рыцарей Беркули, и они все оказались уничтожены в мгновение ока.
 
-*The time at which the fusion-type minions incorporating the гоблинов inside have evolved above the original has probably come. They must be able to understand more advanced и diverse instructions. But of course, it will take time to give multiple orders. Take advantage of the chance и kill the Император that moment.*
+*Пожалуй, пришло то время, когда миньоны совмещённого типа, содержащие гоблинов внутри себя, окажутся серьёзной эволюцией по сравнению с оригиналом. Они должны быть способны понимать более сложные и разнообразные команды. Но, само собой, чтобы отдать несколько приказов, потребуется время. Нужно воспользоваться этой возможностью и в тот момент убить Императора.*
 
-Император Крюгер who returned behind Minions who stood side by side raised his right hand upwards as if giving orders to a soldier under his command.
+Император Крюгер, вставший позади миньонов, стоящих плечо к плечу, поднял вверх правую руку, словно отдавая  приказ солдатам под своим командованием.
 
-"Minions! Kill these two girls! ── **Activate**!!"
+"Миньоны! Убейте этих двух девушек! ── Эктивейт!!"<sup><a href="#Prim10">10</a></sup>
 
-That was the only command issued. In Мира Людей language и one word of sacred language.
+Единственная отданная команда. На языке Мира Людей и одно священное слово.
 
-With sound of something starting to vibrate, minions’ eyes began glowing red.
+## Продолжение следует...
+
+<!--With sound of something starting to vibrate, minions’ eyes began glowing red.
 
 Immediately after, with the speed that made their giant figures blurry, the right и left minions made powerful jumps. The left minion stood before the broken window и the right minion stopped in front of the large open door.
 
 They confined Ронье и others in the hall. In order to carry out the command of "killing", they decided that command objects must not escape, и blocked two possible escape routes.
 
-Ронье realized that the calculation she did a few seconds ago was wrong. The fusion-type minion had an ability to recognize the situation и to accept complicated instructions, и beyond that — judge oneself и move accordingly.
+Ронье realized that the calculation she did a few seconds ago was wrong. The миньонов совмещённого типа had an ability to recognize the situation и to accept complicated instructions, и beyond that — judge oneself и move accordingly.
 
-However, since the two blocked the escape routes, there was only one minion remaining in front of Император Крюгер. They couldn’t hit a fusion-type minion built on top of innocent гоблинов, but they could avoid his attacks и slay the Император.
+However, since the two blocked the escape routes, there was only one minion remaining in front of Император Крюгер. They couldn’t hit a миньонов совмещённого типа built on top of innocent гоблинов, but they could avoid his attacks и slay the Император.
 
 *── Тейза!*
 
@@ -931,7 +933,7 @@ Minion showed an unbelievably agile reaction to the super high-speed rush which 
 
 But Ронье predicted that attack.
 
-Regardless of how high fusion-type minions’ abilities are, the overall shape is almost the same as the original minion. Then, like the origin, they should use claws of both hands as the main weapon.
+Regardless of how high миньонов совмещённого типаs’ abilities are, the overall shape is almost the same as the original minion. Then, like the origin, they should use claws of both hands as the main weapon.
 
 "**Kh**......!!!"
 
@@ -955,7 +957,7 @@ In several hundredths of a second, the black whip struck the left forearm.
 
 *── This is minion's tail.*
 
-The fusion-type minion used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, и at a speed higher than the right arm would do.
+The миньонов совмещённого типа used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, и at a speed higher than the right arm would do.
 
 The moment Ронье recognized it there was the sound of crumbling left arm bones. The braided wire-hard tail, without stopping, painfully hit Ронье's chest и another arm и sent her flying through the air backwards with a tremendous momentum.
 
@@ -1088,7 +1090,7 @@ Minions, despite being similar to mountain гоблинов, did not have simila
 
 Also, behind, two other minions barked one after another.
 
-To escape, they needed to eliminate the one in front of the window. But Ронье couldn’t attack the fusion-type minion. Even just trying to slash its leg to make it stop moving will trigger the "seal of the right eye" и she will not be able to move just like Тейза previously.
+To escape, they needed to eliminate the one in front of the window. But Ронье couldn’t attack the миньонов совмещённого типа. Even just trying to slash its leg to make it stop moving will trigger the "seal of the right eye" и she will not be able to move just like Тейза previously.
 
 *The only remaining means is to just use complete armament control. If it has curative spirit, burning the flesh of Minion should not hurt the гоблинов inside. But how much more Меч Лунного Света's Life has left? Я cannot afford confirming it through the Stacia’s window.  
 Меч Лунного Света will crumble if it runs out of Life by complete armament control.  
@@ -1123,7 +1125,7 @@ Immediately afterwards, a myriad of building blocks floating outside the floor d
 
 When the echo of thunderous destruction sound fell, Ронье was not in the mansion anymore. Her feet were still in a dark carpet, but the evening reddening sky spread overhead. The lower edge of crimson Solus touched the Mountain Range at the Edge; the Северной wind still full of winter coldness shook hair of the two.
 
-Three minions и Император Крюгер froze, stunned. If it had been an original minion that simply obeys instructions, it would have continued attacking without any concern for changes around, but because the fusion type one had a kind of consciousness, it seemed to be confused about what to do.
+Three minions и Император Крюгер froze, stunned. If it had been an original minion that simply obeys instructions, it would have continued attacking without any concern for changes around, but because the совмещённого типа one had a kind of consciousness, it seemed to be confused about what to do.
 
 But Ронье’s head stopped working the same exact way. A large hall she thought there was no hope to escape — no, the entire Император's villa filled with mАлиса и fear couldn’t oppose against the super phenomenon that decomposed it completely within about ten seconds.
 
@@ -1163,7 +1165,7 @@ The emitted voice was distorted и cracked as if it were a curse. The black robe
 
 "Minions, shoot down those irreverents!"
 
-Three fusion-type minions which received a new order quickly turned their faces towards the sky, opened the pointed mouth wide. Purple miasma wriggled eerily behind the rows of sharp fangs.
+Three миньонов совмещённого типаs which received a new order quickly turned their faces towards the sky, opened the pointed mouth wide. Purple miasma wriggled eerily behind the rows of sharp fangs.
 
 *No way fused minion can have attacking belch...... that would be "**breath**" in sacred language, like dragons’ fire stream?*
 
@@ -1227,7 +1229,7 @@ The splashing mucus evaporated while falling through the air, и mountain гоб
 
 Some of the light elements wrapped around Ронье и Тейза и healed their scars. Although they felt like collapsing right here right now due to unparalleled warmth и comfort it generated, they tried hard to keep standing.
 
-At the same time as the three fusion-type minions completely disappeared и Ронье's и Тейза’s injuries was healed, the sky also regained the sunset color.
+At the same time as the three миньонов совмещённого типаs completely disappeared и Ронье's и Тейза’s injuries was healed, the sky also regained the sunset color.
 
 Most of the huge number of light elements played their role и extinguished, but the last few hundreds were floating slightly above the floor forming ten rings. It was the Император Крюгер Норлангарт, of course, trapped in this slender cage created with those rings placed one above another. The rings sizes were just enough not touch the robe's cloth, и if he had moved just a little, the light elements would penetrate the clay body и decompose it in the same way as minions’ ones.
 
@@ -1395,11 +1397,13 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 2. <a name="Prim2"></a>Мне кажется, я уже давал сноску по этой фразе, но на всякий случай: form element, arrow shape; придать элементу форму, форма стрелы.
 2. <a name="Prim3"></a>...перед чем, судя по всему, она опять переложила меч в правую.
 3. <a name="Prim4"></a>Если вы в замешательстве не меньше Ронье, то вот: [Камергер](https://ru.wikipedia.org/wiki/Камергер). Ну а "оставить дверь незапертой" - это отсылка к тому, что во всех странах эта должность ассоциировалась с крайне ограниченным доступом в монаршии покои, и соответственно, с ключом от оных, либо же от всего дворца. Иными словами, должность этого человека по определению — держать двери закрытыми.
-3. <a name="Prim5"></a>В оригинале тут "диск" (円盤). Однако, вероятно это пропуск редактора, поскольку дальше по тексту подобный объект всегда называют "кольцо" (指輪), и упоминается, что это ювелирное изделие.
+3. <a name="Prim5"></a>В оригинале тут "диск" (円盤). Однако, вероятно это пропуск редактора, поскольку дальше по тексту подобный объект всегда называют "кольцо" (指輪), и упоминается, что это ювелирное изделие. (Добавлено на этапе рулейта: впрочем, есть ещё одно место, где это "значок", так что можете представлять себе вообще всё что хотите.)
 4. <a name="Prim6"></a>_Connect All Circuit! Open Gate!_ Здесь: "Соединить всю схему! Открыть заслонку!"
 4. <a name="Prim7"></a>В оригинале - вполне конкретный вид угря, [Нума-унаги](https://en.wikipedia.org/wiki/Inshore_hagfish), но русского описания сего чуда я не нашёл.
-<!--5. <a name="Prim8"></a>Я have doublechecked several times, и a) yes that’s the first time Я hear about that и b) no there is no word “innocent” or alike in the phrase, и c) yes that makes the scene in the guards' building from the volume 19 completely impossible.
-6. <a name="Prim9"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim10"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
-8. <a name="Prim11"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
-10. <a name="Prim12"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
+5. <a name="Prim8"></a>Я несколько раз перепроверил, и a) да, я впервые об этом слышу, б) нет, в этой фразе нет никакого намёка на слова “невинных” и т.п., и в) да, это делает сцену в здании стражи из 19 том совершенно невозможной.
+6. <a name="Prim9"></a>Да, здесь то же самое, что с Чуделкиным - так в оригинале.
+7. 6. <a name="Prim10"></a>*Activate*, "активировать", ну или возможно, "активируйтесь", в зависимости от того, как там построено их восприятие команд.
+<!--6. <a name="Prim11"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim12"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
+8. <a name="Prim13"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
+10. <a name="Prim14"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
