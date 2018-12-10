@@ -925,7 +925,7 @@ However, since the two blocked the escape routes, there was only one minion rema
 
 *── Tiese!*
 
-Her friend who responded to the thought that thrusted forward the hands supporting her back, as the result pushing Ronye ahead. At the same time, Ronye also kicked off the floor with the injured right foot. Blood sprayed from the boot and knee, the pain engulfing her was like a burning skewer penetrating through the entire body, but she clenched teeth and endured it.
+Her friend who responded to the thought, thrusted forward the hands supporting her back, as the result pushing Ronye ahead. At the same time, Ronye also kicked off the floor with the injured right foot. Blood sprayed from the boot and knee, the pain engulfing her was like a burning skewer penetrating through the entire body, but she clenched teeth and endured it.
 
 Minion showed an unbelievably agile reaction to the super high-speed rush which combined the power of the two knights. With growling, the long log-like thirty cen-wide right arm came down intending to mow Ronye. Sharp sickle-like nails sprung out from tips of the fingers; if they hit, one will be torn apart.
 
@@ -953,9 +953,8 @@ Reflectively she lifted the left arm to protect the neck.
 
 In several hundredths of a second, the black whip struck the left forearm.
 
-*── This is minion's tail.*
-
-The fusion-type minion used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, and at a speed higher than the right arm would do.
+*── This is minion's tail.  
+The fusion-type minion used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, and at a speed higher than the right arm would do.*
 
 The moment Ronye recognized it there was the sound of crumbling left arm bones. The braided wire-hard tail, without stopping, painfully hit Ronye's chest and another arm and sent her flying through the air backwards with a tremendous momentum.
 
@@ -993,7 +992,7 @@ Ronye desperately crawled on the floor while spitting blood from her mouth, lift
 
 "**Siste...... ko...l**"
 
-She tried hard but couldn’t activate the art with the lack of voice. The left barely holding Tiese’s wounds already dyed red up to the wrist.
+She tried hard but couldn’t activate the art with the lack of voice. The left hand barely touching Tiese’s wounds already dyed red up to the wrist.
 
 Integrity Knights had much higher armor and equipment authority and Sacred Art authority than the Human World guards, and they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ronye and Tiese who were only 17 years old had just about 3000<sup><a href="#Prim8">8</a></sup>.
 
@@ -1024,7 +1023,7 @@ She did not immediately understand what the hand was holding. It was a handle of
 **To-kun**, **to-kun**, through the pulsing heat sword spoke to her. Unleash me, for I will respond.
 
 *However, I can’t do "that thing". Sword of the Moonlight is certainly a high priority instrument, but it is not a divine object.  
-Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories and can communicate with their masters.  
+Divine object is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why divine objects have their own memories and can communicate with their masters.  
 On the other hand, it was some human blacksmith who forged the Sword of the Moonlight, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
 Cannot. Cannot…….*
 

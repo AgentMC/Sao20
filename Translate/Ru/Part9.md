@@ -913,142 +913,141 @@
 
 Единственная отданная команда. На языке Мира Людей и одно священное слово.
 
-## Продолжение следует...
+Раздался звук, как если бы что-то начало вибрировать, и глаза миньонов загорелись красным.
 
-<!--With sound of something starting to vibrate, minions’ eyes began glowing red.
+И сразу же вслед за этим миньоны по бокам совершили мощные прыжки, двигаясь с такой скоростью, что их массивные фигуры расплывались перед глазами. Левый миньон встал у разбитого окна, а правый — загородил собой большую распахнутую дверь.
 
-Immediately after, with the speed that made their giant figures blurry, the right и left minions made powerful jumps. The left minion stood before the broken window и the right minion stopped in front of the large open door.
+По сути их с Ронье заперли в этом зале. С целью выполнить команду "убить", те решили, что объекты команды не должны иметь возможность сбежать, и заблокировали пути к отступлению этих двоих.
 
-They confined Ронье и others in the hall. In order to carry out the command of "killing", they decided that command objects must not escape, и blocked two possible escape routes.
+Ронье поняла, что её расчёты несколькими секундами ранее были ошибочны. Миньоны совмещённого типа обладали способностью распознавать ситуацию и принимать сложные команды, и даже больше того — принимать решения и двигаться соответственно.
 
-Ронье realized that the calculation she did a few seconds ago was wrong. The миньонов совмещённого типа had an ability to recognize the situation и to accept complicated instructions, и beyond that — judge oneself и move accordingly.
-
-However, since the two blocked the escape routes, there was only one minion remaining in front of Император Крюгер. They couldn’t hit a миньонов совмещённого типа built on top of innocent гоблинов, but they could avoid his attacks и slay the Император.
+Однако, поскольку те двое заблокировали пути отхода, перед Императором Крюгером оставался всего один миньон. Они не могли бить по миньонам совмещённого типа, созданных поверх невинных гоблинов, но можно было избежать его атак и прикончить Императора.
 
 *── Тейза!*
 
-Her friend who responded to the thought that thrusted forward the hands supporting her back, as the result pushing Ронье ahead. At the same time, Ронье also kicked off the floor with the injured right foot. Blood sprayed from the boot и knee, the pain engulfing her was like a burning skewer penetrating through the entire body, but she clenched teeth и endured it.
+Словно отвечая на её мысленный зов, её подруга распрямила руки, поддерживавшие её спину, как результат Ронье полетела вперёд. В то же время, Ронье и сама оттолкнулась от пола травмированной правой ногой. Кровь прыснула из ботинка и колена, а охватившая её боль была подобна раскалённому вертелу, пронзившему всё тело, но она сжала зубы и стерпела.
 
-Minion showed an unbelievably agile reaction to the super high-speed rush which combined the power of the two knights. With growling, the long log-like thirty cen-wide right arm came down intending to mow Ронье. Sharp sickle-like nails sprung out from tips of the fingers; if they hit, one will be torn apart.
+В ответ на супер-высоко-скоростной рывок, совершённый совместными усилиями двух рыцарей, миньон отреагировал невероятно гибко. С рычанием, он махнул вниз своей похожей скорее на бревно, тридцати-ценовой толщины рукой, намереваясь скосить Ронье. Острые, похожие на серпы когти выдвинулись из кончиков пальцев; если такие попадут, то просто разорвут на части.
 
-But Ронье predicted that attack.
+Но Ронье предсказала эту атаку.
 
-Regardless of how high миньонов совмещённого типаs’ abilities are, the overall shape is almost the same as the original minion. Then, like the origin, they should use claws of both hands as the main weapon.
+Вне зависимости от того, насколько высокими способностями обладали миньоны совмещённого типа, в целом их форма была такой же как и у обычных миньонов. В таком случае, как и оригинал, в качестве основного оружия, они будут использовать когти обеих лап.
 
-"**Kh**......!!!"
+"**Кх**......!!!"
 
-While unconsciously leaking a groan from behind the clenched teeth, she let the atrociously looking claws to target her for as long as possible, и just before the hit, bent the upper body to the back.
+Неосознанный стон пробился сквозь её сжатые зубы, когда она, позволив ужасным когтям приблизиться к ней насколько возможно, прямо перед ударом выгнула спину назад.
 
-Sliding on the floor feet first, she dove under the attack. The claws of thin fingers reached the disturbed hair, и ends were cut by about 3 cens, but it was a cheap price.
+Скользя по полу ногами вперёд, она уклонилась, пройдя под атакой. Когти на тонких пальцах достигли её растревоженных волос, и около 3 ценов на концах срезало, но это была небольшая цена.
 
-Minion swayed to the left because of the momentum of the whole-body swoosh и turned his back on Ронье. This minion mimicked the shape of a human even more than previous ones, it could not attack from this position. When she brought the body back up by slightly hooking the left foot to the carpet, there was the figure of Император Крюгер in just seven mel ahead.
+Из-за силы, с которой он всем телом совершил этот взмах, миньон по инерции качнулся и оказался к Ронье спиной. Этот миньон ещё больше походил на человека, чем предыдущие, и из такой позиции атаковать не мог. Уперев каблук левой ноги в ковёр, она вернула тело в вертикальное положение, и всего в семи мелах впереди увидела фигуру Императора Крюгера.
 
-*Definitely within the range of a "Sonic Leap". With one whole-body blow, destroy the katashiro that should be stored in the middle of the head и the red jewel hanging on the chest, и end it all.*
+*Точно в пределах "Звукового Скачка". Мне хватит одного удара всем телом, чтобы разрушить каташиро, которое должно быть в центре головы, и красный камень, висящий на груди, и разом со всем этим покончить.*
 
-When she kicked off the floor again with the blooded right foot, vigorously swinging the Меч Лунного Света up ──
+Она снова оттолкнулась от пола окровавленной правой ногой, с силой взмахнула вверх Мечом Лунного Света ──
 
-It happened at that very moment.
+И в этот самый миг.
 
-Something black и slender jumped like a whip from the floor sinking in the darkness, и rushed with incredible speed aiming at Ронье's neck.
+Что-то чёрное и тонкое прыгнуло, словно плеть, с пола, утопающего во тьме, и с громадной скоростью ринулось прямо к шее Ронье.
 
-Reflectively she lifted the left arm to protect the neck.
+Рефлекторно она подняла левую руку чтобы защитить шею.
 
-In several hundredths of a second, the black whip struck the left forearm.
+Через несколько сотых секунды чёрная плеть попала по левому предплечью.
 
-*── This is minion's tail.*
+*── Это хвост миньона.  
+Миньон совмещённого типа воспользовался инерцией вращения всего тела чтобы махнуть хвостом, единственным оружием, которым он был способен атаковать сзади, и со скоростью выше, чем была способна правая рука.*
 
-The миньонов совмещённого типа used the momentum of one whole-body turn to swing the tail, the only weapon capable of attacking from the back, и at a speed higher than the right arm would do.
+В тот момент, когда Ронье это осознала, раздался хруст крошащихся костей левой руки. Жёсткий, словно плетёный провод, хвост, не останавливаясь, болезненно ударил Ронье по груди и другой руке и отправил её в стремительный полёт спиной вперёд.
 
-The moment Ронье recognized it there was the sound of crumbling left arm bones. The braided wire-hard tail, without stopping, painfully hit Ронье's chest и another arm и sent her flying through the air backwards with a tremendous momentum.
+Ронье, пролетевшая по воздуху более 10 мелов, врезалась в заднюю стену и отлетела от неё на пол.
 
-Ронье who flew more than 10 mel through the air crashed into the back wall и bounced down to the floor.
+*В глазах темно. Дышать не могу. Похоже, несколько рёбер сломано в дополнение к левой руке, но тело ударило с такой силой, что я даже боли не чувствую.*
 
-*Everything is black. Я cannot breathe. Seems it has broken also several ribs on top of my left arm, but the impact that my whole body received is so huge that Я cannot even feel pain.*
-
-Despite she thought of standing up, the body did not move at all. Although she wore light metal armor on the chest, it seems that Life has been reduced to a dangerous value with a single blow.
+Хоть она и подумала о том, чтобы подняться, тело ни на йоту не сдвинулось. У неё на груди была лёгкая металлическая броня, но похоже, одного удара хватило чтобы уменьшить Жизнь до опасных значений.
 
 "Ронье ── !!!"
 
-Тейза was calling her name from somewhere distant. She hardly managed to move the face touching the floor, opened the darkened и cloudy eyes.
+Тейза звала её откуда-то издалека. Она с трудом смогла повернуть уткнувшееся в пол лицо, приоткрыть затуманенные и потемневшие глаза.
 
-She could see her best friend appearing from the front left side. и a huge shadow abruptly attacking from the right side.
+Она видела как её подруга появилась спереди слева. И как огромная тень внезапно атаковала справа.
 
-*....... Тейза, run away.*
+*....... Тейза, убегай.*
 
-An attempt to shout, but only some air flew out of the throat.
+Попытка закричать, но горло выпустило лишь немного воздуха.
 
-Тейза who noticed minion aiming at himself stopped running и tried to deflect the attack.
+Тейза, заметившая несущегося на неё миньона, остановилась и попыталась отразить атаку.
 
-However, at the moment when she swiftly swayed the Меч, her appearance unnaturally stiffened.
+Но в тот момент, когда она резко взмахнула мечом, её фигура внезапно замерла.
 
-The "seal of the right eye" has been activated. She forgot herself because of Ронье's injuries и tried to attack the minion reflexively, but then remembered that there was a гоблин enclosed in the enemy's body.
+Это активировалась "печать на правом глазу". Видя травмы Ронье, она забылась и рефлекторно попыталась напасть на миньона, но затем вспомнила что в теле врага был заключён гоблин.
 
-Ронье has never experienced a seal effect until that moment. But she heard that the pain is like the soul is being directly crushed down. As far as Ронье was aware, the only people who managed to break through the seal with their own will were elite мечник-стажёр Юдзио, Рыцарь Целостности Алиса, the ork chief Rirupirin, и adding General Commander Isukan who got the right eye out himself, there were only four people in total.
+Ронье до этого момента сама ни разу не испытывала эффект печати. Но она слышала, что печать приносит такую боль, словно разбивают саму душу. Насколько Ронье знала, единственные, кто смог пробиться через печать с помощью силы собственной воли, были элитный мечник-стажёр Юдзио, Рыцарь Целостности Алиса, вожак орков Рирупирин и к тому же главнокомандующий Исукан, который сам вырвал себе глаз, итого всего четверо.
 
-Minion with all his force mowed through Тейза's body which was attacked by so much pain that became frozen. Fresh blood painted four long trails in the air, и Ронье screamed forgetting about her deep wounds.
+Миньон всей свей силой врезал по телу Тейзы, которое и так испытывало такую боль, что застыло на месте. Свежая кровь оставила в воздухе четыре длинных следа, и Ронье закричала, забыв про свои глубокие раны.
 
-Тейза collapsed on the floor, bounced back и rolled right up to Ронье. She seemed to have lost her consciousness, и wouldn’t move the closed eyelids. A massive amount of blood continued to flow from deep wounds torn by minion’s claws.
+Тело Тейзы грохнулась на пол, отлетело от него, и покатилась прямо к Ронье. Похоже она потеряла сознание, и даже закрытыми веками не двигала. Из глубоких ран, нанесённых когтями миньона, хлестала кровь.
 
-"Tei.......se......."
+"Тей.......за......."
 
-Ронье desperately crawled on the floor while spitting blood from her mouth, lifted the broken left arm и touched the partner's body. Without treating her with luminous elements right now, Тейза will die.
+Сплёвывая кровь, Ронье отчаянно поползла по полу, подняла сломанную левую руку и коснулась тела напарницы. Если её не полечить световыми элементами здесь и сейчас, Тейза умрёт.
 
-"**Siste...... ko...l**"
+"Систе...... ко...л"
 
-She tried hard but couldn’t activate the art with the lack of voice. The left barely holding Тейза’s wounds already dyed red up to the wrist.
+Она старалась со всех сил, но голоса не хватало, чтобы запустить Искусство. Левая рука, едва касавшаяся ран Тейзы, уже окрасилась красным по запястье.
 
-Рыцари Целостности had much higher armor и equipment authority и Sacred Art authority than the Мира Людей guards, и they exercised the overwhelming muscle power, but the numerical value of Life itself did not change much compared to an ordinary human. The maximum values for strong senior knights were about 5000, while Ронье и Тейза who were only 17 years old had just about 3000<sup><a href="#Prim8">8</a></sup>.
+Рыцари Целостности имели намного более высокий уровень контроля брони и оружия, равно как и Священного Искусства, чем стража Мира Людей, и кроме того, обладали подавляющей физической силой, но численное значение их Жизни не сильно отличалось от обычного человека. Максимальные значения для сильных старших рыцарей были около 5000, в то время как всего лишь 17-летние Ронье с Тейзой обладали около 3000<sup><a href="#Prim12">12</a></sup>.
 
-Even if she couldn’t say it aloud, the Stacia’s window could be displayed if she draws the sacred character. However, Ронье did not have the courage to see the Тейза's remaining Life amount. Just dropping tears down, she held the wound with her left hand, continuing attempts to pronounce the incantation.
+Пусть она не могла ничего произнести, окно Стасии можно открыть, нарисовав священный символ. Однако, у Ронье не хватало храбрости узнать, сколько у Тейзы осталось Жизни. Роняя слёзы, она держала руку у раны, продолжая бесплотные попытки произнести заклинание.
 
-**Kin**, a sound echoed on the opposite side of the hall. Minion that drove two people to the moribund state, picked up Тейза’s standard Меч that fell to the floor, и tossed it away.
+**Кин** — раздался звук с противоположной части зала. Миньон, что был причиной их агонии, подобрал лежавший на полу стандартный меч Тейзы и отшвырнул его в сторону.
 
-The rest two did not move away from the broken window и the big door. It seemed that they judged that only one is enough to kill Ронье и her. That one, with a steadfast gait, was approaching in order to deliver the finishing blow.
+Остальные двое так и не сдвинулись, стоя у разбитого окна и распахнутой двери. Видимо, они рассудили, что одного вполне хватит чтобы убить их с Ронье. Того самого, что сейчас твёрдой походкой приближался, дабы нанести завершающий удар.
 
-"Ку-Ку-ku...... Ку-ha-ha-ha-ha-ha-ha!"
+"Ку-ку-ку...... Ку-ха-ха-ха-ха-ха-ха!"
 
-— Император Крюгер blasted in distorted laughter in the middle of the hall.
+— Император Крюгер разразился искажённым хохотом из середины зала.
 
-"Amazing. Just one...... и this is a fighting power for just a гоблин-based fusion? Я have heard that soil blended with lots of blood и bones makes it a stronger minion, but isn’t it more than expected? After they died they still dedicate themselves to the surplus, Я must praise my former serfs for what they do...... Ha-ha-ha-ha-ha-ha!"
+"Потрясающе. Всего один...... и такова, значит, боевая мощь слияния с гоблином в основе? Я слыхал, конечно, что почва, в которую вмешано много крови и костей, позволяет создать более сильного миньона, но разве это не превосходит все ожидания? Даже после смерти они посвящают себя сюзерену, мне и вправду стоит похвалить своих крепостных, какие молодцы...... Ха-ха-ха-ха-ха-ха!"
 
-Ронье couldn’t even think about the meaning of words that reached her ears anymore.
+Ронье уже не осознавала значения достигавших её слов.
 
-It was getting darker и darker in her eyes. Император’s loud laughter dissolved away. The sensitivity only remained in the left hand immersed in the blood of Тейза. Its temperature was gradually fading.
+В её глазах темнело всё сильнее. Громкий смех Императора растворялся вдалеке. Чувствительность оставалась лишь в левой руке, залитой кровью Тейзы. Чья температура медленно падала.
 
-Finally, minion that came in front of her eyes swung up the left и right arms at the same time.
+Наконец, миньон показался в её поле зрения, он замахнулся одновременно двумя лапами.
 
-Unexpectedly ──
+Внезапно ──
 
-Right hand felt a gentle warmth.
+Правая рука ощутила мягкое тепло.
 
-She did not immediately understand what the hand was holding. It was a handle of the Меч Лунного Света, carefully wrapped with a slightly rough leather.
+Она не сразу поняла, что держала её рука. Это была рукоять Меча Лунного Света, аккуратно обёрнутая грубоватой кожей.
 
-**To-кун**, **to-кун**, through the pulsing heat Меч spoke to her. Unleash me, for Я will respond.
+**То-кун**, **то-кун**, меч говорил с ней через пульсацию тепла. Высвободи меня, и да отвечу же.
 
-*However, Я can’t do "that thing". Меч Лунного Света is certainly a high priority instrument, but it is not a divine object.  
-Sacred treasure is a weapon made from a legendary essence such as a divine animal<sup><a href="#Prim9">9</a></sup> or a sacred tree, not a metal refined by a person. That is why sacred treasures have their own memories и can communicate with their masters.  
-On the other hand, it was some human blacksmith who forged the Меч Лунного Света, so there is no memory of the preceding existence. Although it may become familiar with hands enough to accustom itself to the user, but to cause further phenomena, it simply cannot.  
-Cannot. Cannot…….*
+*Однако, я же не могу сделать "ту штуку". Меч Лунного Света, конечно, инструмент высокого приоритета, но он не божественный инструмент.  
+Божественный инструмент — это оружие, созданное из легендарной сущности, такой как священный зверь<sup><a href="#Prim13">13</a></sup> или священное дерево, а вовсе не из металла, обработанного человеком. Поэтому божественные инструменты обладают памятью и способны общаться со своими владельцами.  
+С другой стороны, Меч Лунного Света выковал какой-то кузнец-человек, так что памятью о прежнем своём существовании он не обладает. Хотя со временем он и притрётся к рукам, станет более привычным к использованию, но породить некий больший феномен он просто не может.  
+Не может. Не может…….*
 
-On the verge of her и Тейза’s death, as the time became weirdly stretched, in her head Ронье was repeating the single word over и over.
+На грани их с Тейзой смерти, когда время стало странно растянутым, в своей голове Ронье повторяла одно и тоже слово снова и снова.
 
-Suddenly, she felt as if she has heard a new voice.
+Внезапно она почувствовала, словно услышала чей-то голос.
 
-*── Not only the Меч. Even clothes, shoes, tableware...... every single particle generated by sacred art, if you open your heart и share your love they will surely respond. Maybe, people too.......*
+*── Не только с мечом<sup><a href="#Prim14">14</a></sup>. Одежда, обувь, утварь...... каждая частичка, созданная священным искусством, если откроете им своё сердце и поделитесь любовью, они ответят. Может, и люди тоже........*
 
-She had heard that a long time ago somewhere far away, the words of the deceased elite мечник-стажёр Юдзио.
+Когда-то давным-давно, где-то далеко-предалеко, она слышала эти слова покойного элитного мечника-стажёра Юдзио.
 
-To open the heart.
+Открыть сердце.
 
-It was the owner Ронье who had decided that Меч Лунного Света had no spirit. But looking back at what happened there, it was Вице-Премьер-Мечник Асуна who told her to pick one of the three Мечs, but it was Ронье who was left with the choice of the Меч, not her. At that moment, something drifted Ронье's right hand, attracted it to this Меч with the silver guard in a form of a crescent moon.
+Это ведь Ронье как владелец решила, что в Мече Лунного Света нет духа. Но если вспомнить что тогда случилось, Вице-Премьер-Мечник Асуна сказала ей выбрать один из трёх мечей, но окончательный выбор она оставила именно за  Ронье. В тот миг, что-то отклонило правую руку Ронье, что-то привлекло её к этому мечу с серебряной гардой в форме полумесяца.
 
-And now, the Меч which Ронье named "Moonlight" was speaking to her to help its troubled owner. Believe in the Меч, open your heart и release it’s memory.
+И сейчас меч, что Ронье нарекла "Лунным Светом", заговорил с ней, чтобы помочь своей попавшей в беду владелице. Поверь в меч, открой своё сердце и освободи его память.
 
-With warmth transmitted from the handle to the right hand, и the warmth of the left hand immersed in Тейза’s blood transmitted to the core of her body, Ронье cried out using all her modest powers:
+Чувствуя, как тепло от меча распространяется по правой руке, а тепло от левой руки, погружённой в кровь Тейзы, достигает самого центра её тела, Ронье выкрикнула изо всех своих скромных сил:
 
-"**Enhance Armament!**"
+"Энханс Армамент!"
 
-She intended to scream, but the voice was so weak that she could barely hear it herself.
+## Продолжение следует...
+
+<!--She intended to scream, but the voice was so weak that she could barely hear it herself.
 
 But the Меч и the essence of the world responded to Ронье’s call.
 
@@ -1403,7 +1402,8 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 5. <a name="Prim8"></a>Я несколько раз перепроверил, и a) да, я впервые об этом слышу, б) нет, в этой фразе нет никакого намёка на слова “невинных” и т.п., и в) да, это делает сцену в здании стражи из 19 том совершенно невозможной.
 6. <a name="Prim9"></a>Да, здесь то же самое, что с Чуделкиным - так в оригинале.
 7. 6. <a name="Prim10"></a>*Activate*, "активировать", ну или возможно, "активируйтесь", в зависимости от того, как там построено их восприятие команд.
-<!--6. <a name="Prim11"></a>[Katashiro](http://yokai.com/katashiro/).
-7. <a name="Prim12"></a>These numbers, despite expectation, were written with kanji, e.g. 三千. Don't know the reason, but it’s just strange because usually all numbers related to Stacia’s window in these books are written using Западной notation, e.g. 3000.
-8. <a name="Prim13"></a>Я slightly simplified here, original refers to a “divine beast” (essentially, [this](https://ja.wikipedia.org/wiki/瑞獣)), as well as to “divine bird” (神鳥). Given that term “divine beast” for sure covers some birds, I’ve no idea what Ронье means here.
-10. <a name="Prim14"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
+6. <a name="Prim11"></a>[Katashiro](http://yokai.com/katashiro/).
+7. <a name="Prim12"></a>Эти числа, на удивление, были записаны кандзи, т.е. "三千". Причина не ясна, но это прежде всего странно, поскольку обычно все числа, связанные с окном Стасии, в этих книгах представлены, используя западную запись, т.е. "3000".
+8. <a name="Prim13"></a>Я здесь немного упростил, оригинал говорит о “священных зверях” (по сути, [это](https://ja.wikipedia.org/wiki/瑞獣)), равно как и о “священных птицах” (神鳥). С учётом того, что термин “священный зверь” определённо распространяется и на некоторых птиц, я без понятия, что Ронье здесь имеет в виду.
+9. <a name="Prim14"></a>Это из 19-го тома, они говорят о *связи* с мечом и т.д.
+<!--10. <a name="Prim15"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
