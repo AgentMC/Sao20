@@ -1081,7 +1081,7 @@ Another ten mels. Eight mels. Seven mels.......
 
 — shouted emperor Krueger who seems to have recovered from the spiritual light damage from the center of the hall.
 
-"**Shyu-gooo**!!"
+"**Shyu-ghoooh**!!"
 
 Minions, despite being similar to mountain goblins, did not have similar voices; which responded was the one curled near the broken window. Stood in front of the escape path, expanded the wings of both arms and barked. The window Tiese broke became completely hidden by the huge body, and the color of the sun went away.
 
@@ -1098,7 +1098,7 @@ While desperately thinking, Ronye tried to hold up the sword in her right hand.
 
 Suddenly, something was heard.
 
-Countless resonating silver bells. As if all stars and planets of entire sky started to make boisterously noise.
+Countless resonating silver bells. As if all stars and planets of entire sky started to make boisterous noise.
 
 Hundreds of angels sing like
 
@@ -1150,9 +1150,9 @@ Ronye who opened both eyes to the limit also noticed what the woman was firmly h
 
 "Asuna-sama....... Kirito-senpai......"
 
-Small Tsukigake ran hard to Centoria and brought them here. The rainbow-colored light that decomposed the large mansion must be the power of Stacy God, "unlimited terrain manipulation", which only Asuna possesses in whole Underworld.
+*Small Tsukigake ran hard to Centoria and brought them here. The rainbow-colored light that decomposed the large mansion must be the power of Stacy Goddess, "unlimited terrain manipulation", which only Asuna possesses in whole Underworld.*
 
-Somewhat later than Ronye and Tiese, emperor Krueger seemed to also have noticed the existence of people overlooking him from a far height. He bent loosely hanging fingers of the right hand bent like claws with creaking sound loud enough to hear even for Ronye who was standing away.
+Somewhat later than Ronye and Tiese, emperor Krueger seemed to also have noticed the existence of people overlooking him from a far height. He bent loosely hanging fingers of the right hand like claws with creaking sound loud enough to hear even for Ronye who was standing away.
 
 ![Image](/Translate/Img/p315.jpg)
 
@@ -1172,7 +1172,7 @@ Three fusion-type minions which received a new order quickly turned their faces 
 
 But Kirito, as if responding to Ronye’s callout, casually stretched his right hand down from the sky. There was a long black sword shining gold in the sunset in it. Kirito’s divine object, "Sword of the Night Sky".
 
-Three minions opened their mouths to the limit, and tried to breath a dark-colored ray.
+Three minions opened their mouths to the limit, ready to breath a dark-colored ray.
 
 Suddenly the surroundings rapidly darkened.
 
@@ -1188,9 +1188,9 @@ It seemed that emperor Krueger was also frightened by the new super phenomenon, 
 
 "Doesn’t matter! Shoot them!!"
 
-Three minions thrusted up heads that froze a moment and vigorously launched a shining purple light stream.
+Three minions thrusted up heads that froze a moment and vigorously launched shining purple light streams.
 
-Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward the miasmic mass that rushed at them with a strange sound reminiscent of the beast scream, Kirito sharply swung the Sword of the Night Sky down.
+Unlike the fire stream of a dragon, they were spheres with elongated tails. Toward the miasmic masses that rushed at them with a strange sound reminiscent of the beast scream, Kirito sharply swung the Sword of the Night Sky down.
 
 The vision of Ronye burned pure white.
 
@@ -1204,7 +1204,7 @@ At first, miasmic breath kept rising while eating the light grains, but then sha
 
 Ronye silently nodded to Tiese's whispering.
 
-*By shade and movement, these light spots are nothing but familiar light elements. However, what the light element-based techniques are limited to, is that even if a high-level practitioner uses both fingers, there can be only ten elements generated at the same time.  
+*By shade and movement, these light spots are nothing but familiar light elements. However, what the light element-based techniques are limited to, is that even if a high-level practitioner uses fingers of both hands, there can be only ten elements generated at the same time.  
 The number of light elements filling a wide surrounding space without gaps, at minimum is a few thousands...... and possibly more than a million.  
 I can infer how to generate it. Kirito's Sword of the Night Sky is equipped with an ability to absorb sacred power from the surrounding space itself — to be precise, it has "memory liberation technique" which is its superior power. With that power it sucked in the light of Solus and changed all the enormous amount of sacred power into light elements.*
 
@@ -1220,7 +1220,7 @@ It was then that the light that just drifted in space moved. Tens thousands of l
 
 Numerous light elements penetrated one after another into dark-gray bodies, making it to glow from the inside in pure white.
 
-Terrible monster, without a single scream, collapsed as liquid.
+Terrible monsters, without a single scream, collapsed as liquid.
 
 The splashing mucus evaporated while falling through the air, and mountain goblins rolled out of it. They were unconscious, clothes and accessories were all lost, but it seemed that they were not injured.
 
@@ -1240,7 +1240,7 @@ Her friend strongly nodded to this loud question:
 
 "That's me who should... thank you, Tiese."
 
-They hugged each other for a moment and let each other go. Ronye quickly checked the condition of injuries, it seemed that the broken left arm bones are not perfect but were holding together, and only thin scars remained on the right feet and right knees. Tiese, who was more seriously injured, seemed to have no difficulty moving either.
+They hugged each other for a moment and let each other go. Ronye quickly checked the condition of injuries, it seemed that the broken left arm bones are not perfect but were holding together, and only thin scars remained on the right feet and right knee. Tiese, who was more seriously injured, seemed to have no difficulty moving either.
 
 Tiese's standard sword thrown away by a minion laid on the opposite side of the hall from which only floor remained. She stopped Tiese who tried to begin walking there with a left hand:
 
@@ -1248,9 +1248,9 @@ Tiese's standard sword thrown away by a minion laid on the opposite side of the 
 
 To Ronye’s words, her best friend nodded with tense facial expressions. She was worried about the mountain goblins lying on the floor, but there was also the possibility that the emperor will try to use them again in some way. While carefully holding the Sword of the Moonlight, the other one gradually approached the cage of light elements.
 
-Kirito and Asuna descend from the sky along a wide arc. Ronye and Tiese’s role was to make sure emperor doesn’t do anything weird until the two land.
+Kirito and Asuna were descending from the sky along a wide arc. Ronye and Tiese’s role was to make sure emperor doesn’t do anything weird until the two land.
 
-When two people stepped on the floor three meters from in the cage, black robe shook a little.
+When two people stepped on the floor three meters from the cage, black robe shook a little.
 
 "Ku-ku, ku-ku-ku-ku......"
 
@@ -1266,7 +1266,7 @@ She spoke as severe as possible, and laughter finally stopped, but in spite of t
 
 "Option...... you say? You don’t understand. You don’t understand anything."
 
-The emperor who muttered the answer raised the hood a little. Ronye also glanced at the sky, and the Kirito’s group were already reaching just above the mansion. About two seconds or so remained until two people get down.
+The emperor who muttered the answer raised the hood a little. Ronye also glanced at the sky, and the Kirito and Asuna were already reaching just above the mansion. About two seconds or so remained until two people get down.
 
 *For sure, there’s nothing he can do.*
 
@@ -1284,7 +1284,7 @@ That said, the emperor’s body collapsed forward.
 
 Eleven black lumps quickly became mucus heaps and evaporated.
 
-When Kirito and Asuna landed behind them, only a piece of black cloth and two units of jewelry remained on the carpet.
+When Kirito and Asuna landed behind them, only pieces of black cloth and two units of jewelry remained on the carpet.
 
 One was the golden ring with a hawk spreading it’s wings over a white lily engraved.
 
@@ -1370,7 +1370,7 @@ What was shining was a gem that laid on the floor. The necklace Emperor Krueger 
 
 "Senpai! That is the culprit of everything!"
 
-That moment when Ronye shouted and Kirito took a step towards a red flash.
+That moment when Ronye shouted, Kirito took a step towards a red flash.
 
 The gem rose into the sky with terrible momentum.
 

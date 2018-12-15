@@ -1045,350 +1045,348 @@
 
 "Энханс Армамент!"
 
-## Продолжение следует...
+По крайней мере она собиралась выкрикнуть, но голос был столь слаб, что она сама едва его слышала.
 
-<!--She intended to scream, but the voice was so weak that she could barely hear it herself.
+Но меч и сущность мира ответили на зов Ронье.
 
-But the Меч и the essence of the world responded to Ронье’s call.
+Гарда и клинок Меча Лунного Света испустили ослепительно яркое серебряное сияние. В тот миг, когда свет озарил его, миньон, уже бывший на грани того, чтобы рубануть вниз своими когтистыми лапами, отпрыгнул назад, а двое остальных, что блокировали выходы, вместе с Императором Крюгером, продолжавшим до этого громко смеяться, закрыли глаза и изогнули тела.
 
-The guard и blade of the Меч Лунного Света emitted a dazzlingly bright silver shine. The moment it was shined by the light, minion that was on the verge of descending the claws of both hands, jumped back, и the other two blocking the exit, together with Император Крюгер who continued to laugh loudly, covered the eyes, twisted bodies.
+Вместе с тем, Ронье почувствовала, как боль в правой ноге, пронзённой ножом, и в левой руке, размозжённой хвостом, отступает. Поток крови, льющийся из ран Тейзы, тоже стремительно спадал.
 
-At the same time, Ронье felt that the pain in the right leg pierced by a knife и in the left arm crushed by the tail, goes away. The blood streaming from Тейза’s wounds also rapidly reduced the flow.
+'Полный контроль вооружения'.
 
-'Complete armament control'.
+Сама суть силы инкарнации, которая подвластна лишь лучшим рыцарям с божественными инструментами, истинная загадка.
 
-Essence of incarnational force that only the top knights can use with divine objects, a true mystery.
+Наверное, Меч Лунного Света выпустил часть собственной Жизни в виде улучшенной версии Искусства лечения световыми элементами. Это была довольно простая разновидность полного контроля вооружения, однако то, что Ронье, всего-то год пробывшая учеником рыцаря, была способна активировать его, не проведя до этого время в долгих тренировках, было истинным чудом.
 
-Perhaps the Меч Лунного Света released part of its own Life as an enhanced version of the light element healing art. It was a fairly simple category of a complete armament control, but it was a true miracle that Ронье, who has only been a year since becoming an apprentice knight, was able to activate it without doing the full-scale study first.
+Свет изливался из клинка более десяти секунд, затем начал потихоньку спадать, пару раз мигнул и исчез.
 
-The light of the blade continued for more than ten seconds, then gradually faded little by little, flashed couple of times и disappeared.
+Кровотечение из глубоких раз, прорезанных сквозь тело Тейзы, прекратилось, немного цвета вернулось её лицу. Но в сознание она пока не пришла, да и левая рука и правая нога Ронье не излечились до конца.
 
-Bleeding from deep cuts carved through Тейза’s body ceased, a little bit of redness returned to the face. However, consciousness has not returned yet, и Ронье's left arm и right foot were not completely cured.
+С другой стороны, троицу миньонов сильно обожгло световым анти-атрибутом, и от их тел валил сизый дым, но они всё ещё не разложились. Похоже, повреждения были поверхностными, и вскоре они нова начнут двигаться.
 
-On the other hand, three minions were burned with the anti-attribute light и gray smoke was rising from their whole bodies, but they have not decomposed yet. Apparently, the damage is superficial и they will start moving soon.
+*Я не хочу отпускать Императора, но и обменять жизнь Тейзы на его я не могу. Нужно сбежать из зала прежде, чем миньоны снова атакуют.*
 
-*Я do not want to let the Император go, but Я cannot exchange Тейза's life to his one. Я have to escape from the hall before minions attack again.*
+Она собрала остатки энергии, которой поделился с ней Меч Лунного Света, и поднялась, держа Тейзу левой рукой. Что до выхода, дверь в зале была шире, но если миньон бросится за ними, сбежать не получится. Не оставалось другого выхода, кроме как спасаться через передний двор, пролезая сквозь разбитое окно.
 
-She gathered up the energy that Меч Лунного Света gave them и rose up with Тейза on her left hand. As for the exit, the door to the hallway was larger, but if minion follows, they will not be able to escape. There was no choice but to go to the front yard through the broken window.
+"Тейза, постарайся ещё немного!"
 
-"Тейза, try hard a little more!"
+— прошептала Ронье своей умирающей лучшей подруге и начала двигаться к окну, находившемуся в 15 мелах, так быстро, как только могла.
 
-— Ронье whispered to her dying best friend и began running to a window 15 mels away.
+С каждым шагом, искры боли пронзали её левую руку и правую ногу. Она внезапно почувствовала себя очень плохо, в горле запершило.
 
-With every step, a pain burst in sparkles over her left arm и right leg. She suddenly felt bad и throat got sore.
+Ещё десять мелов. Восемь мелов. Семь.......
 
-Another ten mels. Eight mels. Seven mels.......
+"Миньоны, закрыть окно!"
 
-"Minions, close the window!"
+— выкрикнул Император Крюгер, похоже, пришедший в себя после урона от духовного света в середине зала.
 
-— shouted Император Крюгер who seems to have recovered from the spiritual light damage from the center of the hall.
+"**Шьу-гхооо**!!"
 
-"**Shyu-gooo**!!"
+Хоть эти миньоны и походили на горных гоблинов, голосами отличались; ответившим был тот, что свернулся в клубок у разбитого окна. Закрыв собой путь к отступлению, он расправил крылья, развёл в стороны лапы и залаял. Окно, которое Тейза разбила, оказалось совершенно скрыто массивным телом, и солнечный отсвет окончательно пропал.
 
-Minions, despite being similar to mountain гоблинов, did not have similar voices; which responded was the one curled near the broken window. Stood in front of the escape path, expanded the wings of both arms и barked. The window Тейза broke became completely hidden by the huge body, и the color of the sun went away.
+А ещё, позади один за другим завыли два других миньона.
 
-Also, behind, two other minions barked one after another.
+Чтобы сбежать, нужно было избавиться от того, что стоял перед окном. Но Ронье не могла атаковать миньонов совмещённого типа. Даже если попытаться просто отрубить ему ногу, дабы лишить возможности двигаться, вызовет "печать на правом глазу", и она застынет, точно как Тейза только что.
 
-To escape, they needed to eliminate the one in front of the window. But Ронье couldn’t attack the миньонов совмещённого типа. Even just trying to slash its leg to make it stop moving will trigger the "seal of the right eye" и she will not be able to move just like Тейза previously.
+*Единственной возможностью остаётся использование полного контроля вооружения. Если его суть - лечебная по природе, то, что обжигает  плоть миньонов снаружи, не навредит гоблинам внутри. Но сколько осталось Жизни у  Меча Лунного Света? Нет времени проверять через окно Стасии.  
+Меч Лунного Света рассыпется в прах, если во время полного контроля вооружения его Жизнь истечёт.  
+Всё равно.  
+Это для того, чтобы спасти Тейзу, простишь ли ты меня, меч?*
 
-*The only remaining means is to just use complete armament control. If it has curative spirit, burning the flesh of Minion should not hurt the гоблинов inside. But how much more Меч Лунного Света's Life has left? Я cannot afford confirming it through the Stacia’s window.  
-Меч Лунного Света will crumble if it runs out of Life by complete armament control.  
-Still.  
-If it is to save Тейза, will the Меч forgive me?*
+В отчаянии так думая, Ронье попыталась поднять меч правой рукой.
 
-While desperately thinking, Ронье tried to hold up the Меч in her right hand.
+Внезапно, раздался звук.
 
-Suddenly, something was heard.
+Бессчётные звенящие в унисон серебряные колокольчики. Словно все звёзды и планеты на целом небосводе стали неистово шуметь.
 
-Countless resonating silver bells. As if all stars и planets of entire sky started to make boisterously noise.
+Сотни ангелов, поющих
 
-Hundreds of angels sing like
+ЛА ─────────
 
-LA ─────────
+Под этот захватывающий звук, сквозь потолок зала пролилась вниз радуга из света.
 
-Along with the spectacular sound, a rainbow of light poured down through the ceiling of the hall.
+*Свет столь чистый, словно он и вовсе не принадлежит этому миру, но миньонов он не повреждает.* Она моргнула покрасневшими глазами и стала зачарованно смотреть на потолок.
 
-*This light is as clean as if it doesn’t belong to this world, but it doesn’t damage minions.* She blinked red eyes, и looked up at the ceiling, perplexed.
+Внезапно, сквозь потолок прошла световая сетка.
 
-Suddenly a thin grid of light ran through the ceiling.
+Свет становился всё более плотным. Потолок превращался в дюжины отдельных досок. Не смотря на то, что доски оказались полностью разъединены, по какой-то причине они не падали. Плывя в воздухе, они разъехались в стороны.
 
-Light was becoming more и more thick. The ceiling was being decomposed into dozens of boards. Although the boards were completely separated, they did not fall at all for some reason. While floating in the air, they skidded sideways.
+Потолок был не единственным, что разбиралось на части. Стены второго этажа, крыша, даже мебель была охвачена радужным светом, и они беззвучно разделялись и улетали в стороны. Словно бы дом, собранный из идеально подогнанных кусочков, взорвался изнутри.
 
-It was not only the ceiling being disassembled. The walls of the second floor, the roof, even the furniture was wrapped in rainbow-colored light, и they were separated и moved outwards without any sound. It was as if the house, previously assembled from precise building blocks crumbled from the inside.
+Волна разборки, наконец, достигла стен первого этажа. Серый камень, из которого были выложены казавшиеся нерушимыми стены, разделился на фрагменты и поплыл в передний двор. Стеклянное окно покинуло раму и последовало за ним.
 
-The wave of disassembly finally reached the walls of the first floor. The gray stone composing the stone walls that seemed to be quite sturdy broke apart и moved to the front yard. A glass window left the frame и chased it.
+Всего за какой-то десяток секунд громадный особняк оказался полностью разобран, от него остался один лишь пол. Ангельское пение исчезло, радужный свет пропал.
 
-The vast mansion was completely decomposed, leaving only the floor in only a matter of ten seconds. Angels singing dissolved, rainbow-colored light faded.
+Вслед за чем мириад строительных блоков, висевших в воздухе вокруг пола, с ужасным грохотом рухнул вниз.
 
-Immediately afterwards, a myriad of building blocks floating outside the floor dropped with tremendous roar.
+Когда эхо разрушительного громыхания рассеялось, Ронье уже не была в особняке. Её ноги всё ещё были погружены в тёмный ковёр, но над головой простиралось вечернее покрасневшее небо. Нижний край алого Солуса касался Горной Гряды-на-Грани; Северный ветер, всё ещё полный зимнего холода, колыхал волосы девушек.
 
-When the echo of thunderous destruction sound fell, Ронье was not in the mansion anymore. Her feet were still in a dark carpet, but the evening reddening sky spread overhead. The lower edge of crimson Solus touched the Mountain Range at the Edge; the Северной wind still full of winter coldness shook hair of the two.
+Трое миньонов и Император Крюгер застыли, поражённые. Будь это обычные миньоны, что просто следовали приказам, они бы продолжали нападать, не обращая внимания на происходившие вокруг перемены, но благодаря тому, что из-за совмещения у них было нечто вроде сознания, они казались неуверенными, что делать дальше.
 
-Three minions и Император Крюгер froze, stunned. If it had been an original minion that simply obeys instructions, it would have continued attacking without any concern for changes around, but because the совмещённого типа one had a kind of consciousness, it seemed to be confused about what to do.
+Впрочем, голова Ронье точно так же отказывалась работать. Большой зал, надежды на спасение из которого, как она считала, уже не было — нет, вся вилла Императора, наполненная злобой и страхом, ничего не смогла противопоставить сверхфеномену, полностью разобравшему её за каких-то десять секунд.
 
-But Ронье’s head stopped working the same exact way. A large hall she thought there was no hope to escape — no, the entire Император's villa filled with mАлиса и fear couldn’t oppose against the super phenomenon that decomposed it completely within about ten seconds.
+"... Ронье."
 
-"... Ронье"
-
-Suddenly a faint voice reached her left ear. Then at last the thinking ability returned, и she called the name with the same blurred voice.
+Внезапно, её левого уха коснулся слабый голос. Тогда к ней и вернулась способность мыслить, и она произнесла имя таким же неуверенным голосом.
 
 "Тейза......!"
 
-Her best friend regained consciousness, but was not looking at Ронье. Her autumn leaves-colored eyes did not move away from a point in the Южной sky.
+Её лучшая подруга вернулась в сознание, но смотрела она не на Ронье. Её глаза цвета осенних листьев не отрывались от некоей точки в южном небе.
 
-Ронье looked up too, filled with curiosity.
+Ронье тоже посмотрела вверх полным любопытства взглядом.
 
-A small shadow floated around the boundary of wide sky dyed bright golden yellow и madder red.
+Маленькая точка виднелась у самой границы необъятного неба, залитого ярким золотисто-жёлтым и мареновым красным.
 
-One, not two. A woman wearing a pearl dress, her long brown hair flutters on the breeze. The right hand lowering a fine naked Меч.
+Один, нет, двое. Девушка в жемчужном платье, бриз теребит её длинные коричневые локоны. Правая рука опускает тонкий обнажённый клинок.
 
-And a man with black hair wearing clothes both top и bottom colored black too, his right hand wrapped around woman’s waist. The hem of the cloak deformed into gently flapping dragon wings.
+И парень с чёрными волосами, одежды которого и верхом и низом были того же чёрного цвета, его правая рука обнимает девушку за талию. Подол плаща превращён в легко помахивающие драконьи крылья.
 
-Ронье who opened both eyes to the limit also noticed what the woman was firmly holding with her left arm. A creature wrapped in light-yellow feathers. Little dragon with long neck и tail и small wings.
+Ронье, до предела распахнувшая глаза, ещё заметила, что девушка кое-кого держала своей левой рукой. Зверушку, покрытую бледно-жёлтыми перьями. Дракончика с длинными шеей и хвостом, и маленькими крылышками.
 
 "....... Цукигаке......"
 
-— she muttered with shivering voice, trying hard to breathe in while feeling something hot burning in the throat. и called the names of the two people:
+— пробормотала она дрогнувшим голосом, судорожно пытаясь вдохнуть наперекор огню, пылающему в горле, и назвала имена тех двоих:
 
 "Асуна-сама....... Кирито-сенпай......"
 
-Small Цукигаке ran hard to Центория и brought them here. The rainbow-colored light that decomposed the large mansion must be the power of Stacy God, "unlimited terrain manipulation", which only Асуна possesses in whole Underworld.
+*Маленькая Цукигаке изо всех сил бежала в Центорию и привела их сюда. Радужный свет, разобравший большущий особняк на части, — это, должно быть, сила богини Стасии, "неограниченное манипулирование ландшафтом", которым во всём Подмирье обладает одна только Асуна.*
 
-Somewhat later than Ронье и Тейза, Император Крюгер seemed to also have noticed the existence of people overlooking him from a far height. He bent loosely hanging fingers of the right hand bent like claws with creaking sound loud enough to hear even for Ронье who was standing away.
+Чуть позже, чем Ронье и Тейза, Император Крюгер тоже заметил людей, смотрящих на него с высоты. Он изогнул бывшие до этого расслабленными пальцы правой руки в некое подобие когтей с такой силой, что хруст достиг даже Ронье, стоящую поодаль.
 
 ![Image](/Translate/Img/p315.jpg)
 
-"............ Объединённого Совета Мира Людей...... Премьер-Мечник. For how long will you disturb us?"
+"............ Объединённый Совет Мира Людей...... Премьер-Мечник. Доколе будешь ты препятствовать нам?"
 
-The emitted voice was distorted и cracked as if it were a curse. The black robe's skirt abruptly turned, и a thin like a dead tree branch left arm pointed to the sky:
+Раздавшийся крик был искажён и надтреснут, как какое-нибудь проклятие. Подол чёрного плаща резко развернулся, и тонкая, словно ветвь мёртвого дерева, левая рука ткнула в небо:
 
-"Minions, shoot down those irreverents!"
+"Миньоны, сбить этих нахалов!"
 
-Three миньонов совмещённого типаs which received a new order quickly turned their faces towards the sky, opened the pointed mouth wide. Purple miasma wriggled eerily behind the rows of sharp fangs.
+Троица миньонов совмещённого типа, получив новый приказ, резво подняли морды к небу и широко разинули пасти. За частоколом острых зубов подрагивала и переливалась фиолетовая слизь.
 
-*No way fused minion can have attacking belch...... that would be "**breath**" in sacred language, like dragons’ fire stream?*
+_Да быть того не может, чтобы совмещённые миньоны могли изрыгать...... это будет "брэс" на священном языке, огненный поток, как драконы?_
 
-"Сенпай! You are being targeted!"
+"Сенпай! В вас целятся!"
 
-— Ронье desperately shouted, but her voice was too weak, she did not think that it reached the two floating as high as 100 mels.
+— отчаянно выкрикнула Ронье, но голос её был слишком слаб, она не рассчитывала, что он достигнет парящей на более чем 100-меловой высоте пары.
 
-But Кирито, as if responding to Ронье’s callout, casually stretched his right hand down from the sky. There was a long black Меч shining gold in the sunset in it. Кирито’s divine object, "Меч Ночного Неба".
+Однако Кирито, словно отвечая на зов Ронье с небес, просто протянул свою правую руку. В ней был длинный чёрный меч, поблёскивавший золотом в лучах заката. Божественный Инструмент Кирито, "Меч Ночного Неба".
 
-Three minions opened their mouths to the limit, и tried to breath a dark-colored ray.
+Трое миньонов до предела распахнули пасти, готовые извергнуть лучи цвета тьмы.
 
-Suddenly the surroundings rapidly darkened.
+Внезапно вокруг резко потемнело.
 
-In the beginning, Ронье thought that the streams from minions’ mouths blocked the sunlight. But she quickly understood that was not the case. It was not only in the vicinity of minions that it got dark. The forest surrounding the mansion sank in black shadows, despite a bright scarlet illuminating it moments ago. The sunset sky became dark purple, и even some stars were twinkling in it.
+В начале, Ронье подумала, что это лучи тьмы из пастей миньонов закрыли собой свет. Но скоро она поняла, что это было не так. Ведь потемнело не только вблизи миньонов. Окружающий особняк лес потонул в тёмных тенях, лишившись оттенка яркого багрянца, освещавшего его секунду назад. Закатное небо стало тёмно-фиолетовым, и на нём даже появилось несколько звёздочек.
 
-And even Solus floating just above the Западной horizon lost its light as if it had been dimmed by Lunaria.
+И даже висящий над западным горизонтом Солус утратил свою яркость, словно его затемнил свет Лунарии.
 
-Within this suddenly fallen night, there was only one intensely shining thing.
+Среди этой внезапно наступившей ночи лишь одна вещь источала яркий свет.
 
-The Меч Ночного Неба Кирито was holding in his right hand. The blade glowed so dazzling golden light that it could not even be looked directly at.
+Меч Ночного Неба, что Кирито держал в право руке. Клинок горел столь ослепительным золотым светом, что на него было невозможно смотреть.
 
-It seemed that Император Крюгер was also frightened by the new super phenomenon, which even exceeded the deconstruction of the mansion. However, he raised his left hand again и shouted boldly.
+Император Крюгер тоже выглядел напуганным этим новым супер-феноменом, превосходящим по масштабам даже разрушение особняка. Однако, он снова поднял левую руку и без изысков выкрикнул.
 
-"Doesn’t matter! Shoot them!!"
+"Неважно! Огонь по ним!!"
 
-Three minions thrusted up heads that froze a moment и vigorously launched a shining purple light stream.
+Троица миньонов подняли вверх на мгновенье замершие головы и с силой выпустили потоки сверкающего фиолетового света.
 
-Unlike the fire stream of a dragon, it was a sphere with elongated tail. Toward the miasmic mass that rushed at them with a strange sound reminiscent of the bВосточной scream, Кирито sharply swung the Меч Ночного Неба down.
+В отличие от драконьего Огненного Потока, это были сферы с удлинёнными хвостами. Кирито резко рубанул Мечом Ночного Неба в направлении слизистых сгустков, летящих к ним со странным звуком, напоминавшим крик зверя.
 
-The vision of Ронье burned pure white.
+Глаза Ронье обожгла чистая белизна.
 
-Although she could not help narrowing her eyes because of too bright glare, Ронье tried to see what was going on without turning her face away.
+Хоть она и ничего не могла поделать с прищуром из-за слишком яркого свечения, Ронье попыталась хотя бы не отворачивать лицо, чтобы видеть что происходит.
 
-It was a huge number of particles emitting white light. Pure heatless white light filled the surrounding space.
+Белый свет излучали громадное количество частиц света. Чистый негреющий белый свет заполнил собой всё окружающее пространство.
 
-At first, miasmic breath kept rising while eating the light grains, but then sharply decreased, as if a body of ice fell into hot water, и disappeared without a trace.
+Сперва выпущенная слизь продолжала лететь, поглощая крупицы света, но затем стала резко снижаться и, подобно куску льда, упавшему в горячую воду, растворилась без следа.
 
-"............... This all, light elements...?"
+"............... Это всё — световые элементы...?"
 
-Ронье silently nodded to Тейза's whispering.
+Ронье молча кивнула на шёпот Тейзы.
 
-*By shade и movement, these light spots are nothing but familiar light elements. However, what the light element-based techniques are limited to, is that even if a high-level practitioner uses both fingers, there can be only ten elements generated at the same time.  
-The number of light elements filling a wide surrounding space without gaps, at minimum is a few thousands...... и possibly more than a million.  
-Я can infer how to generate it. Кирито's Меч Ночного Неба is equipped with an ability to absorb sacred power from the surrounding space itself — to be precise, it has "memory liberation technique" which is its superior power. With that power it sucked in the light of Solus и changed all the enormous amount of sacred power into light elements.*
+*Судя по оттенку и движению, эти световые точки — ничто иное как обычные световые элементы. Но вот чем техники на световых элементах были ограничены, так это тем, что даже если высокоуровневый практик использует пальцы обеих рук, он сможет создать только десять световых элементов.  
+Количество световых элементов, заполняющих всё вокруг без единого пробела, как минимум должно быть несколько тысяч...... а возможно и больше миллиона.  
+Я могу понять как они были сгенерированы. Меч Ночного Неба Кирито сам по себе обладает способностью поглощать Священную Силу из окружающего пространства — точнее, такова его "техника высвобождения памяти", его величайшая сила. С помощью этой силы он вобрал в себя свет Солуса и обратив весь этот огромный объём Священной Силы световыми элементами.*
 
-However, the element disappears or gets out of control the moment caster loses the concentration. Beginning from the training of holding one element on one finger, a practitioner would be already considered a full-fledged cleric if he or she can control five elements on one hand, but higher-ranked masters can control even ten of those with two hands. Both Ронье и Тейза could operate only five elements at that time.
+Однако, элементы исчезают или же выходят из-под контроля, стоит заклинателю потерять концентрацию. Тренировки начинаются с упражнения по созданию и удержанию одного элемента на одном пальце, и практик будет считаться полноценным клериком когда научится удерживать и управлять пятёркой элементов на одной руке, ну а высокоуровневые мастера могли управлять и десятью элементами сразу. И Ронье, и Тейза на то время могли управлять лишь пятью элементами.
 
-*How can he control tens thousands of elements at the same time?*
+*Так как у него получается одновременно контролировать десятки тысяч элементов?*
 
-— Ронье amazedly stared at the light elements falling like sparkling snow.
+— Ронье завороженно глядела на падавшие с неба подобно сияющему снегу световые элементы.
 
-On the other hand, minions opened their mouths again to shoot the miasmic breath.
+С другой стороны, миньоны снова открыли пасти, собираясь повторить дыхание слизью.
 
-It was then that the light that just drifted in space moved. Tens thousands of light elements flew altogether as if they have their own will и wrapped up three minions’ bodies in a swirl. Like at the time when Меч Лунного Света emitted spiritual light, their skins cracked и unpleasantly smelling smoke rose up, but it did not last for long.
+Тогда свет, просто плавающий в окружавшем пространстве, начал движение. Словно обладая собственной волей, десятки тысяч световых элементов полетели и водоворотом окутали тела трёх миньонов. Как и в тот раз, когда Меч Лунного Света испустил духовный свет, их кожа потрескалась и поднялся неприятно пахнущий дым, но это длилось недолго.
 
-Numerous light elements penetrated one after another into dark-gray bodies, making it to glow from the inside in pure white.
+Множество световых элементов один за другим проникали в серые тела, заставляя их светиться изнутри чистой белизной.
 
-Terrible monster, without a single scream, collapsed as liquid.
+Ужасные монстры, не издав ни звука, рухнули вниз, словно жидкие.
 
-The splashing mucus evaporated while falling through the air, и mountain гоблинов rolled out of it. They were unconscious, clothes и accessories were all lost, but it seemed that they were not injured.
+Разлетающаяся слизь испарялась прямо во время падения, и из неё выкатились горные гоблины. Они были вез сознания, вся одежда и аксессуары исчезли, но судя по всему травмированы они не были.
 
-Some of the light elements wrapped around Ронье и Тейза и healed their scars. Although they felt like collapsing right here right now due to unparalleled warmth и comfort it generated, they tried hard to keep standing.
+Немного световых элементов обернулись вокруг Ронье с Тейзой и подлечили их раны. Хотя благодаря непередаваемой теплоте и комфорту у них и возникло желание упасть вниз не сходя с места, они приложили все усилия, чтобы остаться на ногах.
 
-At the same time as the three миньонов совмещённого типаs completely disappeared и Ронье's и Тейза’s injuries was healed, the sky also regained the sunset color.
+В то время когда три миньона совмещённого типа полностью исчезли, а раны Ронье и Тейзы были исцелены, небо снова стало закатного цвета.
 
-Most of the huge number of light elements played their role и extinguished, but the last few hundreds were floating slightly above the floor forming ten rings. It was the Император Крюгер Норлангарт, of course, trapped in this slender cage created with those rings placed one above another. The rings sizes were just enough not touch the robe's cloth, и if he had moved just a little, the light elements would penetrate the clay body и decompose it in the same way as minions’ ones.
+Большинство из громадного количества световых элементов выполнили своё предназначение и погасли, но последние несколько сотен парили невысоко над полом, образуя десять колец. Запертым внутри этой высокой клетки, созданной из парящих один над другим световых колец, был, конечно же, никто иной как Император Крюгер Норлангарт. Размеры колец были таковы, что едва не касались ткани плаща, и стоило ему сдвинуться хоть немного, световые элементы бы пронзили тело и расплавили его также, как это только что случилось с миньонами.
 
-Under the sunset which got a little more reddish than before, the face of the man was completely shaded и the expression in the back of the hood could not be seen. However, it was unlikely that a person as arrogant as Император would have chosen to quietly become a prisoner.
+Лучи заката, ставшие ещё немного краснее, полностью скрывали лицо человека, и выражения под чёрным капюшоном видно не было. Однако вряд ли человек, столь надменный, каким был Император, молча согласился бы отправиться за решётку.
 
-"Тейза, can you stand?"
+"Тейза, стоять можешь?"
 
-Her friend strongly nodded to this loud question:
+Её подруга уверенно кивнула, отвечая на этот тихий вопрос:
 
-"Yup, it's all right now. Thank you, Ронье."
+"Ага, теперь всё хорошо. Спасибо, Ронье."
 
-"That's me who should... thank you, Тейза."
+"Это мне следует... спасибо, Тейза."
 
-They hugged each other for a moment и let each other go. Ронье quickly checked the condition of injuries, it seemed that the broken left arm bones are not perfect but were holding together, и only thin scars remained on the right feet и right knees. Тейза, who was more seriously injured, seemed to have no difficulty moving either.
+Они на мгновенье обнялись, а затем выпустили друг друга из объятий. Ронье быстро пробежалась по травмам, раздробленные кости левой руки были не идеальны, но держались вместе, и лишь тонкие шрамы оставались на правой ступне и над коленом. Тейза, получившая более серьёзные повреждения, также не выглядела так, словно ей было трудно двигаться.
 
-Тейза's standard Меч thrown away by a minion laid on the opposite side of the hall from which only floor remained. She stopped Тейза who tried to begin walking there with a left hand:
+Стандартный меч Тейзы, который отбросил миньон, лежал на противоположной стороне бывшего зала, от которого теперь остался лишь пол. Тейза начала двигаться в ту сторону чтобы подобрать его, но та остановила её вскинув левую руку:
 
-"Later. Keep an eye on the Император."
+"Потом. Следи за Императором."
 
-To Ронье’s words, her best friend nodded with tense facial expressions. She was worried about the mountain гоблинов lying on the floor, but there was also the possibility that the Император will try to use them again in some way. While carefully holding the Меч Лунного Света, the other one gradually approached the cage of light elements.
+На слова Ронье её лучшая подруга кивнула с напряжённым лицом. Она беспокоилась за горных гоблинов, лежавших на полу, но оставалась возможность, что Император каким-то образом попробует их использовать. Крепко сжимая Меч Лунного Света, другая осторожно приблизилась к клетке из колец световых элементов.
 
-Кирито и Асуна descend from the sky along a wide arc. Ронье и Тейза’s role was to make sure Император doesn’t do anything weird until the two land.
+Кирито и Асуна по широкой дуге спускались с неба. Роль Ронье и Тейзы состояла в том, чтобы убедиться, что Император не станет делать чего-то странного, пока те не приземлятся.
 
-When two people stepped on the floor three meters from in the cage, black robe shook a little.
+Когда подруги ступили на пол в трёх метрах от клетки, его чёрное одеяние слегка затряслось.
 
-"Ку-ku, Ку-Ку-Ку-ku......"
+"Ку-ку, ку-ку-ку-ку......"
 
- — sticky stifled laugh reached ears. A point of a Меч quickly aimed at him, but Император did not stop laughing.
+— ушей достиг липкий, удушающий смех. Кончик меча немедленно на него нацелился, но Император не перестал смеяться.
 
-"....... Крюгер Норлангарт. Your plans are already over, so please be quiet this time."
+"....... Крюгер Норлангарт. Вашим планам настал конец, так что будьте добры вести умолкнуть."
 
-She spoke as severe as possible, и laughter finally stopped, but in spite of this, words came after, arrogant as usual:
+Она сказала так строго, насколько смогла, и смех, наконец, остановился, но несмотря на это, слова, что они услышали вслед, прозвучали столь же высокомерно, как и обычно:
 
-"It is the repeating of what happened a year ago, girl. Could you imagine that back then Я have chosen the death filled with glory, и you will be humiliated this time?"
+"История годичной давности повторяется, девочка. Могла ли ты тогда себе представить, что я предпочту смерть в лучах славы, оставив тебе лишь сегодняшнее унижение?"
 
-"...... Unlike back then, there is no such option this time."
+"...... Теперь всё по-другому, на этот раз такой возможности нет."
 
-"Option...... you say? You don’t understand. You don’t understand anything."
+"Возможности...... говоришь? Ты не понимаешь. Ты ничего не понимаешь."
 
-The Император who muttered the answer raised the hood a little. Ронье also glanced at the sky, и the Кирито’s group were already reaching just above the mansion. About two seconds or so remained until two people get down.
+Капюшон Императора, пробормотавшего этот ответ, немного приподнялся. Ронье тоже взглянула в небо, где Кирито с Асуной уже летели прямо над особняком. До того, как та пара окажется внизу, оставались считанные секунды.
 
-*For sure, there’s nothing he can do.*
+*Ну теперь-то он уж точно ничего не сможет сделать.*
 
-Ронье's determination —
+— уверенно подумала Ронье,—
 
-Император Крюгер outstripped in an unexpected way.
+но Император Крюгер совершенно неожиданным образом превзошёл её ожидания:
 
-"I’m leaving for the time being, girl... See you again."
+"Пока что я ухожу, девочка... Ещё увидимся."
 
-That said, the Император’s body collapsed forward.
+Сказав это, Император всем телом рухнул вперёд.
 
-"Ah……!"
+"А……!"
 
-— Тейза exclaimed и stretched her left hand, but there was nothing she could do. Light element rings, not thicker than one milis, cut through the Император Крюгер's body и the black robe. The clay body slices dropped to the floor one after another from top to bottom with heavy thuds.
+— воскликнула Тейза и вытянула левую руку вперёд, но сделать ничего не смогла. Кольца световых элементов, не толще одного миллиса, легко пошли сквозь тело Императора Крюгера и чёрный плащ. С глухим звуком ломти императорского тела один за другим, сверху вниз, попадали на пол.
 
-Eleven black lumps quickly became mucus heaps и evaporated.
+Одиннадцать чёрных куч быстро превратились в горки слизи и испарились.
 
-When Кирито и Асуна landed behind them, only a piece of black cloth и two units of jewelry remained on the carpet.
+Когда Кирито и Асуна приземлились за их спинами, на полу оставались лишь куски чёрной ткани и два украшения.
 
-One was the golden ring with a hawk spreading it’s wings over a white lily engraved.
+Одно было золотым кольцом с выгравированным на нём орлом, распростёршим крылья над белой лилией.
 
-And the other one, glowing ominously on the dark chain, was a crimson gem ──
+А другое, было загадочно светившимся на тёмной цепочке багрового цвета камнем ──
 
-Кирито who has run to her, placed a hand onto Ронье’s shoulder:
+Подбежавший Кирито положил ладонь на плечо Ронье:
 
-"Sorry, Я got late! Are you OK?"
+"Прости, я задержался! Ты в порядке?"
 
-As soon as the tension has gone, Ронье felt like collapsing on the spot, but somehow she remained standing и looked in the face of Премьер-Мечник.
+Когда напряжение испарилось, Ронье почувствовала, что она готова рухнуть прямо здесь, но каким-то чудом осталась на ногах и посмотрела в лицо Премьер-Мечника.
 
-"Y-Yes, Я am fine. But the Император......."
+"Д-да, со мной всё хорошо. Но вот Император......."
 
-"E-Император!?"
+"И-император!?"
 
-Despite Кирито was greatly surprised, she couldn’t proceed with detailed explanation. Because some yellowish mass flew out from the arms of Асуна who tried to nurse Тейза и clung to Ронье’s face.
+Хоть Кирито и был сильно удивлён, она не сразу смогла перейти к подробному объяснению. Потому что из рук Асуны, занимавшейся Тейзой, вылетела какая-то жёлтая масса, прицепившаяся Ронье к лицу.
 
-"Кю-r-r-r!!!"
+"Кю-р-р-р!!!"
 
-As soon as she heard the cry, tears flowed from both Ронье’s eyes.
+Когда она услышала этот крик, слёзы наполнили глаза Ронье.
 
 "Цукигаке......!"
 
-She left beloved Меч to Кирито и hugged the little dragon firmly with both hands.
+Она отдала свой любимый меч Кирито и обняла маленького дракончика обеими руками.
 
-Looking closely, she saw mud that stuck to the feathers of Цукигаке и blood here и there, и that the fluffy tail feathers have fallen out miserably. *No matter how far Центория is, Я could never imagine it would be like this just by running through meadows и fields. Цукигаке surely made a hard work guiding Кирито here.*
+Приглядевшись, она увидела, что там и сям на перьях Цукигаке были глина и пятна крови, а пушистое хвостовое оперение было безжалостно выдрано. *Как бы далеко ни была Центория, я и представить не могла, что просто пробежать через поля и луга будет стоить ей так дорого. Цукигаке и вправду старалась изо всех сил, чтобы привести Кирито сюда.*
 
-As she gently stroked the little dragon who was chirping “ku~, ku~”, they heard a shrill chirp from the Восточной side of the forest.
+Когда она стала ласково поглаживать маленькую дракониху, курлыкавшую “ку~, ку~”, из восточной части леса до них донеслось резкое чириканье.
 
-Light-blue fur ball jumped out of bushes и rushed to them. When it reached the floor surface by slipping through the remains of the mansion piled up in the front yard, it crashed into Тейза.
+Шар светло-голубого пуха вылетел из кустов и понёсся на них. Он проскочил через остатки особняка, кучей валявшиеся на земле, и достигнув поверхности пола, врезался в Тейзу.
 
 "Шимосаки!!"
 
-— Тейза also shouted, firmly holding the love dragon. Next to her, Асуна said with a gentle smile:
+— тоже воскликнула Тейза, крепко прижав любимого дракона. Стоящая возле неё Асуна сказала, ласково улыбнувшись:
 
-"Without Шимосаки’s chirping и the brilliance of light elements glimmering through the window of the mansion, we wouldn’t have noticed this place. Everyone did a good job here."
+"Без криков Шимосаки и без сияния световых элементов сквозь окно особняка, мы бы никогда не нашли это место. Все здесь хорошо постарались."
 
-"…………Yes……"
+"………… Да……"
 
-— Тейза answered with the wet voice, Шимосаки chirped proudly at her chest "Ку-ру-ру!" Цукигаке answered "Кю-ру-ру!" In addition, "Кю-kyu!" — a third cry echoed.
+— ответила Тейза влажным голосом, Шимосаки гордо чирикнул "Ку-р-р!" у неё на груди, Цукигаке отозвалась "Кю-р-р!" А ещё, "Кю-кю!" — раздался третий крик.
 
 "............!?"
 
-In response to several surprised looks trying to find a source of the voice, a much smaller creature, a little smaller than the young dragons, came out of Кирито's coat, ran up и sat down on his head. A brown bВосточной with profusely long ears, something between a rabbit и a rat, look around at everyone и as if complaining of something again cried "Kyu!!!".
+Несколько удивлённых пар глаз, пытавшихся разыскать источник звука, увидели, как намного меньшее по размеру существо, меньше даже, чем маленькие драконы, выползло из пальто Кирито, забралось наверх и уселось у него на голове. Коричневого цвета зверушка, с чрезмерно длинными ушами, нечто среднее между кроликом и крысой, обвело всех взглядом и, словно чем-то возмущаясь, снова выкрикнуло "Кью!!!".
 
-".......K-Кирито-сенпай, what is that thing?"
+".......K-Кирито-сенпай, что это за штука?"
 
-When she asked in surprise, Кирито turned his eyes towards the rat on his head и said:
+Когда она удивлённо спросила, Кирито попытался посмотреть на сидящую на его голове крысу:
 
-"Well, that is....... When we flew above the field in the Южной part of former private territories, Цукигаке was fighting a bВосточной named something like anaguma......."
+"Ну, это....... Когда мы пролетали над полем в южной части бывших частных территорий, Цукигаке сражалась со зверями, которые назывались что-то типа 'анагума'......."
 
-"Я guess, that's not ‘anaguma’ but ‘hanaguma’."
+"Полагаю, не ‘анагума’ а ‘ханагума’."
 
-After answering "As if it makes any difference......"<sup><a href="#Prim10">10</a></sup> to Асуна's point, he shook his head и continued the explanation.
+Пробормотав в ответ на замечание Асуны "Можно подумать, есть какая-то разница......"<sup><a href="#Prim15">15</a></sup>, он трахнул головой и продолжил объяснение:
 
-"Anyway, after we chased away those hanagumas, treated Цукигаке's injuries и were about to fly again to the lake, Цукигаке ran to a **bucket**, a wooden cane that was rolling near...... this guy came out of it."
+"В общем, когда мы прогнали тех ханагум, залечили раны Цукигаке и уже были готовы лететь дальше на озеро, Цукигаке подбежала к баскету, деревянной корзине, которая там рядом валялась...... ну и эта зверушка оттуда выпрыгнула."
 
-"From the cane, is it...?"
+"Из корзинки, да...?"
 
-"Yup, from the situation, it seemed that Цукигаке hid it in the cane before fighting hanagumas. So, Я thought it would be an important **flag**, a condition to fulfill, but it did not do anything in particular..."
+"Ага, и судя по ситуации, Цукигаке спрятала её в корзине, прежде чем сражаться с ханагумами. Так что, я решил, что это какой-то важный флаг, условие, которое нужно выполнить, но ничего особенного она не сделала..."
 
-When Премьер-Мечник finished, Цукигаке chirped "Ку-ру-ру~..." while moving his glance between Ронье и Кирито, и the rat responded "Кю-Кю-kyu!"
+Когда Премьер-Мечник закончил, Цукигаке чирикнула "Ку-ру-ру~...", переводя взгляд между Ронье и Кирито, и крыса ответила "Кю-кю-кью!"
 
-Ронье did not precisely understand the meaning of Цукигаке's chirping as well as rat’s squeaking. Still, she somehow perceived the overall sense of the interaction и tried to express it into Мира Людей language:
+Ронье не вполне поняла, о чём чирикала Цукигаке и пищала крыса. Однако, она каким-то образом поняла общий смысл разговора и попыталась выразить его на языке Мира Людей:
 
-"W-well... apparently, Цукигаке seems to have promised that mouse... something ..."
+"Н-ну... судя по всему, Цукигаке пообещала этой крысе... что-то..."
 
-"Promised......?"
+"Пообещала......?"
 
-When Кирито, Асуна и Тейза exchanged looks altogether, the rat complainingly jumped on Премьер-Мечник's head. The situation was so strange that called for a smile ─
+Когда Кирито, Асуна и Тейза дружно переглянулись, крыса требовательно подпрыгнула на голове Премьер-Мечника. Ситуация была столь странной, что вызывала улыбку ─
 
-That moment.
+И в этот самый миг.
 
-A blood-red flash burst on the floor slightly away.
+С пола немного в стороне вспыхнуло кроваво-красное сияние.
 
-"Kii!!!"
+"Кии!!!"
 
-— the rat screamed и jumped into Кирито's bosom. Цукигаке и Шимосаки also made warning sounds.
+— завопила крыса и прыгнула обратно за пазуху Кирито. Цукигаке и Шимосаки тоже издали предупреждающие крики.
 
-Ронье looked at the source while shielding the eyes with her right hand from the stabbing light.
+Прикрывая правой рукой глаза от режущего света, Ронье посмотрела на его источник.
 
-What was shining was a gem that laid on the floor. The necklace Император Крюгер и Император Hozaica wore on the chest.
+Это сверкал лежавший на полу драгоценный камень. Кулон, который Император Крюгер и Император Хозайка носили на груди.
 
-"Сенпай! That is the culprit of everything!"
+"Сенпай! Всё из-за этой штуки!"
 
-That moment when Ронье shouted и Кирито took a step towards a red flash.
+— воскликнула Ронье, и Кирито шагнул в сторону красного камня.
 
-The gem rose into the sky with terrible momentum.
+Который вдруг с огромной скоростью взвился в небо.
 
-Кирито stretched his right hand to the red light rising fast enough to exceed the flame arrows art. The shining rapidly decelerated и stopped about 30 mel above.
+Кирито протянул правую руку в направлении красного сияния, взмывавшего даже быстрее, чем созданные Священным Искусством огненные стрелы. Сияние стремительно затормозило и остановилось примерно на высоте 30 мелов над ними.
 
-Кирито was trying to grasp it with the "arm of mind".
+Кирито пытался поймать его с помощью "руки разума".
 
-*It cannot shake off Кирито's mind – capable to fly a metal dragon.* Ронье thought so, but the gem had not fallen easily. It trembled as if being pulled behind with a chain, but remained at the same point in the sky.
+*Оно не сможет прорваться сквозь разум Кирито – способный поднять в воздух стального дракона.* — подумала Ронье, но камень не торопился спускаться. Он подрагивал, как будто его тянуло назад на цепи, но продолжал висеть в той же точке в небе.
 
-The battle lasted for about 3 seconds.
+Сражение продолжалось около 3 секунд.
 
-Suddenly, **bakin!** — impact-like sound echoed.
+Внезапно, **бакин!** — раздался взрывной звук.
 
-The chain that it was pulled with by the power of mind seemed to break apart.
+Похоже, что цепь, которая тянула его назад силой разума, порвалась.
 
-And the gem continued to rise steadily as if it was released from the hold, until it melted in the bright red sunset и disappeared. Then, as it passed through places high enough to have some clouds, the trajectory of the red light could be defined. That light pointed to the side where Solus sank...... in the direction of the Западной Империи Wesdarath.-->
+А камень, освободившись от оков, продолжал подниматься, пока не слился с ярко-красным закатом и не исчез. Затем, когда он пролетал через места столь высоко, что там уже виднелись тучи, получилось приблизительно определить траекторию красного света. Сияние неслось в ту сторону, где закатывался Солус...... в направлении Западной Империи Весдарат.
 
 ## Примечания:
 
@@ -1401,9 +1399,9 @@ And the gem continued to rise steadily as if it was released from the hold, unti
 4. <a name="Prim7"></a>В оригинале - вполне конкретный вид угря, [Нума-унаги](https://en.wikipedia.org/wiki/Inshore_hagfish), но русского описания сего чуда я не нашёл.
 5. <a name="Prim8"></a>Я несколько раз перепроверил, и a) да, я впервые об этом слышу, б) нет, в этой фразе нет никакого намёка на слова “невинных” и т.п., и в) да, это делает сцену в здании стражи из 19 том совершенно невозможной.
 6. <a name="Prim9"></a>Да, здесь то же самое, что с Чуделкиным - так в оригинале.
-7. 6. <a name="Prim10"></a>*Activate*, "активировать", ну или возможно, "активируйтесь", в зависимости от того, как там построено их восприятие команд.
+7. <a name="Prim10"></a>*Activate*, "активировать", ну или возможно, "активируйтесь", в зависимости от того, как там построено их восприятие команд.
 6. <a name="Prim11"></a>[Katashiro](http://yokai.com/katashiro/).
 7. <a name="Prim12"></a>Эти числа, на удивление, были записаны кандзи, т.е. "三千". Причина не ясна, но это прежде всего странно, поскольку обычно все числа, связанные с окном Стасии, в этих книгах представлены, используя западную запись, т.е. "3000".
 8. <a name="Prim13"></a>Я здесь немного упростил, оригинал говорит о “священных зверях” (по сути, [это](https://ja.wikipedia.org/wiki/瑞獣)), равно как и о “священных птицах” (神鳥). С учётом того, что термин “священный зверь” определённо распространяется и на некоторых птиц, я без понятия, что Ронье здесь имеет в виду.
 9. <a name="Prim14"></a>Это из 19-го тома, они говорят о *связи* с мечом и т.д.
-<!--10. <a name="Prim15"></a>It does make some difference, though. Anaguma (穴熊) means “badger”, и despite certain similarities, it is entirely different animal, и should Цукигаке actually meat Underworld “anaguma”, this book would have a touchy scene at the cemetery.-->
+10. <a name="Prim15"></a>Вообще-то, разница есть. Анагума (穴熊) означает “барсук”, и несмотря на некоторую внешнюю схожесть, это совершенно другое животное, так что если бы Цукигаке и правда повстречала Пудмирскую “анагуму”, в этой книге, скорее всего, была бы трогательная сцена на кладбище.
