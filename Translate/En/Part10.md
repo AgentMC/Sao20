@@ -230,7 +230,7 @@ Kirito's words were comforting but cruel at the same time. Tiese slowly dropped 
 
 "No, it’s not like this."
 
-— While saying so resolutely, Kirito lifted his right hand and pressed it against his chest:
+— while saying so resolutely, Kirito lifted his right hand and pressed it against his chest:
 
 "Memories are here. In minds of all the people who met Yujio and spent time together with him, the memory of him remains. If this memory of Yujio speaks...... that is the real Yujio."
 
@@ -278,15 +278,15 @@ Kirito had shut his heart since fighting the Highest Priest till the end of the 
 
 Encouraged by Kirito, Tiese steadily extended her hands and grasped the long sword contained in the white leather sheath.
 
-The current Tiese's weapon equipment authority was the same as Ronye’s, 40. On the other hand, the priority of the Sword of the Blue Rose should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or a craftsman.
+The current Tiese's weapon control authority was the same as Ronye’s, 40. On the other hand, the priority of the Sword of the Blue Rose should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or a craftsman.
 
-Since Yujio and Kirito entered the Sword Mastery Academy, they could freely handle this sword, a divine object. That means that their weapon equipment authority has reached 45, the level of highest grades. Considering that, one can also talk about the fact that the two had equalized with Dusolbert and Fanatio and others in Central Cathedral, but, as Kirito constantly said, the strength cannot be represented only by figures.
+Since Yujio and Kirito entered the Sword Mastery Academy, they could freely handle this sword, a divine object. That means that their weapon equipment control has reached 45, the level of highest grades. Considering that, one can also talk about the fact that the two had equalized with Dusolbert and Fanatio and others in Central Cathedral, but, as Kirito constantly said, the strength cannot be represented only by figures.
 
 Tiese stood up placing her legs wide enough to remain steady and let out a long breath. Then, same way slowly breathed in, held her breath ─ and carefully little by little lifted the Sword of the Blue Rose.
 
 The divine object resonated with Tiese’s spirit, did not refuse her hands. Firmly holding the sword with both hands, Tiese gently gripped the handle, and a small smile appeared on her face instead of drying tears.
 
-"....... Kirito senpai, I will do my best to take care of the Sword of the Blue Rose. I will polish it every day and practice my training more seriously... and someday, I’ll become a strong senior knight able to swing this sword!"
+"....... Kirito-senpai, I will do my best to take care of the Sword of the Blue Rose. I will polish it every day and practice my training more seriously... and someday, I’ll become a strong senior knight able to swing this sword!"
 
 "……Uhu."
 

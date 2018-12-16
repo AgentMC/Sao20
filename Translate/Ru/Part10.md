@@ -132,7 +132,7 @@
 
 "Понимаете, у нас не нашлось официального наименования для тех, кто устроил все эти инциденты, так что мы решили их назвать таким образом..."
 
-"Ясно, соратники чёрных Императоров...... Ладно, пойдёт, я тоже так их буду звать....... Да, это именно то, о чём беспокоится Дюс-сан, но я думаю, вероятность низка. Целью воскрешённых Императоров было разжечь войну между Миром Людей и Тёмной Территорией, и подготовленные для этой цели миньоны совмещённого типа были уничтожены. Даже если они до сих пор нацелены на это же, у них уйдёт какое-то время на подготовку..."
+"Ясно, соратники Чёрных Императоров...... Ладно, пойдёт, я тоже так их буду звать....... Да, это именно то, о чём беспокоится Дюс-сан, но я думаю, вероятность низка. Целью воскрешённых Императоров было разжечь войну между Миром Людей и Тёмной Территорией, и подготовленные для этой цели миньоны совмещённого типа были уничтожены. Даже если они до сих пор нацелены на это же, у них уйдёт какое-то время на подготовку..."
 
 "Так что...... другими словами, если бы Тейза и Ронье не заставили Императора Крюгера отступить, те миньоны совмещённого типа напали бы на Освободительный Фестиваль."
 
@@ -150,217 +150,215 @@
 
 Ответив так без малейших колебаний, Ронье всмотрелась в восточное небо.
 
-## Продолжение следует...
+Великие Восточные Врата, более четырёхсот лет отделявшие друг от друга Мир Людей и Тёмную Территорию, рухнули чтобы столкнуть два мира в схватке год и три месяца назад. После окончания войны, Врата были восстановлены, но деревянная дверь так и осталась открытой.
 
-<!--The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
+Однако, после того, как старика Язена убили, дверь снова закрыли. С такой точки зрения, заговор Чёрных Императоров уже дал определённые плоды. К тому же, в целом инцидент совершенно нельзя было назвать исчерпанным.
 
-But after the old Язен was killed, the door was closed again. In that sense, the black Императорs’ conspiracy has already had certain effects. Besides, the incident had not been solved at all.
+Вспоминая, что она услышала от рыцаря Физель в большой общественной ванной, Ронье вновь обратила свой взор на Премьер-Мечника:
 
-Recalling what she heard from knight Fizel in the large public bath, Ронье returned her gaze to the profile of Премьер-Мечник:
+"А, Кирито-сенпай. Это же только тело Императора Западной Империи, Ардалеса Весдарата V, не было найдено... не так ли?"
 
-"Oh, Кирито-сенпай. It was only the Император of the Западной Империи, Ardales Wesdarath V, whose corpse wasn’t found... wasn’t he?"
+"Да, так мне сказали. Имперский замок Западной Центории был сожжён дотла техникой высвобождения воспоминаний Фанатио-сан...... Три месяца ушло на то чтобы только завалы разобрать, так что даже если тело Императора Ардалеса тело там погребено, к тому моменту как до центра замка добрались, оно уже давно должно было обратиться Священной Силой."
 
-"Yeah, Я heard that. The Западной Центория Imperial Palace was burned to the ground by Фанатио-сан’s memory liberation technique...... It took them three months to remove the rubble, so even if the corpse of Император Ardales was buried there, by the time they reached insides of the castle, it should have dissolved to sacred power long time ago."
+"Или он мог сбежать и где-то скрывается... нет?"
 
-"Or he could have escaped и is hiding somewhere... no?"
+— заметила Асуна, и Кирито протянул, сложив руки на груди:
 
-When Асуна pointed that out, Кирито muttered with his arms folded:
+"Ну..... Император Крюгер был способен скрываться в вилле, как мне кажется, потому что телу миньона не нужна пища. Но если Император Ардалес жив, ему будет нужно есть. И стоит ему пойти за покупками, он определённо будет выглядеть подозрительно, что не ускользнёт от сети оповещений Сяо.…… Однако……"
 
-"Well..... Император Крюгер was able to hide in the villa Я think because of the minion body did not have to eat anything. But if Император Ardales is alive, he’d need food. и if he goes shopping, he would absolutely be looking suspicious и will be caught in Xiao's information network.…… However……"
+"Однако, что?"
 
-"However, what?"
+"По данным расследования Линель и Физель, есть некоторое число бывших рыцарей Ордена Коноэ Западной Империи, исчезнувших в неизвестном направлении и чьё местонахождение неизвестно. Если они поклялись в верности Императору, не думается мне, что они скоро объявятся в рядах Армии Защиты Мира Людей..."
 
-"According to Fizel и Linel's investigation, there were several former disseminated Западной Империи Konoe knights order и whose current location cannot be confirmed. If they swore loyalty to the Император, Я don’t think it’d be possible to quickly move to Мира Людей Defense Army..."
+"Если бывшие рыцари Киноэ присоединились к Императору, им будет несложно раздобыть пропитание, если это так, область поиска нужно расширить."
 
-"If the former knights joined the Император, it would not be difficult to get food, you may need to expand the scope of the search if it is the case."
+"Сколько бы ни было рабочих рук, их никогда не хватает."
 
-"No matter how many hands there are, it is never enough."
+Ронье знала, что Кирито сказал так, потому что на него самого наваливалось множество работы каждый день. Она неосознанно распрямила спину, и следующая фраза прозвучала несколько более формально:
 
-Ронье knew that Кирито said so because he himself was chased by a lot of work every day. Unconsciously, she stretched the spine и said in a formal voice:
+"Что же, тогда, когда я стану обычным рыцарем, я попытаюсь больше вам помогать!"
 
-"Well, when Я become a regular knight, Я will try helping you more!"
+Кирито взглянул на Ронье и улыбнулся "Рассчитываю на тебя", затем перевёл взгляд на Тейзу, и его глаза широко раскрылись от удивления.
 
-Кирито looked at Ронье и smiled "I'm counting on you", then moved his eyes to Тейза, и opened his eyes wide in a startle.
+Ронье тоже посмотрела направо.
 
-Ронье also looked to the right.
-
-Тейза, who was listening to the subject with a serious expression until just before, was sitting there, head down, biting her lips as if desperately trying to endure the tears.
+Тейза, совсем недавно слушавшая разговор с серьёзным выражением лица, сидела там, повесив голову и закусив губы как если бы она отчаянно пыталась сдерживать слёзы.
 
 "Тейза."
 
-She reflexively reached the hand out и touched her best friend's back. *Тейза is supposed to be a little bigger than me now, but it feels like she is as small as a child.*
+Она автоматически протянула руку и прикоснулась к спине своей подруги. *Тейза должна бы выглядеть немного старше меня, но сейчас она зажата, словно маленький ребёнок.*
 
-Both Кирито и Асуна did not say anything. Resolve was supposed to be the characteristic of the Order’s member, however, sincerely caring of Тейза’s feelings, they remained silent.
+Ни Кирито, ни Асуна ничего не сказали. Решительность была одной из характерных черт членов Ордена, однако, искренне беспокоясь о чувствах Тейзы, они продолжали молчать.
 
 "Кю-ру......"
 
-Шимосаки, who was chasing with Цукигаке и Nuts around the middle of the garden, shortly chirped, came close to the table и licked Тейза's right hand fingers. Тейза slowly raised her face after gently plucking the neck of the young dragon with her hand.
+Шимосаки, гонявшийся за Цукигаке и Натсом где-то в центра сада, коротко курлыкнул, подошёл к столу и лизнул пальцы Тейзиной правой руки. Тейза ласково почесала шею молодого дракона и медленно подняла лицо.
 
-"Um......, Кирито-сенпай, Асуна-сама......."
+"Эм......, Кирито-сенпай, Асуна-сама......."
 
-When the two silently nodded, Тейза said, pushing out one word at a time through clenched teeth:
+Когда те двое безмолвно кивнули, Тейза сказала, буквально выдавливая слова одно за другим сквозь сжатые зубы:
 
-"....... Я am thinking of declining to be promoted to a regular knight."
+"....... Я думаю отказаться от повышения до обычного рыцаря."
 
-"Why is that?"
+"Почему же?"
 
-— Кирито asked bluntly looking straight at her. From the time they first met in Академии Искусства Меча, they knew this feeling of being inquired by a gaze of his black eyes, his gentle but powerful look, и Тейза finally pushed out what she had in my mind for a long time:
+— напрямик спросил Кирито, смотря прямо на неё. С того момента, как они впервые встретились в Академии Искусства Меча, им было знакомо это чувство необходимости ответа, что они видели во взгляде его чёрных глаз, в его мягком но сильном выражении, и Тейза, наконец, с трудом выдавила всё то, что уже давно было у неё на душе:
 
-"...... Я attempted to examine the Император's villa...... because Я have heard rumors that there is a ghost there. Should a ghost exist...... Я wondered if Я could meet Юдзио-сенпай someday again. Я rushed ahead и endangered Ронье, Цукигаке и Шимосаки only because of my personal interest. Я do not have the right...... I’m not eligible to become a regular knight."
+"...... Я попыталась осмотреть виллу Императора...... потому что я слышала слухи о том, что там есть призраки. Если бы призраки и впрямь существовали...... я надеялась, что смогу однажды снова встретиться с Юдзио-сенпаем. Я бросилась вперёд сломя голову и поставила под угрозу Ронье, Цукигаке и Шимосаки лишь из-за своего собственного интереса. У меня нет права...... я недостойна становится обычным рыцарем."
 
-At the last words she violently shook, closed her mouth, и grains of tears ran out of her autumn leaves-colored eyes.
+На последних словах её начало сильно трясти, она прервалась, и капли слёз покатились из ей глаз цвета осенних листьев.
 
-Ронье had a lot to tell to her best friend, but now it was Кирито's task to comfort Тейза’s thoughts.
+Ронье могла многое сказать своей подруге, но сейчас Кирито должен был успокоить бурю, бушевавшую в мыслях Тейзы.
 
-"... If Я could meet him too............"
+"... Если бы я тоже мог с ним снова встретиться............"
 
-Кирито said in a gentle, but somewhat distant voice. Тейза snapped her face up, и stared at Кирито with wet eyes.
+— сказал Кирито мягким, но отстранённым голосом. Тейза резко вздёрнула голову, и уставилась на Кирито своими мокрыми глазами.
 
-"Me too, from time to time feel that overwhelming desire to see Юдзио и to talk to him again. Being alone, Я imperceptibly recollect his words и smile. и you know...... it wouldn’t be true if Я say that in this world there is no way to hear the voice of the person who passed away. The memory of a person soaks into things that he cherished or places he liked, и from there it is not impossible to extract a pseudo-soul with some Sacred Art..."
+"И у меня тоже, время от времени, возникает непреодолимое желание увидеть Юдзио и поговорить с ним. Когда я один, то незаметно для себя вспоминаю его слова и улыбку. И знаешь...... будет неправдой, если я скажу, что в этом мире нет способа услышать голос ушедших. Воспоминания человека впитываются в вещи, которые он ценил, в места, где он любил бывать, и не так уж невозможно извлечь из этого некую псевдо-душу с помощью какого-нибудь Священного Искусства..."
 
-When Кирито said so, Тейза shivered with the whole body. She grasped both hands in front of the chest и asked squeezing words out:
+Когда Кирито это произнёс, Тейза задрожала всем телом. Её ладони соединились перед грудью и она спросила, выдавливая слова:
 
-"Then...... then you can meet him? Once again, Юдзио-сенпай..."
+"Тогда...... значит, мы можем с ним встретиться? Снова, с Юдзио-сенпаем..."
 
-Then Кирито closed the eyes for a moment и slowly shook his head:
+Кирито на мгновение закрыл глаза и медленно покачал головой:
 
-"...... Even if Я can hear Юдзио's voice because of some form of an art, it cannot be said that it would be the real Юдзио. Just like Император Крюгер who revived as a minion was not the real Император....... Five floors above this place, on the top floor of the Собора, Юдзио died by the hand of the Первосвященник while attacking her. His soul, along with the Алиса’s soul consisting of her childhood memories taken away during the Синтезис ritual, are now gone. After that Юдзио’s memory stayed in the Меч which helped me a number of times, but... in the battle with Император Vector, it finally burned out......"
+"...... Даже если мы и сможем услышать голос Юдзио благодаря какому-нибудь искусству, нельзя сказать, что это будет настоящий Юдзио. Прямо как Император Крюгер, кого воскресили в форме миньона, уже не был настоящим Императором....... Пятью этажами выше, на вершине Собора, Юдзио пал от руки Первосвященника, сражаясь с ней. Его душа, вместе с душой Алисы, состоящей из воспоминаний о детстве, которых лишил её Синтезис Ричуал, исчезли навсегда. После этого память Юдзио оставалась в мече, и не раз помогала мне, но... в сражении с Императором Вектором, она, наконец, выгорела дотла......"
 
-Кирито's words were comforting but cruel at the same time. Тейза slowly dropped her shoulders и muttered:
+Слова Кирито успокаивали, но в то же время были жестокими. Плечи Тейзы медленно опустились, и она пробормотала:
 
-"Well... then, there are no memories of Сенпай left anywhere in this world..."
+"Ну... значит воспоминаний Сенпая в этом мире больше не осталось..."
 
-"No, it’s not like this."
+"Нет, это не так."
 
-— While saying so resolutely, Кирито lifted his right hand и pressed it against his chest:
+— решительно сказав это, Кирито поднял правую руку и прижал её к груди:
 
-"Memories are here. In minds of all the people who met Юдзио и spent time together with him, the memory of him remains. If this memory of Юдзио speaks...... that is the real Юдзио."
+"Воспоминания здесь. В разумах всех людей, которые встретили Юдзио и были рядом с ним, остаётся память о нём. Если Юдзио из этих воспоминаний заговорит с тобой...... это и будет истинный Юдзио."
 
-Тейза, who quietly breathed in, put her right hand on her chest in the same way.
+Дыхание Тейзы участилось, она подобным образом положила правую руку себе на грудь.
 
-But after a few seconds her hands fell down to the knees.
+Но через несколько мгновений её руки вновь опустились на колени.
 
-"............ I...... Я only had about a month around Юдзио-сенпай. Я could not travel together with him like Кирито-сенпай did, nor could we fight together in the Церковь Аксиом. Moreover...... it was basically because of me that Юдзио-сенпай was taken to the Church. My Сенпай left the academy и now is gone....... Я cannot hear Юдзио-сенпай’s voice..."
+"............ Я...... я только около месяца пробыла подле Юдзио-сенпая. У меня не было шанса путешествовать с ним, как у Кирито-сенпая, и мы не сражались плечом к плечу в Церкви Аксиом. А ещё...... по сути, это ведь из-за меня Юдзио-сенпай попал в Церковь. Мой сенпай оставил академию, и после этого погиб....... Мне никогда больше не услышать голос Юдзио-сенпая..."
 
-Having said so, Тейза pushed both hands against her face и began to cry; Шимосаки rubbed his neck against her leg while raising an anxious voice. Цукигаке и Nuts also watched the situation side by side.
+Сказав это, Тейза закрыла лицо ладонями и зарыдала; Шимосаки тёрся шеей о её ногу, издавая обеспокоенные звуки. Цукигаке и Натс наблюдали за ситуацией, стоя рядом чуть в стороне.
 
 "....... Тейза-сан."
 
-As Тейза continued to cry, Асуна talk to her in a calm voice.
+Тейза продолжала плакать когда Асуна спокойным голосом обратилась к ней.
 
-"Я have also lost an important person in the Real World. She was younger than me, but she had always been strong, always smiling brightly и said she was my little sister. The time we spent together was very short, but.... but at the time of Войны с Внешним Миром, she helped me. Even now, Я have lot of memories of this girl. What is important is not the length of time... besides, since Юдзио-сан acted to help Тейза-сан и others, he must have never had any regrets about it."
+"Я тоже потеряла важного мне человека в Реальном Мире. Она была младше меня, но она всегда оставалась сильна, широко улыбалась и назвалась моей младшей сестрой. Мы провели вместе очень немного времени, но.... но во время Войны с Внешним Миром, она помогла мне. Даже сейчас, у меня остаётся множество воспоминаний об этой девушке. Так что важно не то, сколько времени... а ещё, тогда Юдзио-сан действовал дабы помочь Тейзе-сан и остальным, он никогда бы не стал об этом сожалеть."
 
-Асуна finished talking и extended the left hand gently stroking Тейза’s back, her crying little by little stopped.
+Асуна умолкла и протянув левую руку, стала ласково гладить Тейзу по спине; её плач постепенно утихал.
 
-Still, Кирито said to Тейза who did not try to remove her hands from the face:
+Всё же, она так и не попыталась убрать ладони от лица, и Кирито сказал Тейзе:
 
-"Тейза. Even if you decline the promotion to a regular knight, are you going to swap the Меч?"
+"Тейза. Даже если ты решишься отказаться от повышения до рыцаря, ты же всё равно поменяешь меч?"
 
-Although it was a sudden question, after a while Тейза finally took off her hand from the face и nodded.
+Это был неожиданный вопрос, и через какое-то время Тейза, наконец, опустила руки и кивнула.
 
-"...... Yes, back there at the villa, Я made Ронье to fight because Я still used the regular Меч..."
+"...... Да, там на вилле из-за меня Ронье пришлось сражаться одной, потому что у меня всё ещё был старый меч..."
 
-"Then, on top of selecting a Меч in the armor store...... Я would like you to keep this one."
+"Тогда, в дополнение к тому, что ты выберешь новый меч в хранилище...... я бы хотел, чтобы ты держала у себя этот."
 
-That said, Кирито lifted the cloth-wrapped package from the flower bed nearby.
+Сказав это, Кирито поднял с соседней клумбы обёрнутый в ткань свёрток.
 
-What came out from the white cloth was a beautiful single-handed long Меч with a rose embossed on an ice-like transparent guard. As soon as she saw it, Тейза opens the eyes wide:
+То, что он извлёк на свет из ткани, было прекрасным одноручным длинным мечом с розой, украшавшей прозрачную, словно лёд, гарду. Едва увидев, Тейза широко распахнула глаза:
 
 "М-Меч Синей Розы...?!"
 
-The Меч Кирито put in the middle of the table was definitely the Меч Синей Розы — the former Юдзио’s beloved Меч и after his death was the finest divine object that Кирито continued to own.
+Меч, который Кирито положил в центр стола, и правда был Мечом Синей Розы — бывшим любимым мечом Юдзио, и это был прекраснейший Божественный Инструмент, которым Кирито продолжал владеть после его смерти.
 
-"B-but, this is… Кирито-сенпай’s......."
+"Н-но, это же… Кирито-сенпая......."
 
-Тейза was just slightly shaking her head. Ронье could also understand the inexpressible feeling that she experienced.
+Тейза могла лишь едва заметно покачать головой. Ронье вполне могла понять то невыразимое чувство, что та в тот миг ощущала.
 
-Кирито had shut his heart since fighting the Первосвященник till the end of the Войны с Внешним Миром, и for a long time could not speak or walk, but he never let go of the Меч Ночного Неба и the Меч Синей Розы. But Кирито smiled и said with a voice full of a strong will:
+С самой битвы с Первосвященником, и до самого конца Войны с Внешним Миром, Кирито закрыл ото всех свою душу, и долгое время не мг ходить или говорить, но он никогда не выпускал из рук Меч Ночного Неба и Меч Синей Розы. Тем не менее, Кирито улыбнулся и произнёс голосом, полным сильной воли:
 
-"I'd like you to have this one, Тейза, now you still are not strong enough to equip it и it will be difficult to swing,...... but как минимум you can take care of it. If you carefully polish it, one day Тейза for sure will be able to hear Юдзио's voice. That voice will be absolutely not a fake. Not the one extracted with an art, but the voice produced from within the memories....... here you go."
+"Я хочу, чтобы он был у тебя, Тейза, пока что ты ещё не достаточно сильна, чтобы его использовать и взмахнуть будет непросто,...... но как минимум ты можешь о нём заботиться. Если его тщательно полировать, однажды Тейза точно сможет слышать голос Юдзио. И тот голос точно будет не подделкой. Не что-то, извлечённое Искусством, голос, сотворённый самими воспоминаниями....... так что держи."
 
-Encouraged by Кирито, Тейза steadily extended her hands и grasped the long Меч contained in the white leather sheath.
+Ободрённая Кирито, Тейза медленно протянула руки и взяла длинный меч, лежащий в белых кожаных ножнах.
 
-The current Тейза's weapon equipment authority was the same as Ронье’s, 40. On the other hand, the priority of the Меч Синей Розы should have been 45. If the numbers differ by five, it is usually difficult to lift it as long as the person is not granted the sacred task of a blacksmith or a craftsman.
+Нынешний уровень контроля вооружения Тейзы был такой же, как и у Ронье, 40. В то же время, приоритет Меча Синей Розы должен был быть 45. Если эти цифры отстоят друг от друга на пять, поднять его должно быть сложно, ну разве что человеку назначено священный долг кузнеца или ремесленника.
 
-Since Юдзио и Кирито entered the Академии Искусства Меча, they could freely handle this Меч, a divine object. That means that their weapon equipment authority has reached 45, the level of highest grades. Considering that, one can also talk about the fact that the two had equalized with Дюсольберт и Фанатио и others in Центрального Собора, but, as Кирито constantly said, the strength cannot be represented only by figures.
+Ещё с того момента, как Юдзио и Кирито поступили в Академию Искусства Меча, они могли свободно обращаться с этим мечом, Божественным Инструментом. А это значит, что их уровень контроля оружия достиг 45, уровня высших классов. Учитывая это, модно было утверждать, что они двое вышли на один уровень с Дюсольбертом, Фанатио и остальными в Центральном Соборе, но, как Кирито постоянно говорил, сила выражается не только цифрами.
 
-Тейза stood up placing her legs wide enough to remain steady и let out a long breath. Then, same way slowly breathed in, held her breath ─ и carefully little by little lifted the Меч Синей Розы.
+Тейза поднялась и расставила ноги пошире, чтобы занять устойчивое положение, а затем сделала долгий выдох. Затем так же медленно вдохнула, задержала дыхание ─ и осторожно понемногу подняла Меч Синей Розы.
 
-The divine object resonated with Тейза’s spirit, did not refuse her hands. Firmly holding the Меч with both hands, Тейза gently gripped the handle, и a small smile appeared on her face instead of drying tears.
+Божественный Инструмент вошёл в резонанс с духом Тейзы, не отверг её рук. Крепко держа меч обеими руками, Тейза ласково сжала рукоять — и на месте высохших слёз на её лице появилась неуверенная улыбка.
 
-"....... Кирито Сенпай, Я will do my best to take care of the Меч Синей Розы. Я will polish it every day и practice my training more seriously... и someday, I’ll become a strong senior knight able to swing this Меч!"
+"....... Кирито-сенпай, я сделаю всё, что в моих силах, чтобы заботиться о Мече Синей Розы. Я буду полировать его каждый день и ещё серьёзнее практиковаться на тренировках... и однажды, я стану сильным рыцарем, способным взмахнуть этим мечом!"
 
-"……Uhu."
+"…… Угу."
 
-— Кирито и Асуна nodded at the same time, и Ронье blinked to shake off the tear blurring the vision.
+— одновременно кивнули Кирито с Асуной, и Ронье пришлось моргнуть чтобы избавиться от слезинок, навернувшихся на глаза.
 
-*Her thoughts on Юдзио и the proposal from Renri. Looks like, it will take some time for Тейза to answer. But little by little... going forward one step at a time. As the two of us have done so far.*
+*Её мысли о Юдзио и предложение от Ренри. Похоже, Тейзе понадобится какое-то время, чтобы найти ответ. Но понемногу... шаг за шагом она будет двигаться вперёд. Как мы вместе и шли до этого самого дня.*
 
-A gentle breeze passed through the garden, и the 2 o'clock bell rang lightly.
+По саду пронёсся мягкий бриз, и легонько прозвенел двухчасовой колокол.
 
-"Oops... it's just about the time."
+"Упс... уже то самое время."
 
-— Кирито suddenly murmured и swallowed the piece of an apple pie that remained in the dish in one bite. As Кирито, looking pretty similar to a tree nut lover Nuts with his swollen cheeks, was chewing it down, Асуна asked him:
+— внезапно пробормотал Кирито и за один укус расправился с остававшимся на подносе куском яблочного пирога. Глядя на Кирито, который, прожёвывая его, своими раздутыми щеками немало напоминал любителя орехов Натса, Асуна спросила его:
 
-"The time for what?"
+"Какое такое время?"
 
-"Everyone, please take a look at the main gate."
+"Все взгляните пожалуйста на главные ворота."
 
-They moved along the aisle as he said ─ Тейза still holding the divine object which appeared to be truly physically heavy though,─ и looked over the front garden of Собора from the Южной side.
+Как он и попросил, они все дружно двинулись по проходу ─ Тейза продолжала держать Божественный Инструмент. который выглядел и вправду тяжёлым для неё,─ и посмотрели на передний сад Собора с южной стороны.
 
-That time the gate, normally closed, opened wide, и large four-horse carriage came in through it.
+В этот момент ворота, обычно закрытые, широко распахнулись и внутрь вкатилась большая карета, влекомая четвёркой лошадей.
 
-"Wow, such a big horse carriage..."
+"Ого, какая большая карета..."
 
-— Тейза muttered, и Ронье also tilted her head:
+— прошептала Тейза, и Ронье тоже наклонила голову вбок:
 
-"Who is inside...?"
+"А кто там внутри...?"
 
-"Hey, don’t you remember the report you heard at a meeting couple of days ago?"
+"Эй, разве вы забыли отчёт, что вы слышали на собрании несколько дней назад?"
 
-— Кирито said smiling with cream on his face.
+— сказал Кирито с улыбкой на запачканном кремом лице.
 
-"The Sacred Art masters apprentices entering the tower this month."
+"Ученики Мастеров Священных Искусств в этом месяце входят в башню."
 
-"Eh…………!"
+"Ээ…………!"
 
-Ронье looked at Тейза и then at the carriage again.
+Ронье посмотрела на Тейзу и потом снова на карету.
 
-*There certainly was something like this on the agenda. Я had completely forgotten it because of the troubles caused by the black Императорs, but that means that in the carriage......*
+*Что-то такое точно было в повестке дня. Я совершенно забыла об этом из-за проблем с Чёрными Императорами, но это ведь значит, что в карете......*
 
-"....... Frenica!"
+"....... Френика!"
 
-— Ронье и Тейза shouted out loudly и looked at the faces of Кирито и Асуна.
+— громко взвизгнули Ронье с Тейзой и повернулись к Кирито и Асуне.
 
-"Oh, hey, Сенпай, we..."
+"Ой, это, сенпай, мы..."
 
-"Ah, are you going to welcome her? Я will deliver the Меч Синей Розы to your room later then."
+"А, собираетесь её поприветствовать? Тогда я занесу Меч Синей Розы в вашу комнату позже."
 
-"S-sorry, Я would appreciate your favor!"
+"П-простите, крайне благодарна за услугу!"
 
-Actually, she did not want to let it go so quickly, but she wouldn’t be able to run with a divine object. Тейза retuned the Меч to Кирито и quickly lowered her head:
+Вообще-то ей не хотелось столь быстро лишаться меча, но уж бежать с Божественным Инструментом в руках она точно не смогла бы. Тейза вернула меч Кирито и спешно склонила голову:
 
-"Асуна-сама, thank you for the pie и tea party! Would you kindly excuse us!"
+"Асуна-сама, спасибо за пирог и чай! Просим нас извинить!"
 
-"Welcome."
+"На здоровье."
 
-— smiling Асуна waved them a hand, и the two rushed to the staircase, when they heard ─
+— улыбнувшись, Асуна помахала им, и двое ринулись к лестнице, когда до них донёсся ─
 
-"So, I’ll go too, will welcome Selka."
+"Тогда, я тоже пойду, встречу Селку."
 
-— a voice from behind. Turning around in surprise, Ронье saw Кирито holding the Меч Синей Розы in his right hand, about to jump from the platform straight to the air.
+— голос позади. С удивлением развернувшись на месте, Ронье увидела Кирито, держащего Меч Синей Розы в правой руке, готового спрыгнуть с платформы прямо в воздух.
 
-"Ah, hey Кирито-кун, please take me along!"
+"А... эй, Кирито-кун, возьми и меня с собой!"
 
-— shouted Асуна, leaping at him from behind и falling together with him outside. Премьер-Мечник и Вице-Премьер-Мечник disappeared in a blink of an eye, и when Ронье again looked back at Тейза, she grinned.
+— воскликнула Асуна, прыгая на него со спины, после чего они вместе свалились наружу. Премьер-Мечник и Вице-Премьер-Мечник исчезли в мгновение ока, и когда Ронье снова взглянула на Тейзу, та усмехалась.
 
-"Hey Цукигаке, Шимосаки, Nuts, let’s go!"
+"Эй, Цукигаке, Шимосаки, Натс, пошли!"
 
-When she turned back и called, the young dragons answered "Ку-ру-ру!" и the rat jumped on Цукигаке’s back.
+— позвала она, развернувшись, тогда молодые драконы ответили "Ку-ру-ру!", а крыса запрыгнула на спину Цукигаке.
 
-The two people и three animals began running cheerfully down from the Lookout where early spring flowers bloomed.
+Два человека и три зверя начали радостно бежать вниз с Наблюдательного Поста, где уже расцветали первые весенние цветы.
 
-(конец)-->
+(конец)
 
 ## Примечания:
 
