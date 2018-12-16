@@ -1,156 +1,158 @@
-# Part 10
+# Часть 10
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 <!--![Image](/Translate/Img/p167.jpg)-->
 
-"Тейза-сан, Ронье-сан. How is your injuries’ condition?"
+"Тейза-сан, Ронье-сан. Как ваши раны, идут на поправку?"
 
-When Вице-Премьер-Мечник asked, they nodded at the same time.
+Когда Вице-Премьер-Мечник спросила, они одновременно кивнули:
 
-"Yes, we’ve completely healed."
+"Да, мы полностью излечились."
 
-— when Ронье answered that,
+— когда Ронье так ответила,
 
-"Кирито-сенпай’d call that ‘hyakupa recovery’!"
+"Кирито-сенпай бы назвал это ‘восстановление на хьяку-па’!"
 
-— Тейза also showed a clenched fist.
+— Тейза тоже подняла сжатый кулак.
 
-*Я do not know the meaning of the sacred word ‘hyakupa’<sup><a href="#Prim1">1</a></sup>, but it seems to be familiar to Асуна, as she smiled gently.*
+*Я не знаю, что означает священное слово ‘хьяку-па’<sup><a href="#Prim1">1</a></sup>, но судя по всему, Асуне оно знакомо, раз уж она сдержанно усмехнулась.*
 
-"Yes, I'm glad. ...... This time we’ve got you two into some really painful experience.... "
+"Хорошо, я рада. ...... На сей раз вам пришлось получить действительно болезненный опыт.... "
 
-Ронье и Тейза frantically shook heads towards Асуна, who moved down the long eyelashes as her smile disappeared:
+Ронье и Тейза отчаянно замотали головами в сторону Асуны, улыбка которой исчезла, а взгляд опустился:
 
-"No, it’s all only because we went into such a dangerous place..."
+"Нет-нет, всё лишь потому что мы пошли в такое опасное место..."
 
-"And thanks to Асуна-сама giving her good word, clerics director Ayuha treated us well. Look, it’s all right."
+"И благодаря тому, что Асуна-сама за нас попросила, глава клериков Аюха хорошо о нас заботилась. Смотрите, с нами уже всё в порядке."
 
-As she said so, Тейза lifted the jacket и underwear together, demonstrating her belly. Severe scratches left by deeply penetrating fusion-type minion's nails were completely healed, и no traces were left.
+Сказал это, Тейза задрала куртку вместе с нижним бельём, продемонстрировав свой живот. Серьёзные порезы, оставленные глубоко вонзившимися когтями миньона совмещённого типа, целиком излечились, не оставив и следа.
 
-That's fine, but no matter how few people were in the Собора’s ninety-fifth floor, the "Наблюдательный пост Утренней Звезды", it was a little inappropriate for a girl to show her belly. Stretching a hand и pulling Тейза's clothes down, the other one said:
+И это, конечно, было здорово, но неважно как мало было людей на 95-м этаже  Собора, "Наблюдательном посту Утренней Звезды", для девушки было неподобающим так оголять свой живот. Вытянув руку и вернув одежду Тейзы в норму, вторая сказала:
 
-"Even so, Ayuha-сама's knowledge of components is tremendous...... We intended to study them quite seriously in the academy too, but she called out plants и minerals that have never even heard of before one after another, Я was quite surprised."
+"Так или иначе, а знание о компонентах, которым владеет Аюха-сама, просто необъятное...... В академии мы должны были их изучать весьма серьёзно, но она один за другим называла растения и минералы, о которых мы раньше и слыхом не слыхивали, я очень удивилась."
 
-"Even after Ayuha-сан took the position of the Sacred Art division chief, she seems to go searching for a new kind of medicinal herbs on the seventh day. Her little sister Sones was complaining that those give medicine an odd taste."
+"Даже после того, как Аюха-сан заняла должность директора подразделения Священных Искусств, она продолжает уходить в поисках лечебных трав каждый седьмой день. Её младшая сестра Сонес жаловалась, что из-за них у лекарств странный вкус."
 
-— whispered Асуна и continued, smiling again:
+— пробормотала Асуна и продолжила, снова улыбаясь:
 
-"Anyway, Ayuha-сан since her childhood wanted to become a doctor и it seems her plant research passion has rekindled after listening to the story that Кирито-кун managed to make Zefiria flower blooming in Северной Центория."
+"В любом случае, Аюха-сан с самого детства хотела стать целителем, и похоже, её страсть к поиску новых лекарственных растений разгорелась с новой силой, когда она услышала историю о том, как Кирито-кун сумел заставить цветы Зефирии зацвести в Северной Центории."
 
-"Ah...... It is not advisable to compete against the work of Кирито-сенпай...."
+"А...... пытаться обойти Кирито-сенпая в работе крайне не рекомендуется...."
 
-when Ронье Unintentionally said so, Тейза cheerfully laughed. Цукигаке и Шимосаки who were eating dried fish on the floor also chirped "Ку-ру-ру”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
+— когда Ронье случайно произнесла эти слова, Тейза радостно засмеялась. Цукигаке и Шимосаки, которые ели на полу сушёную рыбу, вместе чирикнули "Ку-ру-ру”; рядом с ними их новый друг, миминага-нуре-незуми по имени Натс<sup><a href="#Prim2">2</a></sup>, грызла вкуснейший на вид орех.
 
-Three days have passed since the incident in доминион Императора, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four Императорs was planned to be held extensively in the whole city of Центория, и the Собора was a little more crowded than usual.
+С инцидента в доминионе Императора прошло три дня, это было 27-е февраля. А на 30-е по всей Центории было запланировано проведение масштабного фестиваля, посвящённого годовщине восстания против четверых Императоров, и в Соборе было больше народу, чем обычно.
 
-But for the Union Council people, it was totally not a time to slack off.
+Но для членов Объединённого Совета это точно не было то время, когда можно позволить себе расслабиться.
 
-Император Hozaica Eastabarieth of the Восточной Империи и Император Крюгер Норлангарт of the Северной Империи, who should have been eliminated a year ago, were revived in minion bodies и became deeply involved in a series of incidents. Especially, Император Крюгер who was hiding in the territory directly beside the center capital Центория и was about to proceed with mass production plan of fusion-type minions which are much stronger than the prototype; Фанатио и Дюсольберт, as well as director of intelligence Xiao Shukas, received a deep shock when learned about it.
+Император Восточной Империи Хозайка Истабариет и Император Северной Империи Крюгер Норлангарт, которые должны были быть ликвидированы ещё год назад, ожили в теле миньонов и оказались глубоко вовлечены в серию инцидентов. В особенности беспокоил Император Крюгер, который скрывался на территории в непосредственной близости от центральной столицы Центории и готовился начать массовое производство миньонов совмещённого типа, бывших намного более сильными, чем прототипы; Фанатио и Дюсольберт, также как и директор подразделения Информации Сяо Шукас, были сильно шокированы, услышав об этом.
 
-In response to the incident, the imperial territory of the four Империиs и private territories were searched all over again, but there were no discoveries of any hidden property of senior aristocrats leading to the conspiracy. What was most searched was the red gem that flew away from the Император's villa to the Западной sky, but for the moment there were no results there, too. Since the object was jewelry not even of a human’s but only about of a bird’s egg size, it seems knights Fizel и Linel which were leading the search in the Западной Империи, were also struggling.
+Реагируя на инцидент, бывшие территории Императоров четырёх Империй и частные территории аристократии были обысканы, но никакой потаённой собственности аристократии, которую можно было бы связать с заговором, обнаружено не было. Тщательнее всего искали красный камень, вылетевший из Императорской виллы в сторону западного неба, но на этот момент и здесь результатов пока не было. Найти объект размером даже не с человека, а ювелирное изделие не больше яйца птицы, оказалось непростой задачей для рыцарей Физель и Линель, возглавлявших поисковые работы в Западной Империи.
 
-Another artifact remaining after Император Крюгер, the ring with the imperial house emblem, was jointly analyzed by Ayuha и Sones, the two greatest clerics in the Собора. There was no doubt that the secret of resurrection was hidden in that ring which the Император called "katashiro", but *it is a hundred times harder to extrapolate the art synopsis given only an object used as an art medium......* that’s what Sones said.
+Ещё один артефакт, оставшийся после Императора Крюгера, кольцо с эмблемой дома Императора, было совместно проанализировано Аюхой и Сонес, двумя величайшими клериками Собора. Не оставалось, сомнений, что секрет воскрешения скрыт в кольце, которое Император назвал "каташиро", но *обладая лишь объектом, использованным как материал, в сотню раз труднее экстраполировать синопсис искусства......* вот что сказала Сонес.
 
-другими словами, almost all threads leading to the conspiracy mastermind were broken. Speaking of other things, both the pair of a large и a small knife used by great chamberlain Зеппос и the clay bags stacked in large quantities on the villa's premises, were unlikely to lead to new clues.
+Другими словами, почти все ниточки, ведущие к организатору заговора, оказались порванными. Что же до прочего, ни пара из большого и маленького ножей, использовавшихся обер-камергером Зеппосом, ни мешки с глиной, в больших количествах обнаруженные на территории виллы, скорее всего, не могли привести к новым уликам.
 
-The Объединённого Совета Мира Людей has decided to invite senior dark arts masters from Тёмной Территории to consult regarding clay и ring investigation, и the horse messenger was already sent to Obsidia castle. But it will take twelve days for a personal letter to reach general commander Isukan, и even if the invitation is fulfilled at all given the circumstances, it will take another two weeks for the reply to arrive from the other side.
+Объединённый Совет Мира Людей решил пригласить старших  мастеров Тёмных Искусств из Тёмной Территории, чтобы проконсультироваться с ними касательно исследований глины и кольца, и конный гонец был уже отправлен в замок Обсидия. Но пройдёт дюжина дней пока письмо не достигнет главнокомандующего Исукана, и даже если, с учётом всех обстоятельств, приглашение будет решено одобрить, пройдёт ещё пара недель пока ответ не придёт обратно.
 
-On the other hand, Ронье и Тейза, after getting scolded by knights leader Фанатио for not returning with the report as soon as they heard a sound from the villa, as a result of their great contribution to the discovery и rescue of the abducted mountain гоблинов, were told they would be promoted from the apprentice knights to the lower rank Рыцари Целостности.
+С другой стороны, Ронье и Тейзе, после того как глава рыцарей Фанатио разнесла их в пух и прах за то, что они не вернулись с рапортом как только услышали звуки изнутри виллы, за их огромный вклад в обнаружение и спасение похищенных горных гоблинов сказали, что их повысят с учеников до уровня младших Рыцарей Целостности.
 
-Formal appointment was scheduled to be in early March after the Liberation Memorial Festival, but they were already given the hint on knight numbers.
+Формально назначение планировали провести в начале марта, после Мемориального Освободительного Фестиваля, но по поводу номеров им уже сделали намёки.
 
-Following the knight Eldrie Синтезис Thirty-One who died a noble death at the time of Войны с Внешним Миром, Тейза was given the number 32. и Ронье got 33.
+Вслед за рыцарем Элдри Синтезис Сёти-Ван, погибшем благородной смертью во время Войны с Внешним Миром, Тейза получила номер 32. А Ронье достался 33.
 
-According to the tradition of Рыцари Целостности, they both would have to throw away their family names, but "**Синтез**" is a sacred word meaning "a person who received the Синтезис ritual", so after discussion with Кирито и Асуна, the two who were not synthesized, were left to only add the number to their names. This way, the knights Тейза Shtolienen Thirty-Two и Ронье Arabel Thirty-Three were born.
+Согласно традиции Рыцарей Целостности, им обеим предстояло лишиться своих фамилий, но "Синтезис" было священным словом, означавшим "тот, кто прошёл Синтезис Ричуал", так что после обсуждения этого с Кирито и Асуной, этой несинтезированной парочке осталось просто добавить цифры к именам. Таким образом появились рыцари Тейза Шутлинен Сёти-Ту и Ронье Арабель Сёти-Три.
 
-After fighting with the Император и Зеппос, the equipment control authority of the two rose to 40, which would be totally insufficient for a member of the Order, but Ронье did not feel that they are going to be regular knights anyway.
+После сражения с Императором и Зеппосом, уровень контроля экипировки у обеих поднялся до 40, что, конечно, было совершенно недостаточно для членов Ордена, но Ронье и не надеялась, что они станут обычными рыцарями.
 
-Perhaps, it was because of this she has not yet discussed the matter with Тейза since receiving an informal promotion two days ago.
+Возможно, именно по этой причине она так и не обсудила всё это с Тейзой за те два дня, что прошли с момента оглашения неформального повышения.
 
-Ронье several times invited her to talk, but each time Тейза said "Sorry, I’m still not......" и turned the eyes down. As for the reasons of why she did not want to talk about promotion, Ронье had a dim idea.
+Ронье несколько раз предлагала ей поговорит, но всякий раз Тейза отвечала "Прости, я ещё не......" и и отводила взгляд. Что касается причин, по которым она не хотела говорить о повышении, у Ронье было смутное представление.
 
-Perhaps, Тейза was thinking to settle two things before promoting to a regular knight.
+Возможно, Тейза надеялась разобраться с двумя проблемами до получения формального повышения.
 
-One was the marriage to the knight Renri.
+Первой была женитьба на рыцаре Ренри.
 
-Another one was her feelings to deceased Юдзио.
+А второй были её чувства к покойному Юдзио.
 
-Originally, they came close to the sealed Император's villa to investigate the rumors of ghosts lurking there. Come to think of it now, the inhabitants were taken for ghosts, or somebody noticed Зеппос digging up the forest soil.
+Ведь прежде всего они подобрались к запечатанной Императорской вилле чтобы разобраться со слухами о якобы скрывающихся там призраках. Если так подумать, за призраков наверняка приняли обитателей виллы, или кто-то заметил, как Зеппос копает глину в лесу.
 
-But Тейза surely wanted the villa to be haunted ── the ghosts to be real. If the dead can really come to life again, she thought that she might meet Юдзио again.
+Но Тейза, конечно, хотела, чтобы на вилле были призраки ── чтобы призраки действительно существовали. Ведь если мёртвые могут оживать, думала она, то и с Юдзио можно будет увидеться вновь.
 
-There were no ghosts in the Император's villa.
+Но в Императорской вилле призраков не было.
 
-But after that fight, Тейза's hesitancy must have deepened.
+Однако, после того сражения, сомнения Тейзы могли лишь усилиться.
 
-The Император и Зеппос are the dead men who were revived using "katashiro" и minion manufacturing techniques. Which means that if one uses the same method, Юдзио can also be resurrected.
+Император и Зеппос были мертвецами, оживлёнными при помощи "каташиро" и технологий производства миньонов. Что значило, что если использовать тот же метод, то и Юдзио можно воскресить.
 
-Of course, Юдзио himself wouldn’t want to come back to life by getting minion body. But even without her telling this, it was easy to understand Тейза’s painful feelings...... she would like to just exchange words with him, to meet him once again.
+Конечно, самому Юдзио бы не хотелось возвращаться к жизни в теле миньона. Но даже не учитывая этого, понять боль чувств Тейзы было несложно...... ей бы хотелось просто поговорить с ним, встретиться с ним снова.
 
-Her thoughts about Юдзио did not disappear и postponed the reply to Renri, so an early promotion to a regular knight may had set a deadline for Тейза. Besides, Ронье knew that despite being cheerful as usual during the daytime, at midnights she cried alone in her room.
+Её мысли о Юдзио не исчезли и оттягивали ответ Ренри, так что внезапное повышение могло стать для Тейзы своего рода дедлайном. К тому же, Ронье знала, что хоть она и оставалась радостной в течение дня, по ночам та плакала одна в своей комнате.
 
-She wanted to give support. To ease the suffering even a little. But Ронье could not do anything.
+Ей хотелось помочь. Облегчить страдания подруги хоть немного. Но Ронье ничего не могла предпринять.
 
-Асуна planned a tea ceremony when she noticed the sad face that Тейза occasionally showed. The light of Solus gently poured down to the Lookout of Morning Star with its four sides open to the sky, blowing through with a breeze giving a pleasant sensing of long-awaited spring. Aromatic apple tea from chef Hana’s secret stock, as well as the apple pie Асуна baked, were very tasty; a smile would come naturally when one saw three girls who are eating a snack.
+Асуна запланировала чайную церемонию, когда она заметила, что время от времени лицо Тейзы становилось печальным. Свет Солуса мягко падал на Наблюдательный Пост Утренней Звезды, со всеми его четырьмя сторонами открытыми синему небу и продуваемому ветрами, несущими приятное чувство приближения долгожданной весны. Ароматный яблочный чай из секретных запасов шефа Ханы, как и яблочный пирог, который Асуна испекла, были очень вкусными; улыбка озарила бы лицо любого, кто увидел бы этих трёх девушек за перекусом.
 
-However, the grief living in the depths of autumn leaves-colored eyes of Тейза who seemed to laugh cheerfully did not go away.
+Однако, печаль, живущая в глубинах глаз цвета осенних листьев Тейзы, которая делал вид, что радостно смеётся, никуда не делась.
 
-*If it keeps like this, maybe Тейза refuses the promotion to a regular knight.  
-On the contrary, she’d return the Меч и the knights’ emblem и leave the Центрального Собора......*
+*Если так пойдёт и дальше, может, Тейза откажется от повыешния до полноценного рыцаря.  
+Напротив, она вернём меч и эмблему рыцаря и покинет Центральный Собор......*
 
-Trapped by such a feeling, Ронье shortly sighed, when…
+Погружённая в подобные мысли, Ронье коротко вздохнула, когда…
 
-"Sorry, I’m late!"
+"Простите, я опоздал!"
 
-— Кирито said this running up the stairs.
+— сказал Кирито, взбежав по ступенькам .
 
-Suddenly Асуна stood up, hands on her hips.
+Внезапно, Асуна поднялась, уперев руки в бока.
 
-"It's really late. We've already finished eating pie."
+"Ты сильно поздно. Мы уже закончили есть пирог."
 
-"Eh...... s-so my share...?"
+"Э...... т-так моя доля...?"
 
-"Not sure if anything’s left—"
+"Не уверена, осталось ли что-то ещё —"
 
-"Ah, no way you—!"
+"А, да не может быть, чтобы вы —!"
 
-After their usual exchange, Кирито put a long package he held in his left hand on the flowerbed nearby, и sat in a chair between Ронье и Асуна.
+Вслед за их привычным обменом любезностями, Кирито положил на ближайшую клумбу длинный свёрток, что он держал левой рукой, и сел на стул между Ронье и Асуной.
 
-Of course, Асуна left a piece of pie for him, cut it и placed together with an apple tea in front of Кирито. Тейза asked Кирито who opened mouth wide и began working on it.
+Само собой, Асуна оставила для него кусок пирога, так что она отрезала его и поставила перед Кирито вместе с яблочным чаем. Тейза спросила Кирито, который широко открыл рот и начал работать над выпечкой:
 
-"So, Кирито-сенпай, you said you’ll be late ‘cause of work, where did you go?"
+"Так, Кирито-сенпай, вы сказали, что задержитесь из-за работы, куда вы ходили?"
 
-"Om-nom-nom...... I’ve been called by Deus-сан....... He said that he wants to strengthen the security system of the festival on the thirtieth."
+"Ом-нём-нём...... Меня позвал Дюс-сан....... Он сказал, что хочет усилить систему безопасности на фестивале тридцатого."
 
-Ронье decided to ignore the too familiar nickname he gave to instructor Дюсольберт, и instead asked:
+Ронье решила пропустить мимо ушей слишком уж фамильярное обращение, которое тот употребил по отношению к инструктору Дюсольберту, и вместо этого спросила:
 
-"Is it because the black Императорs’ henchmen might set up on the festival... something?"
+"Это из-за соратников чёрных Императоров, которые могут подготовить на фестиваль... что-то?"
 
-"B-black Императорs?"
+"Ч-чёрных Императоров?"
 
-Since Кирито и Асуна exchanged looks, Ронье explained after looking at Тейза’s face:
+Кирито и Асуна переглянулись, и Ронье пояснила, взглянув на Тейзу:
 
-"See, we do not seem to have an official name for those who have caused the series of incidents, so we call it like this..."
+"Понимаете, у нас не нашлось официального наименования для тех, кто устроил все эти инциденты, так что мы решили их назвать таким образом..."
 
-"Indeed, the black Императорs’ henchmen...... Well, good, I'll call them this way as well....... Yes, it is exactly what Deus-сан is worried about, but Я think the possibility is low. The goal of the revived Императорs was to start war again between Мира Людей и Тёмной Территории, и the fusion-type minions prepared for that purpose were destroyed. Even if they are still aiming at the same, it’s going to take a while for them to prepare..."
+"Ясно, соратники чёрных Императоров...... Ладно, пойдёт, я тоже так их буду звать....... Да, это именно то, о чём беспокоится Дюс-сан, но я думаю, вероятность низка. Целью воскрешённых Императоров было разжечь войну между Миром Людей и Тёмной Территорией, и подготовленные для этой цели миньоны совмещённого типа были уничтожены. Даже если они до сих пор нацелены на это же, у них уйдёт какое-то время на подготовку..."
 
-"So...... другими словами, if Тейза и Ронье did not uncover Император Крюгер’s retreat, that fusion-type minions would have been attacking the liberation festival."
+"Так что...... другими словами, если бы Тейза и Ронье не заставили Императора Крюгера отступить, те миньоны совмещённого типа напали бы на Освободительный Фестиваль."
 
-Кирито deeply nodded to Асуна's words:
+Кирито глубоко кивнул словам Асуны:
 
-"That's right. Фанатио-сан was getting angry with you earlier, but this time you two really helped us. After all, we have found more than two hundred bags of clay in the forest...... I’m horrified to think that all that could become new minions."
+"Именно. Фанатио-сан раньше на вас сильно ругалась, но на этот раз вы обе нам сильно помогли. В конце концов, в лесу было найдено больше двух сотен мешков с глиной...... Мне и думать страшно, что всё это могли быть новые миньоны."
 
-"In that case, what did they intend to put into the basic bodies...?"
+"В таком случае, что они собирались вложить в базовые тела...?"
 
-When Тейза asked, Кирито groaned after drinking a gulp of apple tea.
+Когда Тейза спросила это, Кирито промычал, отхлебнув глоток чая.
 
-"Hmm.... It is not realistic for them to kidnap all sub-humans who are currently staying in Мира Людей, actually. The exchange project has been temporarily suspended, tourists are steadily returning home....... Oh yeah, Орои и the other three mountain гоблинов will leave tomorrow morning. They wanted to thank Ронье и you."
+"Хмм.... Вообще-то не выглядит реалистичным, что они планировали похитить всех суб-людей, присутствующих в Мире Людей. Проект по обмену был временно приостановлен, туристы спешно возвращаются домой....... А, да, Орои и и остальные трое горных гоблинов уезжают завтра утром. Они хотели поблагодарить вас с Ронье."
 
-"Yes, of course Я will go see them off!"
+"Да, конечно, мы пойдём проводим их!"
 
-Having instantly answered, Ронье looked at the Восточной sky.
+Ответив так без малейших колебаний, Ронье всмотрелась в восточное небо.
 
-The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
+## Продолжение следует...
+
+<!--The Великих Восточных Врат, which had been keeping Мира Людей и Тёмной Территории apart for more than four hundred years, collapsed in order to contest the two worlds one year и three months ago. After the end of the war, the Gate was rebuilt, but the wooden door remained open all the way.
 
 But after the old Язен was killed, the door was closed again. In that sense, the black Императорs’ conspiracy has already had certain effects. Besides, the incident had not been solved at all.
 
@@ -264,7 +266,7 @@ That said, Кирито lifted the cloth-wrapped package from the flower bed nea
 
 What came out from the white cloth was a beautiful single-handed long Меч with a rose embossed on an ice-like transparent guard. As soon as she saw it, Тейза opens the eyes wide:
 
-"S-Меч Синей Розы...?!"
+"М-Меч Синей Розы...?!"
 
 The Меч Кирито put in the middle of the table was definitely the Меч Синей Розы — the former Юдзио’s beloved Меч и after his death was the finest divine object that Кирито continued to own.
 
@@ -358,20 +360,9 @@ When she turned back и called, the young dragons answered "Ку-ру-ру!" и 
 
 The two people и three animals began running cheerfully down from the Lookout where early spring flowers bloomed.
 
-(the end)
+(конец)-->
 
+## Примечания:
 
-
-
-## Footnotes:
-
-1. <a name="Prim1"></a>This is a combination of “hyaku” (one hundred) и “pa~”, first syllable of “pa~sento” (percent). So it’s a Japanese slang word consisting of a Japanese word, treated as a non-Japanese one, plus a syllable of another non-Japanese word, all in all, meaning “100%”. Good luck trying to adapt this… best thing Я came up with was “damgud” but it’s so pitiful it only deserves a place in a footnote.
-2. <a name="Prim2"></a>Actually, it's "Natsu" (ナツ). But it's definitely not because of Summer (natsu, 夏), nor because of a Fairy Tail reference. Something tells me that it's simply because the rat wanted nuts. Besides, given _who_ gave the name, Я see no other choice but to adapt it.
-<!--3. <a name="Prim3"></a>.
-3. <a name="Prim4"></a>.
-4. <a name="Prim5"></a>.
-5. <a name="Prim6"></a>.
-6. <a name="Prim7"></a>.
-7. <a name="Prim8"></a>.
-8. <a name="Prim9"></a>.
-10. <a name="Prim10"></a>.-->
+1. <a name="Prim1"></a>Это комбинация “хьяку” (сотня) и “па~”, первого слога “па\~сенто” (процент, от англ. percent). То есть это японское сленговое выражение, состоящее из японского слова, которое воспринимается как заимствованное (хьяку в оригинале записано катаканой), плюс ещё и слог одного действительно заимствованного слова, и всё вместе это означает “100%”, но не в смысле "точно", а в смысле "полностью". Желаю удачи всем, кто попытается это адаптировать… что-то в области "на все сто", но это должно выглядеть и звучать как заимствованное слово.
+2. <a name="Prim2"></a>Вообще-то в оригинале "Натсу" (ナツ). Но это явно никак не связано с летом (natsu, 夏) и не является отсылкой к Fairy Tail. Что-то подсказывает, что это просто потому, что крыса хотела орехов (nuts, натс). К тому же, учитывая, _кто_ дал это имя, я не вижу другого варианта, кроме как адаптировать его.

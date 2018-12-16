@@ -35,11 +35,11 @@ That's fine, but no matter how few people were in the Cathedral’s ninety-fifth
 
 — whispered Asuna and continued, smiling again:
 
-"Anyway, Ayuha-san since her childhood wanted to become a doctor and it seems her plant research passion has rekindled after listening to the story that Kirito-kun managed to make Zefiria flower blooming in Northern Centoria."
+"Anyway, Ayuha-san since her childhood wanted to become a healer and it seems her plant research passion has rekindled after listening to the story that Kirito-kun managed to make Zefiria flower blooming in Northern Centoria."
 
 "Ah...... It is not advisable to compete against the work of Kirito-senpai...."
 
-when Ronye Unintentionally said so, Tiese cheerfully laughed. Tsukigake and Shimosaki who were eating dried fish on the floor also chirped "ku-ru-ru”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
+— when Ronye unintentionally said so, Tiese cheerfully laughed. Tsukigake and Shimosaki who were eating dried fish on the floor also chirped "ku-ru-ru”; next to them, their new friend, miminaga-nure-nezumi, named Nuts<sup><a href="#Prim2">2</a></sup>, was crunching a deliciously looking nut.
 
 Three days have passed since the incident in Emperor's domain, it was February 27th. On the 30th, the festival commemorating the anniversary of rebellion against the four emperors was planned to be held extensively in the whole city of Centoria, and the Cathedral was a little more crowded than usual.
 
@@ -134,7 +134,7 @@ Since Kirito and Asuna exchanged looks, Ronye explained after looking at Tiese�
 
 "Indeed, the black emperors’ henchmen...... Well, good, I'll call them this way as well....... Yes, it is exactly what Deus-san is worried about, but I think the possibility is low. The goal of the revived emperors was to start war again between Human World and Dark Territory, and the fusion-type minions prepared for that purpose were destroyed. Even if they are still aiming at the same, it’s going to take a while for them to prepare..."
 
-"So...... In other words, if Tiese and Ronye did not uncover emperor Krueger’s retreat, that fusion-type minions would have been attacking the liberation festival."
+"So...... In other words, if Tiese and Ronye did not enssure emperor Krueger’s retreat, that fusion-type minions would have been attacking the liberation festival."
 
 Kirito deeply nodded to Asuna's words:
 
