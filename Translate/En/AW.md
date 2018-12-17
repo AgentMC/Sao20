@@ -10,7 +10,8 @@ On September 27, about two weeks after the publication of this volume, the BD & 
 
 That extra and this volume moved forward at the same time causing inconvenience to Abec-san, whom I want to say thank you for the beautiful & powerful illustrations that are better and better every time. To Miki-san, who remains a mystery for myself as for when does he sleep doing the CEO and editorial work concurrently, to associate Tsuchiya-san, to Adachi-san — thank you very much for your help. And thank you every one of readers as well, thank you for staying with SAO, which is finally going into the unknown zone!
 
-A certain day in July 2017.  
+A certain day in July 2017.
+  
 Kawahara Reki.
 
 

@@ -1,5 +1,5 @@
-# (The last page with content)
+# (Последняя страница с содержимым)
 
-The following page contains illustration related to "Accel World 22" release и the time of paper book version publication.
+Данная страница содержит иллюстрацию, приуроченную к выходу "Accel World 22" и времени публикации её бумажной версии.
 
 ![Image](/Translate/Img/p350-p351.jpg)
