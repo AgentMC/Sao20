@@ -206,7 +206,7 @@ Asuna's birthday was September 30, 2007. Kirito's birthday was October 7, 2008. 
 
 There were few opportunities to be conscious of it in an everyday life, but in small gestures and words they exchanged when left alone, she didn’t feel anymore that immaturity Kirito of the Incrad era sometimes had. The accumulation of that sensation might make Asuna childish.
 
-Come to think of it, when she came across Kirito at SAO, he was high school student of only 14 years old. And Asuna was also a high school third grader just before taking the exam. The two who decided to unite in the course of action, communicated in a childish way with each other.
+Come to think of it, when she came across Kirito at SAO, he was middle school student of only 14 years old. And Asuna was also a middle school third grader just before taking the exam. The two who decided to unite in the course of action, communicated in a childish way with each other.
 
 Recollecting memories of that period that seem to be so long time ago, Asuna fell into the deep and soft sleep.
 
